@@ -1,0 +1,15 @@
+# Temps
+*~
+*.tmp
+*.bak
+*.swp
+*.kate-swp
+*.DS_Store
+Thumbs.db
+
+# www utils
+.sass-cache/
+
+# Runtime
+/*.log
+/*.pid
