@@ -164,7 +164,13 @@ So when somebody goes wrong and you say, “Ah, they revealed their true charact
 That’s the difference: love is a harbor of trust for those who are doubted by everybody else. So love believes. [And loves tries to see that “best”, find it, encourage it, and help it grow.]
 (MacArthur)
 
-13:7: **Love hopes all things**.
+13:7: **Love hopes all things**. We have just seen that love believes all things. Love believes there’s good within a person, and that the good will develop. But what love does when there’s no positive development? When it’s been 15 years and the person has not changed? What happens when love has kept believing until you don’t know if you can believe anymore?
+Love will keep hoping, hoping that things can change even if they’ve gone too far. Because in its hope, love relies on God. As long as the grace of God is operative, human failure is never final. Because, really, is anything too hard for God?
+You see, hope is a very long cord that love never gets disconnected from. If you keep hoping about a person, every once in a while this rope will pull at your heart, and you will pray for that person. And hope. And keep hoping. 
+Love is hopelessly optimistic. It never stops hoping. Because God is still God, and He can do it. Love refuses to take failure as final. 
+And many a loving wife has held onto a husband with nothing but that rope of hope. And many a parent to a child; many a friend to another friend, just holding onto hope. When all your faith gets clouded in, you have to hold on to hope. 
+It is amazing that in such a situation when nothing has changed for the better despite all time and effort, and when there’s no more might to believe, and only hope is left, we are prone to make the worst judgments and think they’re the best. 
+Don’t give up on hope. Love doesn’t. Love won’t say “well, I’ve lost faith in them totally. They’re out of it. There’s just no way, no hope, I give up.” Love doesn’t do that. When all of faith gets clogged up and fogged in, love still hangs onto hope. When doubt and despair steal faith, love still has hope.
 (MacArthur)
 
 13:7: **Love endures all things**.
