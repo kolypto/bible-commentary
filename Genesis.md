@@ -1325,7 +1325,30 @@ The covenant seems to become a covenant between nations.
 
 ### Isaac Blesses Jacob
 
-
+27:4: **That I may bless you**. God had said that "the older shall serve the younger" (Gen 25:23), but Isaac's preference for another son leads him to an attempt to give a different blessing. The events show that God's declaration cannot be circumvented, and peculiar events will eventually lead to the fulfillment of the prophecy. God's word cannot be broken.
+27:4: **May bless you before I die**. Such blessings were very important, for as prayers addressed to God they were viewed as shaping the future of those blessed. (ESV)
+27:6: **Rebekah**. Rebekah instigates and coordinates the deception undertaken by Jacob. This mitigates, but does not remove, Jacob’s guilt in deceiving his father. (ESV)
+27:8: **Obey my voice as I command you**. God clearly did not cause them to deceive Isaac, but He foresaw these events.
+27:8: **Obey my voice**. Readers would see the ways in which God in his sovereignty uses all kinds of actions (good, bad, and mixed) to bring his people to the place in which they find themselves. (ESV)
+27:13: **Let your curse be on me**. It's not clear whether such words can or cannot divert the responsibility for one's actions.
+27:13: **Let your curse be on me**. Rebekah's actions are no doubt motivated by her special love for her son Jacob. (ESV)
+27:19: **I am Esau**. This is a blunt lie told to the face of his father.
+27:20: **God granted me success**. This probably falls into the category "use the Lord's name falsely". What Jacob does is simply unacceptable.
+27:24: **I am**. Jacob, having just received a blessing, lies again. Everything happens in the presence of the God, evidenced by frequent mentions of the Lord.
+27:26: **Come near**. Isaac heard the words, and felt the hairy skin, but was not completely convinced until he smelled the clothes.
+27:28: **Dew of heaven**, **fatness of the earth**, **plenty**: these blessings request an abundance of material necessities. (ESV)
+27:29: **Let nations bow down**. Here Isaac asks for universal sovereignty, embracing not only immediate family but also **peoples** and **nations**. This blessing clearly builds on the divine promise to Abraham that kings will be among his descendants (Gen 17:6).
+27:29: **Blessed be everyone who blesses you**. Echoes God’s promise to Abraham in Gen 12:3. (ESV)
+27:36: **He cheated me two times**. From Esau’s perspective, Jacob has cheated him out of both his birthright, although Esau willingly forfeited it (see 25:33). (ESV)
+27:37: **I have made him lord over you**. This blessing seems to have some real, irreversible power.
+27:39-40: The words are prophetic, granted by the Spirit. There's no way that Isaac himself could have known to say that.
+27:40: **You shall break his yoke**. Although Jacob has been given authority over his older twin brother, Isaac indicates that Esau will eventually free himself from his brother’s control. Later, Esau’s descendants settle outside the Promised Land, to the east of the Jordan River (see note on Gen 32:3–5), eventually taking control of Seir, which is later named “Edom” (see note on Gen 36:1–37:1). (ESV)
+27:41: **I will kill my brother**. Out of hate, but also, perhaps, thinking that the blessings will be passed to him.
+27:41: **I will kill my brother**. The theme of murdering a brother, which has started with Cain, continues throughout the book of Genesis and reminds the reader of sin persistent in humanity.
+27:41: **The days of mourning are approaching**. Esau sees murder as something acceptable, given the situation with his brother, but the only thing that holds him down is his father.
+27:42: **The words were told to Rebekah**. Once again Rebekah drives the events into the direction which God has predicted: Jacob will live to become the one God had told he would.
+27:45: **Why should I be bereft of you both in one day?**. Rebekah is not just afraid for Jacob, but is afraid that both of them may die in a fight.
+27:46: **Hittite women**. Isaac and Rebekah's life was bitter because of Esau's wives (Gen 26:35), and here Rebekah uses this situation to convince Isaac to send Jacob away. Like Abraham did with Isaac, they encourage Jacob to get a wife from among their relatives who are living in northwest Mesopotamia. Their advice to Jacob in turn prompts Esau to take another wife, on this occasion from Ishmael’s family. (ESV)
 
 
 
