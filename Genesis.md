@@ -1326,29 +1326,53 @@ The covenant seems to become a covenant between nations.
 ### Isaac Blesses Jacob
 
 27:4: **That I may bless you**. God had said that "the older shall serve the younger" (Gen 25:23), but Isaac's preference for another son leads him to an attempt to give a different blessing. The events show that God's declaration cannot be circumvented, and peculiar events will eventually lead to the fulfillment of the prophecy. God's word cannot be broken.
+
 27:4: **May bless you before I die**. Such blessings were very important, for as prayers addressed to God they were viewed as shaping the future of those blessed. (ESV)
+
 27:6: **Rebekah**. Rebekah instigates and coordinates the deception undertaken by Jacob. This mitigates, but does not remove, Jacob’s guilt in deceiving his father. (ESV)
+
 27:8: **Obey my voice as I command you**. God clearly did not cause them to deceive Isaac, but He foresaw these events.
+
 27:8: **Obey my voice**. Readers would see the ways in which God in his sovereignty uses all kinds of actions (good, bad, and mixed) to bring his people to the place in which they find themselves. (ESV)
+
 27:13: **Let your curse be on me**. It's not clear whether such words can or cannot divert the responsibility for one's actions.
+
 27:13: **Let your curse be on me**. Rebekah's actions are no doubt motivated by her special love for her son Jacob. (ESV)
+
 27:19: **I am Esau**. This is a blunt lie told to the face of his father.
+
 27:20: **God granted me success**. This probably falls into the category "use the Lord's name falsely". What Jacob does is simply unacceptable.
+
 27:24: **I am**. Jacob, having just received a blessing, lies again. Everything happens in the presence of the God, evidenced by frequent mentions of the Lord.
+
 27:26: **Come near**. Isaac heard the words, and felt the hairy skin, but was not completely convinced until he smelled the clothes.
+
 27:28: **Dew of heaven**, **fatness of the earth**, **plenty**: these blessings request an abundance of material necessities. (ESV)
+
 27:29: **Let nations bow down**. Here Isaac asks for universal sovereignty, embracing not only immediate family but also **peoples** and **nations**. This blessing clearly builds on the divine promise to Abraham that kings will be among his descendants (Gen 17:6).
+
 27:29: **Blessed be everyone who blesses you**. Echoes God’s promise to Abraham in Gen 12:3. (ESV)
+
 27:36: **He cheated me two times**. From Esau’s perspective, Jacob has cheated him out of both his birthright, although Esau willingly forfeited it (see 25:33). (ESV)
+
 27:37: **I have made him lord over you**. This blessing seems to have some real, irreversible power.
+
 27:39-40: The words are prophetic, granted by the Spirit. There's no way that Isaac himself could have known to say that.
+
 27:40: **You shall break his yoke**. Although Jacob has been given authority over his older twin brother, Isaac indicates that Esau will eventually free himself from his brother’s control. Later, Esau’s descendants settle outside the Promised Land, to the east of the Jordan River (see note on Gen 32:3–5), eventually taking control of Seir, which is later named “Edom” (see note on Gen 36:1–37:1). (ESV)
+
 27:41: **I will kill my brother**. Out of hate, but also, perhaps, thinking that the blessings will be passed to him.
+
 27:41: **I will kill my brother**. The theme of murdering a brother, which has started with Cain, continues throughout the book of Genesis and reminds the reader of sin persistent in humanity.
+
 27:41: **The days of mourning are approaching**. Esau sees murder as something acceptable, given the situation with his brother, but the only thing that holds him down is his father.
+
 27:42: **The words were told to Rebekah**. Once again Rebekah drives the events into the direction which God has predicted: Jacob will live to become the one God had told he would.
+
 27:45: **Why should I be bereft of you both in one day?**. Rebekah is not just afraid for Jacob, but is afraid that both of them may die in a fight.
+
 27:46: **Hittite women**. Isaac and Rebekah's life was bitter because of Esau's wives (Gen 26:35), and here Rebekah uses this situation to convince Isaac to send Jacob away. Like Abraham did with Isaac, they encourage Jacob to get a wife from among their relatives who are living in northwest Mesopotamia. Their advice to Jacob in turn prompts Esau to take another wife, on this occasion from Ishmael’s family. (ESV)
+
 
 
 
@@ -1359,6 +1383,11 @@ The covenant seems to become a covenant between nations.
 
 ### Jacob Sent to Laban
 
+28:1: **Called Jacob and blessed him**. Interestingly, if Isaac was disappointed in Jacob after his nefarious deception, he still wants the best for him: **You must not take a wife from the Canaanite women**. Or is he afraid that Jacob would pick up their pagan religion?
+
+28:4: **The blessing of Abraham**. Previously, Isaac only gave him a blessing concerning prosperity (*dew of heaven*) and lordship (*nations bow down*). Now, Isaac explicitly pronounces the blessing of Abraham, which concerns the many **offsptring** and the inheritance of the promised **land**. 
+
+28:4: **The blessing of Abraham**. Esau now sees that another blessing misses him and goes to Isaac. He must have felt cheated again.
 
 
 
@@ -1370,6 +1399,11 @@ The covenant seems to become a covenant between nations.
 
 ### Esau Marries an Ishmaelite
 
+28:6-7: There is an antithesis of the two sons. Esau **took Canaanite women**, but Jacob did not. Esau disobeyed his father in this, but **Jacob obeyed**. 
+
+28:8: **Did not please Isaac**. Esau seeks to make amends for his earlier actions. To gain his parents’ approval, he marries one of Ishmael’s daughters. Esau, however, still retains his two Hittite wives. (ESV)
+
+28:8: **Did not please Isaac**. The text clearly shows that his motivation for taking another wife was to please his father. Why? Did he hope to receive a blessing?
 
 
 
@@ -1380,6 +1414,40 @@ The covenant seems to become a covenant between nations.
 
 
 ### Jacob's Dream
+
+28:10: **Bersheeba.. Haran**. A 900km journey. (ESV)
+
+28:12: **A ladder.** May be a stairway or a ziggurat. What matters most is not the precise shape of this structure but its purpose; it provides a bridge between heaven and earth, revealing that God is still committed to making the earth his dwelling place. (ESV)
+
+28:12: **A ladder.** Jesus identifies himself as the ladder linking earth and heaven (John 1:51: "you will see heaven opened, and the angels of God ascending and descending on the Son of Man") (ESV)
+
+28:13: **The land ... I will give to you.** This is the first time that the Lord confirms that the blessing of Abraham belongs to Jacob. Isaac had wished it; the Lord has now confirmed it.
+
+28:15: **I am with you and will keep you wherever you go**. This is a tremendous promise of God's support!
+
+28:16: **The Lord is in this place.** Jacob thought, perhaps mistakenly, that the place has something special about it. But God did not say that He is somehow bound to this place; He said that He will be with Jacob **wherever he goes**, that is, in any place. This may be a hint towards Jacod's spiritual blindness. No surprise, given his lack of morals.
+
+28:16: **The Lord is in this place.** Jacob’s reaction suggests that he perceived God as being with him on earth rather than in heaven. (ESV)
+
+28:17: **Was afraid.** It seems to me that the fear Jacob experienced is not being full of awe in God's presence, but rather, a dreadful fear of an unrepentant person. But we don't know for sure. But in v. 21 Jacob promises that "The Lord will be my God", probably meaning that Jacob was godless before that.
+
+28:17: **Was afraid.** Overwhelmed with God's power and holiness and a deep awareness of their own sinfulness and fragility, a worshipful fear emerges. (Internet)
+
+28:18: **Set it up for a pillar.** Although Jacob commemorates this special event by setting up a pillar and consecrating it with **oil**, it is noteworthy that he does not build an altar. This is a further indication that he has not yet fully accepted the Lord as his God. Years later, however, after his faith-transforming encounter with God at Penuel (Gen. 32:22–32, Jacob Wrestles with God), Jacob returns to Bethel in order to construct an altar (35:1–7). (ESV)
+
+28:18: **Set it up for a pillar.** While the practice of setting up pillars was common in Canaanite worship, Deut. 16:22 prohibits it (Dt 16:22: "And you shall not set up a pillar, which the LORD your God hates."). (ESV)
+
+28:20: **A vow.** A vow that Jacob will hesitate to fulfil immediately (???check).
+
+28:20: **If God be with me**. God has just revealed Himself to Jacob in a dream, and the dream must have been very impressive. In the dream, God has made a promise. Now Jacob holds that if the promise comes true, if God really does what He promised, Jacob is ready to be committed to Him. 
+
+28:20: **If God be with me**. The conditional nature of Jacob’s vow reveals that he is still ambivalent regarding his commitment to the Lord. Although God reveals himself to Jacob at Bethel, it will require a further personal encounter before Jacob fully trusts in the Lord (see 32:22–32, Jacob Wrestles with God). (ESV)
+
+28:20: **If God.** If Jacob is ready to believe God's word, it will be credited to him as righteousness. Just trusting God at His word.
+
+28:22: **this stone … shall be God’s house**. Jacob promises that he will construct a sanctuary for God, the consecrated stone being the first part of the process. (ESV)
+
+28:22: **Tenth**. A tithe.
 
 
 
@@ -1392,3 +1460,32 @@ The covenant seems to become a covenant between nations.
 
 ### Jacob Marries Leah and Rachel
 
+### Jacob's Children
+
+### Jacob's Prosperity
+### Jacob Flees from Laban
+### Jacob Fears Esau
+### Jacob Wrestles with God
+### Jacob Meets Esau
+### The Defiling of Dinah
+### God Blesses and Renames Jacob
+### The Deaths of Rachel and Isaac
+### Esau's Descendants
+### Joseph's Dreams
+### Judah and Tamar
+### Joseph and Potiphar's Wife
+### Joseph Interprets Two Prisoners' Dreams
+### Joseph Interprets Pharaoh's Dreams
+### Joseph Rises to Power
+### Joseph's Brothers Go to Egypt
+### Joseph's Brothers Return to Egypt
+### Joseph Tests His Brothers
+### Joseph Provides for His Brothers and Family
+### Joseph Brings His Family to Egypt
+### Jacob and Joseph Reunited
+### Jacob's Family Settles in Goshen
+### Jacob Blesses Ephraim and Manasseh
+### Jacob Blesses His Sons
+### Jacob's Death and Burial
+### God's Good Purposes
+### The Death of Joseph
