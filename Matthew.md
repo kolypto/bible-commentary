@@ -11,17 +11,17 @@
 
 ### Introduction
 
-Introduction:
+#### Introduction
 
-<p class="c16 c28">The central personality of OT prophecy is the coming great King Who will rule in God's promised kingdom: a righteous king, both *human* (born of a virgin, Is 7:14; afflicted, Is 53:3-7; Son of Man, Dan 7:13) and *divine* (Mighty God, Eternal Father, Is 9:6-7; Immanuel, Is 7:14; The Lord, Zeph 3:15; The Lord of Hosts, Zech 14:17). (MacArthur)</p>
+The central personality of OT prophecy is the coming great King Who will rule in God's promised kingdom: a righteous king, both *human* (born of a virgin, Is 7:14; afflicted, Is 53:3-7; Son of Man, Dan 7:13) and *divine* (Mighty God, Eternal Father, Is 9:6-7; Immanuel, Is 7:14; The Lord, Zeph 3:15; The Lord of Hosts, Zech 14:17). (MacArthur)
 
-Authorship:
+#### Authorship
 
-<p class="c16 c28">Matthew was a tax collector (Mt 9:9): a hated and ostracized traitor of the Jewish society. Matthew is modest in writing his account: he always refers to himself in the 3rd person and nowhere speaks of himself as the author. We know of his authorship because his name is attached to all early copies of the manuscripts and because the early church Fathers unanimously attest him to be the book's author. (MacArthur)</p>
+Matthew was a tax collector (Mt 9:9): a hated and ostracized traitor of the Jewish society. Matthew is modest in writing his account: he always refers to himself in the 3rd person and nowhere speaks of himself as the author. We know of his authorship because his name is attached to all early copies of the manuscripts and because the early church Fathers unanimously attest him to be the book's author. (MacArthur)
 
-<p class="c16">Message:</p>
+#### Message
 
-<p class="c16 c28">The message is the theme of Jesus' kingship: a King who is revealed, rejected, and a King who will return. Jesus is painted in royal colors as in no other gospel. Yet Matthew also focuses most uniquely on the rejection of Jesus as King: in no other gospel are the attacks against Him so bitter and vile. (MacArthur)</p>
+The message is the theme of Jesus' kingship: a King who is revealed, rejected, and a King who will return. Jesus is painted in royal colors as in no other gospel. Yet Matthew also focuses most uniquely on the rejection of Jesus as King: in no other gospel are the attacks against Him so bitter and vile. (MacArthur)
 
 
 
@@ -569,7 +569,7 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 
 4:23: **Teaching** (Gk. *didaskon*) focused on content, with the purpose of discovering the truth — contrary to the forums so popular among Greeks, where discussion and the bantering about of various ideas and opinions was the primary concern. (MacArthur) 
 
-4:23: **Proclaiming** (Gk. *kerusson*), relates simply to announcing a message, unlike “teaching”, which relates to explaining it. The message proclaimed needs to be explained, and vise versa. (MacArhur)
+4:23: **Proclaiming** (Gk. *kerusson*), relates simply to announcing a message, unlike “teaching”, which relates to explaining it. The message proclaimed needs to be explained, and vise versa. (MacArthur)
 
 4:23: **Gospel** means “good news”: the good news that the **kingdom** was coming. Around this supreme truth all of His teaching centered. (MacArthur)
 
@@ -1528,7 +1528,7 @@ In the valley, King Ahaz had “burned his sons in fire” (2 Chron 28:3) and er
 
 5:25: (__The effect on our relations with others__) This verse is essentially a commentary on the previous one. The time for reconciliation is always now. Tomorrow is often too late. We are not to allow bitterness or any other sin to keep us separated from other people. (MacArthur)
 
-5:25: **To be put in prison** is an analogy of God’s punishment. (MacaArthur)
+5:25: **To be put in prison** is an analogy of God’s punishment. (MacArthur)
 
 
 
@@ -1672,7 +1672,7 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 #### Retaliation
 
-5:xx: (__the flow of the Sermon on the Mount__) Jesus continues to correct the rabbinical tradition which has come to a point where it allowed personal retaliation. Which is against both the OT and the NT.
+5:38-43: (__the flow of the Sermon on the Mount__) Jesus continues to correct the rabbinical tradition which has come to a point where it allowed personal retaliation. Which is against both the OT and the NT. (MacArthur)
 
 5:38: This OT concept (Dt 19:21) was not about personal revenge but the execution of justice by the authorities. The phrase means that the punishment of the guilty must be in proportion to the crime (John Strohman)
 
@@ -1729,11 +1729,11 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 #### Love Your Enemies
 
-5:xx: (__the flow of the Sermon on the Mount__) ...
+5:43-48: (__the flow of the Sermon on the Mount__) This is the 6-th, and the last, illustration contrasting the false righteousness of the scribes and Pharisees with the true righeousness of God. Nowhere was it more evident how their religion was corrupted and different from God's. (MacArthur)
 
 5:43: Again we see the Pharisees mixing some truth with a lie. The truth was "**love your neighbor**" (Lev 18:19); the lie was "**hate your enemy**". Note how they omitted "as yourself". It is one thing to say that you love someone, and it is another thing to love that person with the same concern you have for yourself. (John Strohman)
 
-5:43: **hate. **Lev 19:18 actually prohibits taking vengeance, or even holding a grudge. The only way not to hold a grudge is to forgive them. Also see Ex 23:4-5, which urges to actually help your enemies  (John Strohman)
+5:43: **hate.** Lev 19:18 actually prohibits taking vengeance, or even holding a grudge. The only way not to hold a grudge is to forgive them. Also see Ex 23:4-5, which urges to actually help your enemies  (John Strohman)
 
 5:43: By teaching like that, followed by "**hate**", the Pharisees changed the understanding of that commandment completely, perverting the sort of **love** originally meant by God, where a **neighbor** is anyone we have contact with in our daily life. Not loving a neighbor is not merely a flaw; it says one is a child of the devil (1 Jn 3:10; 4:20). (John Strohman)
 
@@ -1996,7 +1996,7 @@ So, before you get on Peter’s case, realize where he was. People say, well, Pe
 
 ### Chapter 15
 
-15:19:  sin pervades us, all of our inmost being.  Sinfulness is at the very core of the human soul.  Jesus said, for example in Matthew 15:19 and 20, “Out of the heart come evil thoughts, murders, adulteries, fornications, thefts, false witness, slanders.  These are the things which defile the man.”  And then he said, “The evil man out of the evil treasure of his heart brings forth what is evil, for his mouth speaks from that which fills his heart,” Luke 6:45.  In other words, down deep in the human heart is pervasive sinfulness, and it rises to create the kind of words and the kind of actions that we label as sinful.  Frankly, it is human nature to love sin and hate God.  The carnal mind, Romans 8:7 says, is enmity against God.  We are born loving sin, loving ourselves, hating righteousness, and hating God.  Yet, though we are born that way, mark this, sin is not a weakness or a flaw for which we cannot be held responsible.  It is an energetic, purposeful antagonism toward God that rises out of our will.  Sinners freely, willfully and gladly choose sin.  In other words, the sin that is in us manifests itself in a deliberate, willful rebellion against God. (MacArhtur)
+15:19:  sin pervades us, all of our inmost being.  Sinfulness is at the very core of the human soul.  Jesus said, for example in Matthew 15:19 and 20, “Out of the heart come evil thoughts, murders, adulteries, fornications, thefts, false witness, slanders.  These are the things which defile the man.”  And then he said, “The evil man out of the evil treasure of his heart brings forth what is evil, for his mouth speaks from that which fills his heart,” Luke 6:45.  In other words, down deep in the human heart is pervasive sinfulness, and it rises to create the kind of words and the kind of actions that we label as sinful.  Frankly, it is human nature to love sin and hate God.  The carnal mind, Romans 8:7 says, is enmity against God.  We are born loving sin, loving ourselves, hating righteousness, and hating God.  Yet, though we are born that way, mark this, sin is not a weakness or a flaw for which we cannot be held responsible.  It is an energetic, purposeful antagonism toward God that rises out of our will.  Sinners freely, willfully and gladly choose sin.  In other words, the sin that is in us manifests itself in a deliberate, willful rebellion against God. (MacArthur)
 
 15:19: eventually, those things on the inside will show up on the outside.  No one ever falls into adultery.  We read about that with pastors and others.  No one ever falls into adultery.  The adulterer’s heart has been shaped by a long process of sinful thoughts and lustful thoughts.  It gets shaped that way.  The heart of the thief, it is bent long before his act of thievery by covetousness.  All sin is first incubated in the mind.  And James says in James 1:13, “Let no one say when he is tempted.  I’m being tempted by God for God cannot be tempted by evil and He doesn’t tempt anyone, but each one is tempted when he is carried away and enticed by his own lust.  When lust is conceived it gives birth to sin, and when sin is accomplished it brings forth death.”  Don’t be deceived, brethren, it all starts inside. (MacArthur)
 
