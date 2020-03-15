@@ -8,7 +8,9 @@ This is probably because God was building Moses a reputation. The whole nation s
 
 14:21: Notice that the sea did not split at once; **the winds** were blowing **all night**. So, there likely have been a period of time when Moses had to stand, holding his staff in an outstretched hand, yet seeing no result. It was by faith that he has come to that sea, it was by faith that he held his staff in front of the whole nation, and it was by faith that he kept standing before the winds have started doing their job.
 
-20:3: (В десяти заповедях нет императива) Скажите, чем отличаются ветхозаветные заповеди например от заповедей блаженств из Евангелия? Обычно первое отличие, которое вспоминают - это то, что в заповедях блаженств нет императива (нет повелений). Заранее извиняюсь, может быть я сейчас разрушу чей-то хрупкий религиозный мир, но в десяти заповедях тоже нет императива. [То есть, они ничего не командуют]. Совсем. Неожиданно?
+14:30: An old rabbinic saying tells of the drowning of the Egyptians in the Red Sea. As the story goes, when the Egyptians were destroyed, the angels began to rejoice; but God lifted up His hand and said, "The work of my hands are sunk in the sea, and you would sing?". (MacArthur)
+
+20:3: (<u>В десяти заповедях нет императива</u>) Скажите, чем отличаются ветхозаветные заповеди например от заповедей блаженств из Евангелия? Обычно первое отличие, которое вспоминают - это то, что в заповедях блаженств нет императива (нет повелений). Заранее извиняюсь, может быть я сейчас разрушу чей-то хрупкий религиозный мир, но в десяти заповедях тоже нет императива. [То есть, они ничего не командуют]. Совсем. Неожиданно?
 
 Если мы с вами откроем греческий текст Ветхого Завета, мы с удивлением увидим, что в тексте 10 заповедей нет ни одной императивной формулировки. Все заповеди написаны просто в изъявительном наклонении будущего времени. Например, «ты не будешь убивать», «ты не будешь блудить», «ты не будешь воровать». В еврейском тексте виден тот же смысл: просто "не + убить", "не + блудить", "не + воровать".
 

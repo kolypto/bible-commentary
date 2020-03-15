@@ -1731,16 +1731,66 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 5:43-48: (__the flow of the Sermon on the Mount__) This is the 6-th, and the last, illustration contrasting the false righteousness of the scribes and Pharisees with the true righeousness of God. Nowhere was it more evident how their religion was corrupted and different from God's. (MacArthur)
 
-5:43: Again we see the Pharisees mixing some truth with a lie. The truth was "**love your neighbor**" (Lev 18:19); the lie was "**hate your enemy**". Note how they omitted "as yourself". It is one thing to say that you love someone, and it is another thing to love that person with the same concern you have for yourself. (John Strohman)
+5:43: (<u>Love in the OT</u>) **You shall love your neighbor**. Lev 19:18 requires that "you shall love your neighbor *as yourself*": a love for others that's shown in sympathetic concern and actual care for them. But God had never had a double standard of righteousness: Dt 22:1-4 taught Israelites to help their fellow countrymen if their animals were lost, but also commanded to do the same favors for the enemy. The **neighbor** of the commandment was anyone in need whom an Israelite might come across (Lk 10:30-37: "Who is my neighbor?"). Furthermore, Job says that rejoicing when harm comes to an enemy is sin (Job 31:29-30: "Have I rejoiced at the extinction of my enemy? ... No, I have not allowed my mouth to sin by asking for his life in a curse"). David mourned and prayed when his enemy was sick as if it was his friend or brother (Ps 35:12-15). (MacArthur)
 
-5:43: **hate.** Lev 19:18 actually prohibits taking vengeance, or even holding a grudge. The only way not to hold a grudge is to forgive them. Also see Ex 23:4-5, which urges to actually help your enemies  (John Strohman)
+5:43: Again we see the Pharisees mixing some truth with a lie. The truth was "**love your neighbor**" (Lev 18:19); the lie was "**hate your enemy**". Note how they omitted "as yourself". It is one thing to say that you love someone, and it is another thing to love that person with the same concern you have for yourself. (John Strohman)
 
 5:43: By teaching like that, followed by "**hate**", the Pharisees changed the understanding of that commandment completely, perverting the sort of **love** originally meant by God, where a **neighbor** is anyone we have contact with in our daily life. Not loving a neighbor is not merely a flaw; it says one is a child of the devil (1 Jn 3:10; 4:20). (John Strohman)
 
+5:43: **hate.** Lev 19:18 actually prohibits taking vengeance, or even holding a grudge. The only way not to hold a grudge is to forgive them. Also see Ex 23:4-5, which urges to actually help your enemies  (John Strohman)
+
+5:43: (<u>The perversion of rabbinic tradition</u>) **Love your neighbor, and hate your enemy**. Love, said the ancients, was to be reserved for those you get along with. Enemies were to be hated. 
+Satan's perversions of God's revelation almost always touches on the truth at some point: then it's more believable.
+Rabbinical tradition omitted the *as yourself* part. As with other scriptural standards that seemed too demanding, the one concerning love of neighbor was reduced to a humanly acceptable level.
+The addition of **hate your enemy** was even more perverse. It is little wonder that the Romans charged Jews with hatred of the human race, for one saying of the Pharisees read: "If a Jew sees a Gentile fallen into the sea, let him by no means lift him out, for it is written, 'Thou shalt not rise up against the blood of thy neighbor,', but this man is not thy neighbor". The idea that Gentiles were to be personally despised and hated originated from pride and self-righteousness. (MacArthur)
+
+5:43: (<u>The balance of love and justice</u>) Godly attitude toward even the worst pagans is to love them and pray that they will turn to God and be saved, but we also pray that if they do not turn to Him, God will judge them and remove them to prepare the way for Jesus Christ. We are to share God's own balance of love and justice. 
+But the Pharisees had no such balance. They had no love for justice, but only for vengeance. 
+(MacArthur)
+
+5:44: **But I say to you**. In placing what He said above what tradition said, Jesus placed His word on a par with Scripture, as His hearers well understood. 
+Jesus did not quote scripture, but taught, placing an emphasis on His authority to do so: "Your great rabbis have taught you this, but by My own authority, I declare that they have perverted God's truth, which is something else." 
+(MacArthur)
+
+5:44: **Love your enemies**. Jesus has probably startled His audience. To the arrogant men masquerading as the custodians of God's law, it must have seemed naive and foolish in the extreme. (MacArthur)
+
+5:44: **Love your enemies**. The human tendency is to base love on what we like or prefer. But true love is need-oriented. The Good Samaritan parable started with a question of *who* is a neighbor, but demonstrated how to *be* a neighbor. Being a neighbor is meeting another's needs. (MacArthur)
+
 5:44: **love**: “that is, unselfishly seek the best or higher good for” (AMP)
 
+5:44: **love**. Greek *agape*: a love that seeks and works to meet another's highest welfare. It *may* involve emotion, but it *must* involve action. Obviously, love must involve attitude, because, like every form of righteousness, it begins in the heart. (MacArthur)
 
+5:44: **love**. Love's question is never whom to love -- because we are to love everyone, -- but only how to love most helpfully. (MacArthur)
 
+5:44: **Love your enemies**. Love indeed sees all the hatefulness and the wickedness of the enemy, feels his stabs and his blows, may even have something to do toward warding them off; but all this simply fills the loving heart with the one desire and aim, to free its enemy from his hate, to rescue him from his sin, and thus to save his soul. (R. C. H. Lenski)
+
+5:44: **persecute you**. Persecution is so often the world's response to God's truth that unmasks people at their most sensitive points where they try to rid themselves of guilt. (MacArthur)
+
+5:44: **pray for those who persecute you**. The best way to have the *agape* love attitude towards **those who persecute** us is to bring them before the Lord in prayer. We could not possibly love them for *what* they do, but we must love them because of *who* they are: sinners fallen from the image of God and in need of God's forgiveness and grace. Just as we were sinners in need of His forgiveness and grace before He saved us. This is the first step towards loving the person. (MacArthur)
+
+5:45: **that you may be sons of your Father who is in heaven**. To love our enemies and to pray for our persecutors is to manifest the greatest evidence of our divine sonship. Loving enemies is so uncharacteristic of human nature that it gives a strong evidence of its heavenly origin. (MacArthur)
+
+5:45: **that you may be**. The aorist tense of **may be** indicates a once and for all established fact. (MacArthur)
+
+5:45: **you may be sons of your Father**. Loving as God loves does not *make* us **sons of the Father**, but gives evidence that we already are His children. When a life reflects God's nature, it proves that is possesses His nature by the new birth. (MacArthur)
+
+5:45: **you may be sons of your Father**. The Master expects from His disciples such conduct as can be explained only in terms of the supernatural. (MacArthur)
+
+5:45: **For He makes His sun rise on the evil and on the good**. The reason for loving your enemies is given in this verse: because God demonstrates His *agape* love in attending to the needs of all people, evil and good alike. Those who refuse God are His enemies; but He is not theirs. In the same way, we are not to be enemies of those who may be enemies to us. They should be neighbors to us. (MacArthur)
+
+5:45: **the evil and the good**. An old rabbinic saying tells of the drowning of the Egyptians in the Red Sea. As the story goes, when the Egyptians were destroyed, the angels began to rejoice; but God lifted up His hand and said, "The work of my hands are sunk in the sea, and you would sing?". (MacArthur)
+
+5:47: **what more are you doing than others?**. The Pharisees were certain that they were far better than everyone else, but Jesus again cuts through their blind hypocrisy, showing that their type of love is nothing more than the ordinary self-centered love common even to **tax-gatherers** and **Gentiles**: to whom the scribes and the Pharisees thought they were most undeniably superior.  (MacArthur)
+
+5:47: **you love those who love you**. "Your righteousness", Jesus charged, "is therefore no better than theirs". This must have outraged the Pharisees. (MacArthur)
+
+5:47: **what more are you doing?**. The citizens of God's kingdom are to have a much higher standard of love than the rest of the world. (MacArthur)
+
+5:48: **Be perfect, as your heavenly Father is perfect**. The sum of all the Scripture: the great purpose of salvation, and the great yearning of the heart of God, is for all men to become like Him. (MacArthur)
+
+5:48: **Perfect** (Gk. *teleios*): to reach an intended end or a completion. Is often translated "mature", but here, the meaning is obviously that of perfection, because the **heavenly Father** is the standard. Absolute perfection. (MacArthur)
+
+5:48: **Be perfect**. That perfection is utterly impossible in man's own power. But that which God demands, He Himself provides the power to accomplish. The impossible righteousness becomes possible for those who trust in Jesus Christ, because He gives them His righteousness. (MacArthur)
 
 
 
@@ -1752,7 +1802,7 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 6:1: Most people do good deeds so others will think well of them. Some may disagree and claim they do things because it gives them a good feeling inside. They do not realize that in getting that "good feeling" they are still doing good works for an audience who they want to think well of them (the audience is themselves). They want to have the satisfaction of viewing themselves as very altruistic people. Others think that by doing something good they can offset some bad thing they have done. In neither case are they doing service to solely glorify God. (John Strohman)
 
-6:2: **Hypocrisy** is not the Christian's attitude.vThe Christian does good works out of love for God and is not interested in getting congratulated by others. (John Strohman)
+6:2: **Hypocrisy** is not the Christian's attitude. The Christian does good works out of love for God and is not interested in getting congratulated by others. (John Strohman)
 
 6:2: Some people say they actually did have a little silver **trumpet**. I think Calvin thinks they did. They had a little silver trumpet and he used to go in the streets and the synagogues, not the temple, because this was not the – the temple giving. But this was the – the giving to the needy at the synagogue and the – and the streets, as it indicates there, just in the course of life. And they would blow a little silver trumpet. And it was kind of like all you poor, come one come all, your great benefactor has arrived. And all the poor would come at the blowing of the little trumpet and the guy would start doling out the money.
 We have our own little trumpets. We want to let people know we gave. We go home to our wife and then say, “Boy, what I’ve done for him, you’d think that he could treat me a little different.” And we – we want to find somebody that we can tell. It’s just that we want our little trumpet. We don’t want a big trumpet, just a little trumpet. And then we get appeals from Christian organizations, if you will give us money we’ll send you a certificate for your wall. Now that is a trombone, folks. And then if you want a tuba, you can get a plaque. You can just – you can have a whole band in your office blowing all over the place. You can be a member of the inside group. See?
