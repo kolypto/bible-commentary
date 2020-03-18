@@ -1455,10 +1455,58 @@ The covenant seems to become a covenant between nations.
 
 
 
-
-
-
 ### Jacob Marries Leah and Rachel
+
+29:1: **journey**. Just like Abraham's servant, Jacob travels to Paddan Aram to find a wife. 
+While both accounts involve providential encounters at a well, subtle differences exist. Whereas Abraham’s servant prays for guidance, Jacob is not recorded as praying. 
+In that episode, Rebekah waters the camels; in this episode, Jacob waters the sheep.
+(ESV)
+
+29:1: **People of the east**. This is an unusual way of referring to the inhabitants of Paddan-aram in northwest Mesopotamia. In Genesis, however, the “east” is often associated with those who are expelled or move away from God’s presence (3:23–24: "sent him out from the garden of Eden"; 4:16: "Cain settled ... east of Eden"; 21:14: Abraham sent Hagar away; 25:6: Abraham sent the sons of his concubines away). This brief comment possibly signals that Jacob’s relatives do not worship the Lord. (ESV)
+
+29:6: **Rachel**. Providentially, Laban’s daughter, Rachel, is spotted bringing her herd to the well. (ESV)
+
+29:6: **Rachel**. Rachel means “ewe,” an appropriate name for a shepherdess (ESV)
+
+29:7: **go, pasture them**. Isn't it strange, Jacob giving advice to shepherds that don't even know him? 
+
+29:10: **Jacob rolled the stone**. Jacob demonstrates extraordinary strength in being able to move the stone. (ESV)
+
+29:10: **watered the flock of Laban**. It is Jacob's goal to find a wife from Laban's family, and there she is. So he starts helping her.
+
+29:11: **Jacob kissed Rachel**. Probably as an act of family affection rather than of romance (cf. v. 13). (ESV)
+
+29:11: **wept aloud**. Perhaps, he wept because he recognized God's providence in this situation?
+
+29:13: **he ran**. Tells us about the strong feelings they had about this family reunion.
+
+29:15: **serve me**. Jacob did not just enjoy his time with Laban, but labored with him.
+
+29:18: **I will serve you**. In the ancient Near East it was customary for a prospective husband to give the bride’s father a substantial gift of money, known as the bride-price. Jacob indicates that he is prepared to work for Laban in order to give the equivalent of seven years’ wages for Rachel. (ESV)
+
+29:20: **because of the love**. No doubt they spent a lot of time together.
+
+29:21: **I may go in to her**. They had no sexual relations so far. It's been seven years already.
+
+29:23: **Took Leah**. Darkness in a world without artificial lighting can be pitch-black. At this stage, Jacob did not realize that Leah was the bride. She may also have come to him wearing a veil, the sign of a betrothed woman. (ESV)
+
+29:25: **It was Leah**. How come Jacob didn't notice the substitution? He must have known Rachel well enough to recognize. Probably, either Jacob was drunk, or Leah didn't talk at all. Perhaps, Laban made sure that Jacob drank too much, or he instructed Leah to keep quiet. Or perhaps, Leah had herself put her eye on Jacob? It's not clear.
+
+29:25: **Why have you deceived me?**. Jacob is reaping what he had sown: deception. It has returned to him, because God is teaching him a lesson.
+
+29:25: **Why have you deceived me?**. The episode is full of irony. Having deceived his father by pretending to be the firstborn, Jacob himself is now deceived by his uncle Laban. He now has to labor seven more years. (ESV)
+
+29:26: **to give the younger before the firstborn**. Laban’s remarks are highly ironic in light of Jacob’s earlier deception of his father. (ESV)
+
+29:27: **Complete the week of this one**. The wedding celebrations lasted for seven days. Laban persuades Jacob to complete this process with Leah on the understanding that he will then be able to marry Rachel. This would also give ample opportunity for Leah to conceive a child. (ESV)
+
+29:30: **served Laban for another seven years.** The implication is that Jacob served 14 years without earning any possessions for himself or his family.
+
+
+
+
+
+
 
 ### Jacob's Children
 
