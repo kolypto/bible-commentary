@@ -1506,9 +1506,34 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 
 
-
-
 ### Jacob's Children
+
+29:31: **the Lord**. God hasn't been mentioned since the beginning of the chapter: the whole time Jacob worked, negotiated, married, and married again. It is possible that he lived a Godless life, and now God acts by adding misfortune to the family.
+
+29:31: **Leah was hated**. Not surprisingly, given his unexpected marriage to Leah, Jacob’s domestic scene is fraught with tension. Laban’s deception and manipulation of Jacob creates years of discord between his two daughters. (ESV)
+
+29:31: **Leah was hated**. Undoubtedly, he found it difficult to love Leah, given the events that had brought them together, and Rachel probably also loathed her sister for the same reason. Yet their treatment of Leah causes the Lord to favor her over Rachel. While Leah is able to have children, Rachel is barren. (ESV)
+
+29:31: **opened her womb**. As Genesis frequently highlights, the Lord is ultimately the One who creates human life. (ESV)
+
+29:31: **opened her womb**. Despite Jacob having slept with her already at the wedding, and despite the seven days of the wedding, Leah did not bear any children for Jacob.
+
+29:31: **saw that Leah was hated**. Even though she was given to Jacob by deception, Jacob was supposed to treat her nicely and take care of her. **Hated** probably doesn't merely mean the lack of tender love, but some more serious negligence that led to serious sorrow. God has heard her cry.
+
+29:31: **But Rachel was barren**. A woe to the family and grief to the loving husband.
+
+29:32: **Because the LORD has looked upon my affliction**. Leah attributes her pregnancy to God, which means that 1) she was a God-fearing woman, and 2) she has been praying. She complained to the Lord concerning the mistreatment by her husband, his lack of love, and the suffering (**affliction**) she was in. God always hears the cry of the oppressed.
+
+29:32: **for now my husband will love me**. A desperate hope for an unloved woman.
+
+29:32: **for now my husband will love me**. Jacob did not choose her, he did not love her, and caused her great suffering, but he still slept with her as her husband.
+
+29:34: **because I have borne him three sons**. While Leah, the unloved wife, was giving birth to the third son already, Rachel, the tenderly loved one, was unable to conceive. It's easy to understand how much tension this fact has added to the family.
+
+29:31-30:24: Children. 
+From Leah:  **Reuben**: "see". The firstborn, the older son. **Simeon**: "hear". The second oldest son. **Levi**: "attach". **Judah**: "praise".
+
+30:
 
 ### Jacob's Prosperity
 ### Jacob Flees from Laban
