@@ -1530,10 +1530,59 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:34: **because I have borne him three sons**. While Leah, the unloved wife, was giving birth to the third son already, Rachel, the tenderly loved one, was unable to conceive. It's easy to understand how much tension this fact has added to the family.
 
+30:1,2: **Envied her sister** ... **Jacob's anger was kindled**. There was plenty of bitterness in the family.
+
+30:2: While recognizing God’s role in this situation, however, Jacob does not pray for Rachel, as his father Isaac had done for Rebekah. (ESV)
+
+30:3: **Here is my servant**. This practice, which was also carried out by Abraham and Sarah (see 16:1–4), was part of ancient Near Eastern culture. (E.g., the Nuzi texts from the 15th century B.C. treat the concept of marriage, and many of these texts deal with the issue of childlessness and provisions for new wives.) Children born to the substitute, or second, wife were regarded as belonging to the main, or first, wife. In this way, continuity of the family line was preserved. (ESV)
+
+30:3: **Bilhah; go in to her**. Many questions arise. What Bilnah felt about it? Was she even asked? What did Leah feel about such a decision? Was she even asked? 
+Perhaps, it was normal in the ancient Near East? Then we can't read our modern-day views into it.
+
+30:6: **she called his name**. Bilnah gave birth for Rachel, so Rachel gives the name to the baby.
+
+30:8: **Mighty wrestlings**. An apt description of the tension in the family.
+
+30:9: **Took her servant Zilpah**. No doubt, as an act of revenge. I wonder what Jacob was thinking about this mess.
+
+30:14: **Mandrakes**. Because mandrakes contain deliriant hallucinogenic tropane alkaloids and the shape of their roots often resembles human figures, they have been associated with a variety of superstitious practices throughout history. They have long been used in magic rituals, today also in contemporary pagan traditions. ([Wiki](https://en.wikipedia.org/wiki/Mandrake))
+
+30:15: **Taken away my husband**. When such a small thing becomes an issue, this tells that there was constant hostility and old bitterness. Even a small spark brings everything up.
+
+30:15: **Taken away my husband**. This is not true. Leah intervened into their relationship, not Rachel.
+
+30:15: **Rachel said**. Not *Leah asked*, but *Rachel said*. Rachel knew that Leah missed Jacob. Even being his wife, she didn't get any love or affection.
+
+30:15: **Then he may lie with you tonight**. Sounds like insanity. How in the world could **mandrakes** matter so much? And anyway, how could a woman willingly let her husband lie with another?
+
+30:15: **In exchange for your son's mandrakes**. Probably, a rare find.
+
+30:15: **In exchange for your son's mandrakes**.  Unfortunately, no explanation is given as to why Rachel is so eager to have these mandrakes; the context suggests that she may have viewed the plant as increasing female fertility. This and other proposals, however, must be treated with caution. (ESV)
+
+30:16: **You must come in to me, for I have hired you**. It's been a long while that Jacob slept with her. Leah was still unloved, and judging by the desperate actions, she clearly suffered from it.
+
+30:16: **for I have hired you**. Insane.
+
+30:17: **God listened to Leah**. Leah prayed, and wanted to have more children.
+
+30:18: **because I gave my servant to my husband**. She saw this as an act of sacrifice!
+
+30:22: **God remembered Rachel**. She has been bitter so far. Even the names of her servant's sons ("judge", "wrestle") tells us about her feelings.
+
+30:22: **God remembered Rachel**. After many years of waiting, Rachel eventually bears Jacob a son.  (ESV)
+
+30:23: **My reproach**. Since throughout Genesis fertility is often associated with divine blessing, a woman’s inability to bear children could be interpreted as reflecting divine disapproval. Given the resentment that existed between the sisters, Leah may well have taunted Rachel over her inability to bear children. (ESV)
+
+30:24: **Joseph**. The only son from the favorite and most loved wife.
+
 29:31-30:24: Children. 
 From Leah:  **Reuben**: "see". The firstborn, the older son. **Simeon**: "hear". The second oldest son. **Levi**: "attach". **Judah**: "praise".
+From Bilnah (for Rachel): **Dan**: "judge". **Naphtali**: "wrestle". 
+From Zilpah (for Leah): **Gad**: "fortune". **Asher**: "happy".
+From Leah: **Issachar**: "wages". **Zebulun**: "honor". **Dinah**. 
+From Rachel: **Joseph**: "take away".
 
-30:
+
 
 ### Jacob's Prosperity
 ### Jacob Flees from Laban
