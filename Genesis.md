@@ -1585,6 +1585,43 @@ From Rachel: **Joseph**: "take away".
 
 
 ### Jacob's Prosperity
+30:25: **As soon as Rachel had borne Joseph**. That would be 14 years into their marriage, because this is how much Jacob had agreed to serve. Interesting coincidence? well... unless Jacob is trying to leave sooner than it was agreed.
+
+30:27: **learned by divination**. In this case it probably does not refer to a pagan practice, but to a godly practice of inquiring the Lord. In the OT, people would go to seers, or use objects (urim and thummin, Joseph's divination cup) to learn the truth from the spiritual world.
+
+30:27: **learned by divination**. The Israelites were later prohibited by God from practicing divination (Dt 18:10) because it sought to provide knowledge by inappropriate methods (e.g., interpreting omens, using supernatural powers). Laban’s use of divination is sinful, even though the information obtained is accurate. (ESV)
+
+30:27: **The Lord has blessed me because of you**. That's one example of God's blessing spreading to neighbors. It's likely that Laban was not blessed for the way he treated Jacob, for he actually deceived him, and will deceive him more. The blessing must have been given to Laban so that Jacob could receive his riches through him.
+
+30:27: **The Lord has blessed me because of you**. In Genesis, all the members of the special line descended from Abraham are portrayed as mediating God’s blessing to others. (ESV)
+
+30:28: **Name your wages, and I will give it**. Laban's initial readiness is actually completely hypocritical. Laban is actually reluctant to lose Jacob’s service, which has brought him considerable wealth. Read on.
+
+30:28: **Name your wages**. For 14 years Jacob has served Laban in order to pay the bride-price for Leah and Rachel. Having fulfilled this obligation, which has financially benefited Laban well beyond what he might have expected, Jacob now wants to provide for his own household. Laban, conscious of how Jacob has enriched him and eager to retain his services, asks Jacob to name his wages for remaining with him. (ESV)
+
+30:30: **For my own household**. Jacob had agreed *to serve*, which means that every labor of his, and all the fruit, were Laban's. It **has increased abundantly**, and even though it did not belong to Jacob, he worked faithfully to multiply the possessions of another, without envying, or asking anything for himself. Must have been a great lesson for him.
+
+30:32: **speckled and spotted sheep**. Jacob was probably convinced that Laban was stingy and would not want to share. His actions in v. 35 confirm that. So Jacob's request seems very modest at first: a few speckled animals. That's something that Laban would easily agree to.
+
+30:32: **speckled and spotted sheep**. How in the world did he devise this highly unusual plan?
+
+30:33: **my honesty** ... **shall be counted stolen**. Such measures are never devised without a good reason. After 14 years, Jacob knows Laban very well, and he likely anticipated that Laban would try to argue for a lesser share.
+
+30:37: **Jacob took**. Where does this odd breeding program come from? In Gen 31:10, Jacob confesses that it was a dream in which God has revealed a plan to him. Jacob was given advance knowledge of which animals would be born due to which animals were breeding. 
+
+30:37: **Jacob took**. In many miracles in the Bible, God required people to go through some token action. Moses was instructed to hold his staff over the Red Sea before God parted the waters. Naaman had to dip himself seven times in the Jordan River before God would cure his leprosy. Joshua and the Israeli army had to walk in circles around Jericho and blow on trumpets before God destroyed the walls of the city. But it is not the action itself that produced results; it was God. 
+The principle is that God does not allow people to just sit back and sip on champagne while God performs miracles to pull their feet out of the fire. When there is something people can do to help themselves, he expects them to do it. And when there is nothing that people can do to help themselves, he still requires them to perform some token, symbolic action. 
+I presume that Jacob's putting the striped sticks in the water was in the same category. It did not cause the animals to be born spotted. It was just a token action that God required of Jacob before God would perform a miracle for him.
+(Internet)
+
+30:39: **Brought forth striped, speckled, and spotted**. Scientifically speaking, those white animals may have had recessive genes of color.
+
+30:41: **The stronger of the flock were breeding**. This is an example of the principle of genetical inheritance in the Bible. Strong genes + strong genes = strong animal. That's the basics of animal breeding.
+
+30:43: **Female servants and male servants**. It's unclear where those servants came from. When Jacob arrived to Paddan-Aram, he only had his staff with him (Gen 32:10: "with only my staff I crossed this Jordan"; staff = walking stick). Was he given more servants? Were they born to Bilnah and Zilpah?
+
+
+
 ### Jacob Flees from Laban
 ### Jacob Fears Esau
 ### Jacob Wrestles with God
