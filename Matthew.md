@@ -1772,24 +1772,52 @@ Jesus did not quote scripture, but taught, placing an emphasis on His authority 
 
 ### Chapter 6
 
-#### Giving to the Needy
+6:1-18: (<u>the flow of the Sermon on the Mount</u>) Mt 5:21-48 focuses on *the teaching* of the law: on what men believe; the following verses of 6:1-18 focus on *the practice* of the law, what men do. 
+The three representative illustrations that Jesus considered: our religion as it acts towards others (alms); our religion as it acts towards God (praying); our religion as it acts in relation to ourselves (fasting).
+(MacArthur)
 
-6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
+
+
+#### Giving to the Needy
 
 6:1: **to be noticed**. Most people do good deeds so others will think well of them. Some may disagree and claim they do things because it gives them a good feeling inside. They do not realize that in getting that "good feeling" they are still doing good works for an audience who they want to think well of them: the audience is themselves. They want to have the satisfaction of viewing themselves as very altruistic people. Others think that by doing something good they can offset some bad thing they have done. In neither case are they doing service to solely glorify God. (John Strohman)
 
+6:1: (<u>sham religion: rearrange the ashes</u>) **To be noticed**. There is a story of an eastern ascetic holy man who covered himself with ashes as a sign of humility, and regularly sat on a prominent street corner of his city. When tourists asked permission to take his picture, he would rearrange his ashes to give the best image of destitution and humility.
+A great deal of religion amounts to nothing more than rearranging religious "ashes" to impress the world with one's supposed humility and devotion. But this devotion is to self, not to God, and such a religion is nothing more than a game of pretense.
+(MacArthur)
+
+6:1: **Beware** (Gk. *prosecho*) means to take hold of something and pay attention to it, especially in the sense of being on guard. (MacArthur)
+
+6:1: **To be seen** (Gk. theathēnai) is a term from which we get "theater". It means a spectacle to be gazed at. Jesus warns about **practicing** a form of **righteousness** whose purpose is to show off **before men**. 
+Such religion does not demonstrate what is in the minds and hearts of the actors, but is simply a performance designed to make a certain impression on those who are watching. The purpose is to magnify the actors rather than God, and to please men, not God. (MacArthur)
+
+6:2: **When**. Jesus introduces this teaching with **when**, not with *if*, indicating that He expects us to do give alms. (MacArthur)
+
 6:2: **Hypocrisy** is not the Christian's attitude. The Christian does good works out of love for God and is not interested in getting congratulated by others. (John Strohman)
+
+6:2: **Hypocrite** (Gk. hupokrite) originally was a Greek actor who wore a mask that portrayed the role that was being dramatized. It came to be used of anyone pretending to be what he was not. (MacArthur)
+
+6:2: **Hypocrite**. In a church, hypocrisy comes in two forms: nonbelievers masquerading as Christians; and true believers who are sinful but pretend to be spiritual. (MacArthur)
+
+6:2: **Hypocrisy**. John Calvin believed that every virtue is corrupted and polluted by hypocrisy; no virtue is so praiseworthy as to be immune to it.
+
+6:2: **Hypocrisy**. Augustine said, "The love of honor is the deadly bane of true piety. Other vices bring forth evil works, but this brings forth good works in an evil way." Hypocrisy is so dangerous because it is so deceptive. It uses things that are basically good for purposes that are basically evil. (MacArthur)
 
 6:2: **Trumpet**. Some people (Calvin?) say they actually did have a little silver **trumpet**, and they used to go in the streets and the synagogues, and they would blow that little silver trumpet. And it was kind of like "all you poor, come one come all, your great benefactor has arrived". And all the poor would come at the blowing of the little trumpet and the guy would start doling out the money.
 We have our own little trumpets. We want to let people know we gave. We go home to our wife and then say, “Boy, what I’ve done for him, you’d think that he could treat me a little different.” And we want to find somebody that we can tell. It’s just that we want our little trumpet. We don’t want a big trumpet, just a little trumpet. 
 And then we get appeals from Christian organizations, if you will give us money we’ll send you a certificate for your wall. Now that is a trombone, folks. And then if you want a tuba, you can get a plaque. You can have a whole band in your office blowing all over the place. 
+Those Christian organizations offering such certificates appeal to wrong motives, and are themselves wrong, for they put a stumbling block to other Christians (Mt 18:7: "woe to that man through whom the stumbling block comes!").
 (MacArthur)
+
+6:2: **Trumpet**. Sometimes we try to make our good works "accidentally" noticed. But even if we only *want* people to notice, and do nothing to attract their attention, our heart motive is to **be honored by men**. The real trumpet blowing, the basic hypocrisy, is on the inside, and that is where God judges. (MacArthur)
+
+6:2: **Reward**. False righteousness does have a reward: the applause of other hypocrites and ignorant people. That, however, is the limit of the honor: God does not reward men-pleasers, because they rob Him of glory. (MacArthur)
 
 6:2: **Reward**. Notice in v.1 that if you boast, you have no reward from God, but in v. 2 **they have their reward**. This v.2 reward is not from your Father who is in heaven. 
 Who’s it from? From those you were doing this thing for: from men. If you’re an actor on a stage, if you’re hupokritēs, if you're just doing your thing for the applause of men, what you get is the applause of men. That’s it. You get an earthly reward, not a heavenly one. You get something from men and nothing from God.
 (MacArthur)
 
-6:2: **Hypocrites give to the needy** to do good works. 
+6:2: (<u>Jewish tradition on salvation through alms</u>.) **Hypocrites give to the needy** to do good works. 
 Did you know that in the Apocrypha, for example in Tobit 12:8, it says “It is good to do alms rather than treasure up gold, for *alms deliver from the death and this will purge away every sin*”? The Jews actually taught that they would purge away their sins by giving money to the needy. That’s how far they’ve gone. 
 In Sirach 3:30 it says, “Alms will *atone for sin*.” 
 I found several quotes out of the Talmud. “Alms giving is more excellent than all offerings and *is equal to the whole law*.” “Alms giving *will deliver from the condemnation of hell and make one perfectly righteous*.”
@@ -1800,8 +1828,13 @@ Boy, they really put it on as a big display. And Jesus goes right by all of that
 
 6:3: <u>Is your almsgiving glorifying you, or God</u>? There is a very big difference. Mt 5:16 teaches that our good works should *glorify God*, not us.  If you are told that something you did was very kind, you should tell that person you did it because you are Christian. This will inform him that your motivation is from Christ and not of your own goodness. The end result will be that Christ is glorified and not yourself. This is a witness to Christ. (John Strohman)
 
-
 6:3: **Reward**. There is a reward for those who give out of a right heart. In v.2 it went "*they received their reward*". **But**, Jesus goes on, and this says that if you do it differently, you'll have a different result. A reward. 
+
+6:3: **Do not let your left hand know what your right hand is doing**. Something done so easily that you didn't need to employ the other hand to put an effort to.
+
+6:3: **Do not let your left hand know what your right hand is doing**. Because v.4 says such a giving is done *in secret*, Jesus probably means that the act of giving should be done \[by the right hand\] in such a secret and easy way that not even the left hand, its closest partner, would notice.
+
+6:3: **Do not let your left hand know what your right hand is doing**. It was probably a proverbial expression that refers to doing something spontaneously, with no special effort or show. The right hand, being the primary hand of action, does so many things in a normal day's work that would not involve the left hand. Giving to help those in need should be a normal activity of the Christian, and he should do it as simply, directly, and discreetly as possible. (MacArthur)
 
 6:3: **Do not let your left hand know what your right hand is doing**. Some believe it was a Proverb of the time for doing things so spontaneously that you didn’t really think about them. 
 You’re walking along the street and here’s somebody with a need. And without a long process of calculation, without a lot of thought and analysis and checking out your bank book or whatever. Here’s a need and you just reach in and you slip it over there.
@@ -1810,9 +1843,23 @@ And you know what’s kind of nice about it too? If the left hand doesn’t know
 You say, “But what am I going to do to make sure?" The Lord will bless. And there is a big joy to just give and not even think about how much or can you afford it. You just respond to the need.
 (MacArthur)
 
-6:4: **In secret**. Besser said that the temple had a special place where the 'bashful benefactors', he called them, could come. They wanted to give to the poor, but they were bashful. And so, they would just come and they would just put money there. And then there were the bashful poor, who didn’t want to ask, and the bashful poor would come in in another place and they would take what they needed. And the name of the place was Silence. Silence. I love that. Nothing to be said, just needs to be met. (MacArthur)
+6:4: **In secret** (Gk. krypto): concealed.
+
+6:4: **In secret**. But previously in Mt 5:16 Jeses said to "*let your light shine before others*". The question is not whether or not our good works should be *seen* by others, but whether they are done for that end. The difference is in purpose and motivation. (MacArthur)
+
+6:4: **In secret** before others, but of course, no in secret before the person you give to. When the good work is done "in such a way" (v. 3) that attention and glory is focused on our "Father who is in heaven", God is pleased, and we "let our light shine" before that very person. But trying to tell about this act to others is not letting the light shine; it's blowing the trumpet.
+
+6:4: **In secret**. A.B. Bruce gives this helpful explanation: "We are to show when tempted to hide, and hide when tempted to show". (MacArthur)
+
+6:4: **In secret**. Besser said that the temple had a special place where the 'bashful benefactors', he called them, could come. They wanted to give to the poor, but they were bashful. And so, they would just come and they would just put money there. And then there were the bashful poor, who didn’t want to ask, and the bashful poor would come in in another place and they would take what they needed. And the name of the place was the Chamber of the Silent. I love that. Nothing to be said, just needs to be met. (MacArthur)
+
+6:4: **Your Father will reward you**. Giving in the OT is described as a part of God's circle of blessing (Prov 11:25: "the generous man will be prosperous, and he who waters will himself be watered"). As we give, God blesses, and when God blesses us we give again out of what He has given. (MacArthur)
+
+6:4: **And your Father who sees in secret will reward you.**. The principle is this: if we remember, God will forget; but if we forget, God will remember. Our purpose should be to meet every need we are able to meet, and leave the bookkeeping to God. (MacArthur)
 
 #### The Lord's Prayer
+
+6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
 6:5: These verses continue the theme Jesus set out in previous sections. The point is that our relationship with God is not built on external actions but our heart attitude while doing external actions (or private actions for that matter). (John Strohman)
 
@@ -1824,9 +1871,13 @@ You say, “But what am I going to do to make sure?" The Lord will bless. And th
 
 #### Fasting
 
+6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
+
 6:16: The Pharisees saw **fasting** as an opportunity to get the approval of others who saw them. This is the same attitude they had about prayer. It was all external appearances. False humility is actually pride, and worthless in the sight of God (John Strohman)
 
 #### Lay Up Treasures in Heaven
+
+6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
 6:19: Our view should be that material things and daily provisions are not to be looked upon with either greed or fear of lack. They are both under the sovereign hand of God, who will provide for us. (John Strohman)
 
@@ -1865,6 +1916,8 @@ earned, to buy things they don't want, to impress people they don't like."
 
 #### Do Not Be Anxious
 
+6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
+
 6:25: A threefold **do not be anxious**. We do not realize that worry is a manifestation of self-reliance. When we fret, we are not trusting in our Heavenly Father (John Strohman)
 
 
@@ -1875,6 +1928,8 @@ earned, to buy things they don't want, to impress people they don't like."
 
 
 ### Chapter 7
+
+6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
 7:1: We are not to **judge**? Some think we are never to judge anything as being right or wrong. Could Jesus really say that? Just look a little further (vv.15-20) and see that Jesus instructs us to judge the *fruit* in order to be able to identify false prophets. Also see Jn 7:24 (do not judge by appearance, but judge with righteous judgment). There is an eternal difference between self-righteous condemnation of another as compared with reproving a person with the desire of him coming into repentance (John Strohman)
 
