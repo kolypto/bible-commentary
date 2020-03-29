@@ -612,8 +612,6 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 
 5:1: A rabbi commonly **sat down** when he taught. If he spoke while standing or walking, what he said was considered to be informal and unofficial. But when he sat down, what he said was authoritative and official. (MacArthur)
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -659,8 +657,6 @@ But Jesus’ way was not any of those. To the Pharisees He said that true spirit
 
 5:2: “**opened His mouth**” was a common colloquialism used to introduce a message that was especially solemn and important. It was also used to indicate intimate, heartfelt, testimony or sharing. Jesus’ sermon was both authoritative and intimate; it was of the utmost importance and was delivered with the utmost concern. (MacArthur)
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -693,8 +689,6 @@ True blessedness is on a higher level than anything in the world. Here is a comp
 (MacArthur)
 
 5:3-12: The Beatitudes are not in random order, but lead to the other in logical succession: being poor in spirit reflects the right attitude we should have to our spiritual condition, which then should lead us to mourn, to be meek and gentle, to hunger and thirst for righteousness, to be merciful, pure in heart, and have a peacemaking spirit. A Christian who has all those qualities will be so far above the level of the world that his life will rebuke the world — which will bring persecution from the world and light to the world. (MacArthur)
-
-<p class="c2 c10">****</p>
 
 
 
@@ -754,8 +748,6 @@ Second, we must remove and avoid those things that promote pride. Being given pr
 5:3: (<u>The Result of Being Poor in Spirit</u>). Those who come to the King in this humility inherit His** kingdom of Heaven**. God has gladly chosen to give the kingdom to those who humbly come to Him and trust Him. 
 In giving up their own kingdom, the poor in spirit inherit God’s.
 (MacArthur) 
-
-<p class="c16 c10">****</p>
 
 
 
@@ -830,8 +822,6 @@ If our mourning is godly, we will grieve for the sins of fellow believers and fo
 The second way to determine if we have genuine mourning over sin is to check our sense of God’s forgiveness. Have we experienced the release and freedom of knowing our sins are forgiven? Do we have His peace and joy in our life? Can we point to true happiness He has given in response to our mourning? Do we have the divine comfort He promises to those who have forgiven, cleansed, and purified lives?
 (MacArthur)
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -877,8 +867,6 @@ The word **inherit** (kleronomeo) refers to the receiving of one’s allotted p
 
 5:5: (<u>the unrighteous</u>) “the unrighteous shall not inherit the kingdom of God” (1 Cor 6:9). The wicked and godless seem to prosper today, but that is for a time; God assured His people that “ In just a little while, the wicked will be no more; though you look carefully at his place, he will not be there. But the meek shall inherit the land and delight themselves in abundant peace.“ (Ps 37:10-11). Our responsibility is to trust the Lord and obey His will; and exactly in the right time and in the right way, He will settle the accounts. (MacArthur)
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -920,8 +908,6 @@ Jesus satisfies with a water drinking which a person would never thirst (Jn 4:14
 
 5:6: (<u>the testing of spiritual hunger</u>) There are several marks of genuine hunger and thirst for God’s righteousness. 1) Dissatisfaction with self. One who is pleased with his own righteousness will see no need for God’s. 2) Freedom from dependence on external things for satisfaction. Nothing but God’s own righteousness can satisfy the person who has true spiritual hunger and thirst. 3) Craving for the Word of God, the basic spiritual food He provides His children. The more we seek God’s righteousness, the more we will want to devour Scripture. 4) The pleasantness of the things of God. Even the Lord’s reproofs and discipline bring satisfaction, because they are signs of our Father’s love. 5) Genuine hunger is unconditional and will seek and accept God’s righteousness in whatever way He chooses to provide it, and will obey His commands no matter how demanding they may be. The least of God’s righteousness is more valuable than the greatest of anything we possess in ourselves or that the world can offer. 
 (MacArthur)
-
-<p class="c2 c10"></p>
 
 
 
@@ -993,8 +979,6 @@ Fourth, we are to show spiritual **mercy** by proclaiming the saving gospel of 
 As in other beatitudes, the emphatic pronoun *autos* (**they**) indicates that *only* those who are merciful qualify to **receive mercy** from God. But “judgment will be merciless to one who has shown no mercy” (Jas 2:13). “But if you do not forgive men, they your Father will not forgive your transgressions” (Mt 6:14-15).
 We do not earn salvation by being merciful. We must be saved by God’s mercy before we can truly *be* merciful.
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -1055,8 +1039,6 @@ God always provides for what He demands, and He has provided ways for us to live
 When our hearts are purified at salvation we begin to live in the presence of God. We begin to see and to comprehend Him with our new spiritual eyes. Purity of heart cleanses the eyes of the sould so that God becomes visible. 
 One sign of an impure heart is ignorance, because sin obscures the truth. Other signs of an impure heart are self-centeredness, pleasure in sin, unbelief, and hatred of purity. Those who belong to God exchange all of those things for integrity and purity.
 (MacArthur)
-
-<p class="c2 c10"></p>
 
 
 
@@ -1131,8 +1113,6 @@ Peacemaking is a hallmark of God’s children. A person who is continually disru
 
 5:9: **shall be called** is a continuous future passive tense: throughout eternity peacemakers will go by the name “children of God”. God’s children matter dearly to Him, and it is no little thing that we can call Him Father. (MacArthur)
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -1206,8 +1186,6 @@ The world can take away a great deal from God’s people, but it cannot take awa
 We serve and obey Christ first of all because we love Him, but secondly, it’s neither selfish nor unscriptural to do the Lord’s work for a motive that He Himself gives and has followed: for the reward.
 (MacArthur)
 
-<p class="c2 c10"></p>
-
 
 
 
@@ -1267,8 +1245,6 @@ Christ is the true light, and we are His reflections. He is the Sun, and we are 
 
 5:16: The purpose of being **salt **and **light** is to **glorify the Father**. When we do **good works**, they reveal the beauty the Lord has worked in us. To see the good works by us is to see Christ in us. Those good works is not something we create, but something we allow the Lord to do through us. This is the supreme calling of life: glorifying God. Everything we do is to cause others to give praise to the God who is the source of all that is good.
 But when what we do causes people to be attracted to us rather than to God, to see our human character rather than His divine character, we can be sure that what they see is not His light. (MacArthur)
-
-<p class="c16 c10"></p>
 
 
 
@@ -1440,8 +1416,6 @@ These examples deal with specific subjects of murder, sexual sin, divirce, speak
 In a less extreme way, the Jews of Jesus’ day had been separated from their Scriptures. Even though there was a Septuagint, it was bulky and expensive, and it was not used or understood by most Jews in Palestine. When it was read, most hearers understood little, and accepted whatever the leaders said.
 ANd most scribes and rabbis did not attempt to expound the scriptural text itself, but rather taught from the Talmud, an exhaustive collection of rabbinical traditions.
 (MacArthur)
-
-<p class="c10 c16"></p>
 
 
 
@@ -1798,34 +1772,47 @@ Jesus did not quote scripture, but taught, placing an emphasis on His authority 
 
 ### Chapter 6
 
+#### Giving to the Needy
+
 6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
-6:1: Most people do good deeds so others will think well of them. Some may disagree and claim they do things because it gives them a good feeling inside. They do not realize that in getting that "good feeling" they are still doing good works for an audience who they want to think well of them (the audience is themselves). They want to have the satisfaction of viewing themselves as very altruistic people. Others think that by doing something good they can offset some bad thing they have done. In neither case are they doing service to solely glorify God. (John Strohman)
+6:1: **to be noticed**. Most people do good deeds so others will think well of them. Some may disagree and claim they do things because it gives them a good feeling inside. They do not realize that in getting that "good feeling" they are still doing good works for an audience who they want to think well of them: the audience is themselves. They want to have the satisfaction of viewing themselves as very altruistic people. Others think that by doing something good they can offset some bad thing they have done. In neither case are they doing service to solely glorify God. (John Strohman)
 
 6:2: **Hypocrisy** is not the Christian's attitude. The Christian does good works out of love for God and is not interested in getting congratulated by others. (John Strohman)
 
-6:2: Some people say they actually did have a little silver **trumpet**. I think Calvin thinks they did. They had a little silver trumpet and he used to go in the streets and the synagogues, not the temple, because this was not the – the temple giving. But this was the – the giving to the needy at the synagogue and the – and the streets, as it indicates there, just in the course of life. And they would blow a little silver trumpet. And it was kind of like all you poor, come one come all, your great benefactor has arrived. And all the poor would come at the blowing of the little trumpet and the guy would start doling out the money.
-We have our own little trumpets. We want to let people know we gave. We go home to our wife and then say, “Boy, what I’ve done for him, you’d think that he could treat me a little different.” And we – we want to find somebody that we can tell. It’s just that we want our little trumpet. We don’t want a big trumpet, just a little trumpet. And then we get appeals from Christian organizations, if you will give us money we’ll send you a certificate for your wall. Now that is a trombone, folks. And then if you want a tuba, you can get a plaque. You can just – you can have a whole band in your office blowing all over the place. You can be a member of the inside group. See?
+6:2: **Trumpet**. Some people (Calvin?) say they actually did have a little silver **trumpet**, and they used to go in the streets and the synagogues, and they would blow that little silver trumpet. And it was kind of like "all you poor, come one come all, your great benefactor has arrived". And all the poor would come at the blowing of the little trumpet and the guy would start doling out the money.
+We have our own little trumpets. We want to let people know we gave. We go home to our wife and then say, “Boy, what I’ve done for him, you’d think that he could treat me a little different.” And we want to find somebody that we can tell. It’s just that we want our little trumpet. We don’t want a big trumpet, just a little trumpet. 
+And then we get appeals from Christian organizations, if you will give us money we’ll send you a certificate for your wall. Now that is a trombone, folks. And then if you want a tuba, you can get a plaque. You can have a whole band in your office blowing all over the place. 
 (MacArthur)
 
-6:2: And if I read the Bible properly, I’m going to take any reward that I would ever get – and so will you – and cast it at His feet in adoration and praise. And I should seek to have a reward if for no other reason that I might show Him my love in giving Him all that I have. But there are rewards. Would you notice the promise of reward in verse 1? It says, “If you do your righteousness before men to be seen, you have no reward of your Father who’s in heaven.” All right? Verse 2, “If you blow your trumpet and do your thing so that everybody can see, verily I say unto you they have their reward.” Now, in verse 1, it says you have no reward and in verse 2 it says they have their reward. Now do you do or do you don’t?
-The point is simple. You have a reward in verse 2, but it is not from your Father who is in heaven. Who’s it from? Well, who did you want it from? Who were you doing your thing for? For men, right? You get your reward. They saw it, that’s it. That’s it. The key is your Father who’s in heaven. You get an earthly reward, not a heavenly one. You get something from men and nothing from God. You forfeit that. If you’re an actor on a stage, if you’re hupokritēs, if you're just doing your thing for the applause of men, what you get is the applause of men. That’s it.
+6:2: **Reward**. Notice in v.1 that if you boast, you have no reward from God, but in v. 2 **they have their reward**. This v.2 reward is not from your Father who is in heaven. 
+Who’s it from? From those you were doing this thing for: from men. If you’re an actor on a stage, if you’re hupokritēs, if you're just doing your thing for the applause of men, what you get is the applause of men. That’s it. You get an earthly reward, not a heavenly one. You get something from men and nothing from God.
 (MacArthur)
 
-6:3: There is a very big difference between your good works glorifying you as compared to your good works getting others to glorify God. Mt 5:16 teaches that our good works should *glorify God*, not us.  If you are told that something you did was very kind, you should tell that person you did it because you are Christian. This will inform him that your motivation is from Christ and not of your own goodness. The end result will be that Christ is glorified and not yourself. At that moment you should also look for an opportunity to witness to him about salvation in Christ. (John Strohman)
-
-6:3: Did you know that in the Apocrypha, for example in Tobit chapter 12, verse 8, it says “It is good to do alms rather than treasure up gold for alms deliver from the death and this will purge away every sin”? The Jews actually taught that they would purge away their sins by giving money to the needy. That’s how far they’ve gone. In Sirach 3:30 it says, “Alms will atone for sin.” I found several quotes out of the Talmud. “Alms giving is more excellent than all offerings and is equal to the whole law.” “Alms giving will deliver from the condemnation of hell and make one perfectly righteous.”
-Now, that’s going a little far, isn’t it? They believed you could get perfectly righteous by giving your money. You see that’s why the Jews believed that the richer you were, the easier it was to get in the kingdom, because you bought your way in. And so, when Jesus said it’s harder – it’s easier for a camel to go through the eye of a needle than a rich man to get into heaven, it devastated their whole conception, see? Because they thought the rich could buy their way in easy because purging of sin came from giving away money.
-By the way, the Roman Catholic Church picked this up. Leo the Great said this, “By prayer we seek to appease God. By fasting we extinguish the lust of the flesh and by alms we redeem our sins.” By the way, the Pope who just visited America believes that. That’s part of the system. They made it a saving element. And then they made it an element for piosity. Boy, they really put it on as a big display. And Jesus goes right by all of that stuff on the outside and says the only thing God cares about is your heart, not what you did, but why you did it. See? Two people doing the same thing, giving money to a poor man. Why did they do it makes the difference.
+6:2: **Hypocrites give to the needy** to do good works. 
+Did you know that in the Apocrypha, for example in Tobit 12:8, it says “It is good to do alms rather than treasure up gold, for *alms deliver from the death and this will purge away every sin*”? The Jews actually taught that they would purge away their sins by giving money to the needy. That’s how far they’ve gone. 
+In Sirach 3:30 it says, “Alms will *atone for sin*.” 
+I found several quotes out of the Talmud. “Alms giving is more excellent than all offerings and *is equal to the whole law*.” “Alms giving *will deliver from the condemnation of hell and make one perfectly righteous*.”
+Now, that’s going a little far, isn’t it? They believed you could get perfectly righteous by giving your money. You see that’s why the Jews believed that the richer you were, the easier it was to get in the kingdom, because you bought your way in. And so, when Jesus said "*it’s easier for a camel to go through the eye of a needle than a rich man to get into heaven*", it devastated their whole conception, see? Because they thought the rich could buy their way in easy because purging of sin came from giving away money.
+By the way, the Roman Catholic Church picked this up. Leo the Great said this, “By prayer we seek to appease God. By fasting we extinguish the lust of the flesh and *by alms we redeem our sins*.” By the way, the Pope who just visited America believes that. That’s part of the system. They made it a saving element. And then they made it an element for piosity. 
+Boy, they really put it on as a big display. And Jesus goes right by all of that stuff on the outside and says the only thing God cares about is your heart, not what you did, but why you did it. See? Two people doing the same thing, giving money to a poor man. Why did they do it makes the difference.
 (MacArthur)
 
-6:3: But there is a reward for those who give out of a right heart. Verse 3 tells about it. “But when thou doest alms,” – mercy giving – “let not thy left hand know what thy right hand doeth.” That’s a funny statement, isn’t it? People have wondered about that. It’s a funny statement. Some believe it was a Proverb of the time for doing things so spontaneously that you didn’t really think about them and I agree with that. It’s as if you’re walking along – and the right hand was usually the active hand, most people being right-handed.
-You’re walking along the street and here’s somebody with a need. And without a long process of calculation, without a lot of thought and analysis and checking out your bank book or whatever. Here’s a need and you just reach in and you slip it over there. And your left hand which is down here by your left hip doesn’t even know what’s happening. That’s the idea.
-Hebrews used to speak in very graphic and physical terms. And the left over here on this side wouldn’t even know what the right hand is doing. I mean it’s not as if you’re stopping and saying now let me think about this. Let me calculate how much and you just – boom! It’s spontaneous, it’s free, it’s uninhibited. It’s based on the compassion and the mercy of the moment. The left hand isn’t even aware of it. And that’s the essence of what he’s saying. The normally active right hand passes a – a needy person, stretches out so lively, so quickly. So easily does the right hand meet the need and your left hand never even knows what’s going on.
-And you know what’s kind of nice about it too? If the left hand doesn’t know, the left hand can’t get involved. And it’s very hard to clap with one hand. Have you ever tried to do that? It’s very difficult. The left hand isn’t going to say a thing. The idea is the freedom and the spontaneity without calculating it. Just give it. You say, “But what am I going to do to make sure? The Lord will bless. I’ll tell you. I—I personally – I don’t – this is not a biblical – personally giving to the church is a great blessing, and systematically and weekly we do that. But the greatest blessing to me is that right hand thing that the left hand never knows about. That to me is the biggest joy, to just give and not even think about how much or can you, you know, can you afford it. You just respond to the need.
+6:3: <u>Is your almsgiving glorifying you, or God</u>? There is a very big difference. Mt 5:16 teaches that our good works should *glorify God*, not us.  If you are told that something you did was very kind, you should tell that person you did it because you are Christian. This will inform him that your motivation is from Christ and not of your own goodness. The end result will be that Christ is glorified and not yourself. This is a witness to Christ. (John Strohman)
+
+
+6:3: **Reward**. There is a reward for those who give out of a right heart. In v.2 it went "*they received their reward*". **But**, Jesus goes on, and this says that if you do it differently, you'll have a different result. A reward. 
+
+6:3: **Do not let your left hand know what your right hand is doing**. Some believe it was a Proverb of the time for doing things so spontaneously that you didn’t really think about them. 
+You’re walking along the street and here’s somebody with a need. And without a long process of calculation, without a lot of thought and analysis and checking out your bank book or whatever. Here’s a need and you just reach in and you slip it over there.
+It’s spontaneous, it’s free, it’s uninhibited. It’s based on the compassion and the mercy of the moment. The left hand isn’t even aware of it. And that’s the essence of what he’s saying. The right hand was usually the active hand, and it gives easily. And your left hand which is down here by your left hip doesn’t even know what’s happening.
+And you know what’s kind of nice about it too? If the left hand doesn’t know, the left hand can’t get involved. The left hand isn’t going to say a thing. The idea is the freedom and the spontaneity without calculating it. Just give it. 
+You say, “But what am I going to do to make sure?" The Lord will bless. And there is a big joy to just give and not even think about how much or can you afford it. You just respond to the need.
 (MacArthur)
 
-6:3: Besser said that the temple had a special place where the bashful benefactors, he called them, could come. They wanted to give to the poor, but they were bashful. And so, they would just come and they would just put money there. And then there were the bashful poor, who didn’t want to ask, and the bashful poor would come in in another place and they would take what they needed. And the name of the place was Silence. Silence. I love that. Nothing to be said, just needs to be met. (MacArthur)
+6:4: **In secret**. Besser said that the temple had a special place where the 'bashful benefactors', he called them, could come. They wanted to give to the poor, but they were bashful. And so, they would just come and they would just put money there. And then there were the bashful poor, who didn’t want to ask, and the bashful poor would come in in another place and they would take what they needed. And the name of the place was Silence. Silence. I love that. Nothing to be said, just needs to be met. (MacArthur)
+
+#### The Lord's Prayer
 
 6:5: These verses continue the theme Jesus set out in previous sections. The point is that our relationship with God is not built on external actions but our heart attitude while doing external actions (or private actions for that matter). (John Strohman)
 
@@ -1835,7 +1822,11 @@ And you know what’s kind of nice about it too? If the left hand doesn’t know
 
 6:9: "Prayer will make a man cease from sin, or sin will entice a man to cease from prayer" (John Bunyan)
 
+#### Fasting
+
 6:16: The Pharisees saw **fasting** as an opportunity to get the approval of others who saw them. This is the same attitude they had about prayer. It was all external appearances. False humility is actually pride, and worthless in the sight of God (John Strohman)
+
+#### Lay Up Treasures in Heaven
 
 6:19: Our view should be that material things and daily provisions are not to be looked upon with either greed or fear of lack. They are both under the sovereign hand of God, who will provide for us. (John Strohman)
 
@@ -1871,6 +1862,8 @@ earned, to buy things they don't want, to impress people they don't like."
 6:22: A **clear **eye was literally a healthy eye, but figuratively also an eye that looked on others generously (Sirach 32:8). An "evil eye," conversely, was a stingy, jealous or greedy eye; yet it also signifies here a bad eye. In Greek, Jesus uses the word "single", in the sense of it being "perfect", which acts as a transition to his next point, for the "single" eye is literally undivided: thus one is not divided between two masters, as the text goes on to explain (v. 24). Therefore, the meaning of the verse is: if we value material possessions, it will blind us to the truth of our disobedience and affect our whole relationship with God. (IVP)
 
 6:23: Jesus discusses the importance of not suffering from spiritual blindness. The tragedy is that the Son's victim does not even know he is blind. As he continues down the road of destruction, the blindness will manifest itself when he no longer hides his sin but openly defends it. (John Strohman)
+
+#### Do Not Be Anxious
 
 6:25: A threefold **do not be anxious**. We do not realize that worry is a manifestation of self-reliance. When we fret, we are not trusting in our Heavenly Father (John Strohman)
 
@@ -2124,6 +2117,7 @@ You get yourself into a position where God can use you, and the greater the pote
 
 ### Chapter 19
 
+19:24: See note on 6:4, where it explains that Jews believed giving alms saves the soul. Consequently, it was easier for the rich to get into heaven.
 
 
 

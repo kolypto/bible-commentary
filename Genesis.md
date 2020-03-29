@@ -1623,6 +1623,10 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 
 
 ### Jacob Flees from Laban
+31:
+
+
+
 ### Jacob Fears Esau
 ### Jacob Wrestles with God
 ### Jacob Meets Esau
