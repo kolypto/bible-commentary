@@ -1770,6 +1770,30 @@ Jesus did not quote scripture, but taught, placing an emphasis on His authority 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 6
 
 6:1-18: (<u>the flow of the Sermon on the Mount</u>) Mt 5:21-48 focuses on *the teaching* of the law: on what men believe; the following verses of 6:1-18 focus on *the practice* of the law, what men do. 
@@ -1779,6 +1803,8 @@ The three representative illustrations that Jesus considered: our religion as it
 
 
 #### Giving to the Needy
+
+6:1: **чтобы заметили**. "Вот две женщины моют пол. Одна для того, чтобы 15-го получить зарплату, а вторая, чтобы было чисто.". Пётр Мамонов.
 
 6:1: **to be noticed**. Most people do good deeds so others will think well of them. Some may disagree and claim they do things because it gives them a good feeling inside. They do not realize that in getting that "good feeling" they are still doing good works for an audience who they want to think well of them: the audience is themselves. They want to have the satisfaction of viewing themselves as very altruistic people. Others think that by doing something good they can offset some bad thing they have done. In neither case are they doing service to solely glorify God. (John Strohman)
 
