@@ -2260,6 +2260,8 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 ### Chapter 26
 
+26:17: **Passover**. В еврейской традиции, Пасху можно было отмечать в день пасхи, днём ранее, или через месяц. Иисус решил отметить её со своими учениками на день ранее, чтобы быть закланным в сам праздник Пасхи. (Андроник Пантак)
+
 26:26: Евангелисты не передают нам, какими именно словами Иисус благословляет хлеб. Понятно, почему они этого не делают: просто потому, что слова, завершающие пасхальную субботнюю трапезу, знал любой ребенок Израиля: «Благословен Ты, Господи Боже наш, Царь вселенной, Ты, питающий весь мир Твоею благостью, Твоею благодатью, Твоим милосердием и благоутробием Твоим. Ты даруешь всякой плоти ее пищу, ибо Твое милосердие пребывает вовек. Твоею великою благостию нам никогда не было недостатка в пище; да не будет у нас никогда недостатка в ней, ради любви к великому Имени твоему, ибо Ты хранишь и поддерживаешь все живущее, творишь добро всем и посылаешь пищу всему, что Ты создал. Благословен Ты, Господи, дающий всем нам пищу! Благодарим Тебя, Господи, за то, что Ты дал отцам нашим в наследие землю обширную, добрую и вожделенную, и за то, что Ты вывел нас, Господи, Боже наш, из земли Египетской, из дома рабства, а равно и за завет Твой, который Ты запечатлел в нашей плоти…» (Протестантам о Православии)
 
 26:28: In Ex 24:8, "Moses took the **blood** and threw it on the people and said, "Behold the blood of the **covenant** that the Lord has made with you". Jesus uses the same words when making a new covenant with His Own blood. While fulfilling an ancient rite, our Savior has established a new rite.
@@ -2287,3 +2289,5 @@ What does it say about their religion?
 ### Chapter 27
 
 27:51: Geological evidence for the earthquake:”We have tabulated a varved chronology from a core from Ein Gedi on the western shore of the Dead Sea between deformed sediments due to a widespread earthquake in 31 BC and deformed sediments due to an early first-century earthquake. The early first-century seismic event has been tentatively assigned a date of 31 AD with an accuracy of ±5 years.” [https://christianity.stackexchange.com/q/14153/43703](https://www.google.com/url?q=https://christianity.stackexchange.com/q/14153/43703&amp;sa=D&amp;ust=1582399365459000)
+
+27:59: **Joseph took the body**. Коснувшись мёртвого тела, Иосиф стал нечист, и потому не мог продолжать отмечать пасху. Столкнувшись с выбором между милостью к человеку и религиозной традицией, Иосиф сознательно выбирает милость. (Андроник Пантак)
