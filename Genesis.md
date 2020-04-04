@@ -1488,6 +1488,8 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:21: **I may go in to her**. They had no sexual relations so far. It's been seven years already.
 
+29:23: **Took Leah**. In Gen 31:15 we learn that none of the girls was happy with what their father has done. They called it "he has sold us".
+
 29:23: **Took Leah**. Darkness in a world without artificial lighting can be pitch-black. At this stage, Jacob did not realize that Leah was the bride. She may also have come to him wearing a veil, the sign of a betrothed woman. (ESV)
 
 29:25: **It was Leah**. How come Jacob didn't notice the substitution? He must have known Rachel well enough to recognize. Probably, either Jacob was drunk, or Leah didn't talk at all. Perhaps, Laban made sure that Jacob drank too much, or he instructed Leah to keep quiet. Or perhaps, Leah had herself put her eye on Jacob? It's not clear.
@@ -1587,7 +1589,7 @@ From Rachel: **Joseph**: "take away".
 ### Jacob's Prosperity
 30:25: **As soon as Rachel had borne Joseph**. That would be 14 years into their marriage, because this is how much Jacob had agreed to serve. Interesting coincidence? well... unless Jacob is trying to leave sooner than it was agreed.
 
-30:27: **learned by divination**. In this case it probably does not refer to a pagan practice, but to a godly practice of inquiring the Lord. In the OT, people would go to seers, or use objects (urim and thummin, Joseph's divination cup) to learn the truth from the spiritual world.
+30:27: **learned by divination**. Laban had *household gods* (Gen 31:19), so this divination was a pagan practice. He probably perceived that "The Lord" was one of the many deities. 
 
 30:27: **learned by divination**. The Israelites were later prohibited by God from practicing divination (Dt 18:10) because it sought to provide knowledge by inappropriate methods (e.g., interpreting omens, using supernatural powers). Laban’s use of divination is sinful, even though the information obtained is accurate. (ESV)
 
@@ -1596,6 +1598,8 @@ From Rachel: **Joseph**: "take away".
 30:27: **The Lord has blessed me because of you**. In Genesis, all the members of the special line descended from Abraham are portrayed as mediating God’s blessing to others. (ESV)
 
 30:28: **Name your wages, and I will give it**. Laban's initial readiness is actually completely hypocritical. Laban is actually reluctant to lose Jacob’s service, which has brought him considerable wealth. Read on.
+
+30:28: **Name your wages**. Later we learn that Laban was a very stingy person who cheated Jacob and mistreated his own daughters not only when giving them away in marriage, but also afterwards (Gen 31:15: "he has sold us and he has indeed devoured our money").
 
 30:28: **Name your wages**. For 14 years Jacob has served Laban in order to pay the bride-price for Leah and Rachel. Having fulfilled this obligation, which has financially benefited Laban well beyond what he might have expected, Jacob now wants to provide for his own household. Laban, conscious of how Jacob has enriched him and eager to retain his services, asks Jacob to name his wages for remaining with him. (ESV)
 
@@ -1623,7 +1627,67 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 
 
 ### Jacob Flees from Laban
-31:
+31:1-2: **Jacob has taken all**, **Laban did not regard him with favor**. Jacob’s growing wealth becomes a source of friction within Laban’s family. Even Laban’s own attitude toward Jacob changes. (ESV)
+
+31:1: **The sons**. Laban had other children, and they started to slander Jacod that **he has taken** something from their father; consequently, from them. What was it? The spotted cattle? But Jacob foresaw that when he made the agreement. Probably, he knew the family too well after all these years.
+
+32:2: **Laban did not regard him with favor**. As soon as Jacob ceased working to multiply Laban's possessions, his attitude changed. Laban understood that he had been only *blessed because of Jacob* (Gen 31:27), but still this understanding didn't stop the heart from evil. He was envious.
+
+31:3: **The Lord said**. It's unclear whether Jacob communed with God during all those years, because it's not mentioned. God, however, blessed Laban because of him.
+
+31:3: **I will be with you**. This is a great promise of divine blessing and protection. 
+Jacob could have had his doubts because of a) Laban, b) the multitude of cattle, c) his wives and children, d) the long journey, e) he's lived here for 14 years! But after hearing  Jacob could just pack up and leave on a long journey home. No more doubts.
+
+31:5: **God has been with me**. In saying this, Jacob acknowledges that the events of his life depended on God all these years. Probably, he's learned a number of lessons, including humility -- when seeing that Laban's household is blessed, and then he saw how God has suddenly made him prosperous.
+
+31:6: **I have served your father with all my strength**. That's one of the lessons he's learned. 14 years ago he used to take advantage of people; now he learned to serve faithfully. Must've been a hard lesson; how did he learn it?
+
+31:7: **Your father has cheated me**. Jacob got back what he sowed: he can now experience cheating first hand, and probably learn another lesson: how it feels like when you're cheated.
+
+31:8: **If he said**. Jacob explains that if it is God's plan for him to prosper, then whatever a person says or does, the plan will still be fulfilled regardless.
+
+31:9: **Given them to me**. How does it feel like to have almost nothing, working for a wealthy person for 14 years, see how his (not yours) possessions multiply, and still work faithfully for him to manage *his* economy... and then, after all these years, to discover that God actually meant to give it all to you from the very beginning? Wow.
+
+31:12: **For I have seen all that Laban is doing to you**. God, speaking through the angel, says the words He usually addresses to a person afflicted by others. God comes to right the wrong: to take the possessions from Laban and give it to Jacob.
+It seems that Laban still has a lot: all the white cattle is his, at least; and those spotted ones he has hidden.
+
+31:13: **God of Bethel**. At Bethel, God had promised to be with Jacob (Gen 28:15: "Behold, I am with you and will keep you wherever you go, and will bring you back to this land."). Some 20 years later, Jacob acknowledges God’s faithfulness (v. 5: "God has been with me"). (ESV)
+
+31:13: **You made a vow to me**. A reminder to fulfill his vows? A note that that time is right?
+
+31:14: **Rachel an Leah**. For once, they've agreed on something.
+
+31:14: **Is there any inheritance left in our father's house?**. They both are fed up with their stingy father as well.
+
+31:15: **Regarded as foreigners**. His own daughters.
+
+31:15: **Sold us, devoured our money**. Only now we see what Leah and Rachel thought about that strange wedding. They didn't like the actions of their father at all.
+
+31:16: **Whatever God has said to you, do**. When making tough decisions, it's very important to have support from your loved ones.
+
+31:18: **To his father Isaac.** Jacob wouldn't know whether his father was still alive or not.
+
+31:19: **Laban had gone to shear his sheep**. Fearful that Laban will prevent him from leaving Paddan-aram, Jacob escapes when his father-in-law is away shearing sheep. (ESV)
+
+31:19: **His sheep**. This verse tells us that God has not taken *everything* from Laban, but only a portion. It's clear that Laban's bad attitude was based on envy, not on need.
+
+31:19: **Rachel stole her father's household gods.** Why? 
+a) She took them as an act of vengeance because she knew they mattered to Laban; b) because they were valuable, and she was frustrated over Laban robbing her of inheritance (v. 15);
+c) perhaps she believed that this would prevent him from using their power to overcome Jacob (divination); 
+d) possibly she thought that they would bring her good fortune; but unlikely, because she worshipped the Lord.
+
+31:19: **Household gods.** This tells us about Laban's religion. He was a pagan. 
+
+31:19: **Household gods** (Hb. *terapim*) is mentioned frequently in the Bible, but knowledge of these objects is vague. Since in v. 30 Laban refers to them as "gods", they may have been small figurines depicting particular gods. (ESV) 
+
+31:20: **Not telling him that he intended to flee**. Such an act would definitely insult and outrage Laban. That's why it says in Hebrew, literally, "stole the heart of Laban".
+
+31:19-20: **Rachel stole... Jacob stole**. Rachel stole Laban's gods, and Jacob stole his heart.
+
+31:21: **Gilead**. That's several hundred kilometers south from Paddan-Aram.
+
+31:22: 
+
 
 
 
