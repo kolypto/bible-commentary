@@ -1885,11 +1885,72 @@ You say, “But what am I going to do to make sure?" The Lord will bless. And th
 
 #### The Lord's Prayer
 
-6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
+6:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus continues His contrast of true and false righteousness. He exposed the hypocritical giving, will expose their hypocritical fasting, and now He exposes an equally hypocritical praying, as typified by the scribes and Pharisees. (MacArthur)
 
-6:5: These verses continue the theme Jesus set out in previous sections. The point is that our relationship with God is not built on external actions but our heart attitude while doing external actions (or private actions for that matter). (John Strohman)
+6:5: (<u>Calvinist and Arminian view on prayer</u>) **Pray**. None of us can comprehend how prayer functions within the infinite mind and plan of God. Two extreme views:
+<u>Calvinist view</u>: God is sovereign, and He works according to His perfect will regardless of the way we pray. Prayer is nothing more than tuning in to God's will; a way of lining up with God regarding what He has already determined to do.
+<u>Arminian view</u>: God's actions pertaining to us are determined largely on the basis of our prayers. Prayer is beseeching God to do what He otherwise would not do.
+Scripture supports both views and holds them in tension: it declares God's absolute sovereignty, but it also calls on His people to beseech Him in prayer. It is not possible to fathom what makes prayer effective.
+(MacArthur)
 
-6:5: The primary concern of the Pharisees was for others to see them engaging in religious acts. Their view of prayer was that it could be used as a vehicle to have others think well of them. **They have their reward in full**: They have achieved their goal, but their prayers were of no spiritual benefit, and will not be heard nor answered, since they did not pray in faith (John Strohman)
+6:5: **They pray.** No other race or people has ever been so favored by God or had such direct communication with Him. Of all people, they should have known how to pray. But they did not. (MacArthur)
+
+6:5: (<u>Errors in the rabbinic tradition</u>) **They pray.** Over the years, a number of faults have crept into Jewish prayer life. <cut />
+1. Prayer had become ritualized: the wording and forms of prayer were set, and were then simply read or repeated from memory. Such prayers could be given with almost no attention being paid to what was said. They were a routing, semiconscious religious exercise.
+A faithful Jew would recite [Dt 6:4-9, then Dt 11:13-21, then Num 15:37-41](https://www.esv.org/Deuteronomy+6:4%E2%80%939;Deuteronomy+11:13%E2%80%9321;Numbers+15:37%E2%80%9341/). Another formalized prayer was [the Amidah (or the Shemoneh Esreh)](https://en.wikipedia.org/wiki/Amidah), which embodied 18 prayers. Each morning, afternoon, and evening, at the appointed time, the devout Jew would stop what he was doing and offered one appropriate prayer from it.
+Some people prayed it honestly, with a worshipful heart. Others went through the ritual as fast as possible, in order to finish. Some Pharisees used it as an opportunity to parade their piosity.
+2. There were prescribed prayers for every object an occasion: light, fire, rain, new moon, travelling, good news, bad news, and so on. No doubt the original intention was to bring every aspect of life into the presence of God, but by making the prayers prescribed and formalized, that purpose was undermined.
+3. Prayer was limited to specific times and occasions. 
+4. Long prayers were esteemed, believing that its sanctity and effectiveness depended on its length. Ancient rabbis maintained that the longer the prayer, the more likely it would be heard. Length was confused with sincerity.
+5. Meaningless repetitions, patterned after those of pagan religions. Jews often added adjective after adjective  before God's name in their prayers.
+6. The worst fault was that of wanting to be seen and heard by others. While other faults are not necessarily wrong in themselves, this one is intrinsically evil, because it came from pride, and was intended to satisfy pride.
+(MacArthur; quoting William Barclays) 
+
+6:5: **Be not like the hypocrites**. Prayer that focuses on self is always hypocritical, because, by definition, the focus of every prayer should be on God. But the purpose of a hypocrite is to attract attention and bring honor to themselves. (MacArthur)
+
+6:5: **Hypocrites**. The greatest danger to religion is when a person does not change, but simply becomes religious. The old nature in religious wrappings. (MacArthur)
+
+6:5: **Street corners**. Unlike v. 2, where the word *rhume* refers to a narrow street, the *plateia* here refers to a wide street. (MacArthur)
+
+6:5: **Street corners**. There was nothing wrong with praying in the street if that was where you happened to stop at the time for prayer. But something's very much wrong if you *planned* to be there at prayer time. This is probably what Jesus talks about. (MacArthur)
+
+6:5: **That they may be seen.**. The primary concern of the Pharisees was for others to see them engaging in religious acts. Their view of prayer was that it could be used as a vehicle to have others think well of them. **They have their reward in full**: They have achieved their goal, but their prayers were of no spiritual benefit, and will not be heard nor answered, since they did not pray in faith (John Strohman)
+
+6:5: **That they may be seen.** The real evil was not the place, but the desire to display themselves. They preferred to pray in those places where the largest audiences were. (MacArthur)
+
+6:5: **They have received their reward**. This tells us that God is not going to heed such a prayer.
+
+6:6: **Shut the door**. Some believers overreact and renounce all public prayer, but Jesus taught no such thing: He Himself often prayed in the presence of His disciples, and blessed the food in public. Scripture also records many public prayers that were entirely appropriate and sincere. (MacArthur)
+
+6:6: **Go into your room**. Unlike the public prayer of the hypocrites, go to the most private place you can find so you will not be tempted to show off. Do whatever you have to get your attention away from yourself and others. (MacArthur)
+
+6:6: **In secret**. Jesus regularly went away from His disciples to pray entirely alone, and so much of our prayer life should be. (MacArthur)
+
+6:6: **In secret**. Jesus' point has to do with the singleness of intention. True prayer is always intimate. Even prayer in public, the heart should be right and concentrated on God. (MacArthur)
+
+6:6: **In secret**. Chrysostom reported that in his day (the 4-th century A.D.) many Christians prayed so loud in their rooms that everyone down the hall heard what they said :D (MacArthur)
+
+6:6: **Your Father who sees in secret**. These verses continue the theme Jesus set out in previous sections. The point is that our relationship with God is not built on external actions but our heart attitude while doing external actions (or private actions for that matter). (John Strohman)
+
+6:6: **Sees in secret**. The most important secret He sees is not the words we say, but the thoughts we have in the privacy of our heart. Those are the secrets with which God is supremely concerned. (MacArthur)
+
+6:6: **Will reward you**. When God is genuinely the audience of our prayer, we will have the reward only He can give. He will bless those who come to Him in sincerity. Jesus gave no idea as to what reward is in view. (MacArthur)
+
+6:7: **Heap up empty phrases** (Gk. battalogeo: idle, thoughtless chatter). Although it does not always involve hypocrisy, it always involves a wrong attitude. Such people are simply indifferent to real communion with God. (MacArthur)
+
+6:7: **Repetition** may be used by people 1) to display piety; 2) because others taught they so; 3) because it's easy and demands little concentration. (MacArthur)
+
+6:7: **Empty phrases**. To be acceptable to God, prayers must be genuine expressions of worship and of heartfelt petitions. (MacArthur)
+
+6:7: **They will be heard for their many words**. The Jews had picked up the practice from Gentiles, or their practice had not more effect than that of the Gentiles. 
+
+6:7: **As the Gentiles do**. The Gentiles thought that you had to appease and persuade a God to help you, or even to intimidate or irritate. (MacArthur)
+
+6:7: **Repetition**. Again, Jesus did not forbid the repetition of genuine requests. See Lk 18:2-7: The Parable of the Persistent Widow. Paul prayed three times about the thorn (2 Cor 12:7-8). Jesus cried out three times about the cup (Mt 26:39-44). It is only mindless, indifferent recital that is wrong. (MacArthur)
+
+6:8: **Your Father knows what you need**. "By our praying ... we are instructing ourselves more than we are Him" (Martin Luther). The purpose of our prayer is not to inform God, but to come before Him sincerely, purposely, consciously, and devotedly. (John Stott) (MacArthur; quoted)
+
+6:8: **Your Father knows what you need**. To pray rightly is to pray with a devout heart and with pure motives. With a single attention to God. And with a sincere confidence that He both hears and answers every request made to Him in faith. He always repays our sincere devotion with gracious response. If our request is sincere but not according to His will, He will answer in a way better than we want or expect. But He will always answer. (MacArthur)
 
 6:9-13: Jesus gave us an outline. 9. In reverent praise. 10. For the coming **kingdom**. 11. For **daily** provision. 12. For spiritual protection by being **deliver**ed **from evil**. 13. For **forgive**ness of our sins, for the forgiveness of others. (John Strohman) 
 
