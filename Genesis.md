@@ -1586,6 +1586,9 @@ From Rachel: **Joseph**: "take away".
 
 
 
+
+
+
 ### Jacob's Prosperity
 30:25: **As soon as Rachel had borne Joseph**. That would be 14 years into their marriage, because this is how much Jacob had agreed to serve. Interesting coincidence? well... unless Jacob is trying to leave sooner than it was agreed.
 
@@ -1622,25 +1625,30 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 
 30:41: **The stronger of the flock were breeding**. This is an example of the principle of genetical inheritance in the Bible. Strong genes + strong genes = strong animal. That's the basics of animal breeding.
 
+30:43: **The man increased greatly**. After working for 14 years for his two wives, Jacob would now work 6 years for himself (Gen 31:41: "twenty years"). From Jacob's speech in Gen 31:36-42 we learn that he's worked faithfully, suffered loss, suffered injustice from the hands of Laban, had his wages cut, and still worked faithfully. A blameless person he's been made into.
+
 30:43: **Female servants and male servants**. It's unclear where those servants came from. When Jacob arrived to Paddan-Aram, he only had his staff with him (Gen 32:10: "with only my staff I crossed this Jordan"; staff = walking stick). Was he given more servants? Were they born to Bilnah and Zilpah?
+
+
+
 
 
 
 ### Jacob Flees from Laban
 31:1-2: **Jacob has taken all**, **Laban did not regard him with favor**. Jacob’s growing wealth becomes a source of friction within Laban’s family. Even Laban’s own attitude toward Jacob changes. (ESV)
 
-31:1: **The sons**. Laban had other children, and they started to slander Jacod that **he has taken** something from their father; consequently, from them. What was it? The spotted cattle? But Jacob foresaw that when he made the agreement. Probably, he knew the family too well after all these years.
+31:1: **The sons**. Laban had other children, and they started to slander Jacob that **he has taken** something from their father; consequently, from them. What was it? The spotted cattle? But Jacob foresaw that when he made the agreement. Probably, he knew the family too well after all these years.
 
 32:2: **Laban did not regard him with favor**. As soon as Jacob ceased working to multiply Laban's possessions, his attitude changed. Laban understood that he had been only *blessed because of Jacob* (Gen 31:27), but still this understanding didn't stop the heart from evil. He was envious.
 
 31:3: **The Lord said**. It's unclear whether Jacob communed with God during all those years, because it's not mentioned. God, however, blessed Laban because of him.
 
 31:3: **I will be with you**. This is a great promise of divine blessing and protection. 
-Jacob could have had his doubts because of a) Laban, b) the multitude of cattle, c) his wives and children, d) the long journey, e) he's lived here for 14 years! But after hearing  Jacob could just pack up and leave on a long journey home. No more doubts.
+Jacob could have had his doubts because of a) Laban, b) the multitude of cattle, c) his wives and children, d) the long journey, e) he's lived here for 20 years (Gen 31:41: "twenty years")! But after hearing  Jacob could just pack up and leave on a long journey home. No more doubts.
 
 31:5: **God has been with me**. In saying this, Jacob acknowledges that the events of his life depended on God all these years. Probably, he's learned a number of lessons, including humility -- when seeing that Laban's household is blessed, and then he saw how God has suddenly made him prosperous.
 
-31:6: **I have served your father with all my strength**. That's one of the lessons he's learned. 14 years ago he used to take advantage of people; now he learned to serve faithfully. Must've been a hard lesson; how did he learn it?
+31:6: **I have served your father with all my strength**. That's one of the lessons he's learned. 20 years ago (Gen 31:41: "twenty years") he used to take advantage of people; now he learned to serve faithfully. Must've been a hard lesson; how did he learn it?
 
 31:7: **Your father has cheated me**. Jacob got back what he sowed: he can now experience cheating first hand, and probably learn another lesson: how it feels like when you're cheated.
 
@@ -1682,11 +1690,60 @@ d) possibly she thought that they would bring her good fortune; but unlikely, be
 
 31:20: **Not telling him that he intended to flee**. Such an act would definitely insult and outrage Laban. That's why it says in Hebrew, literally, "stole the heart of Laban".
 
+31:20: **Not telling him that he intended to flee**. Why didn't he tell Laban? Because after years of experiencing this person, Jacob knew he couldn't expect anything good from him. 
+See v. 31: "Because I was afraid that you would take your daughters from me". 
+
 31:19-20: **Rachel stole... Jacob stole**. Rachel stole Laban's gods, and Jacob stole his heart.
 
 31:21: **Gilead**. That's several hundred kilometers south from Paddan-Aram.
 
-31:22: 
+31:22: **on the third day**. Jacob had chosen the time wisely: Laban has been *very* busy with his cattle. 
+
+31:23: **For seven days**. Laban had to travel 43% faster than Jacob to catch up with him in seven days! 
+> (3+7) * V₁ = 7 * V₂ ; V₂ = (10/7) * V₁ ; V₂ = 1.43 * V₁
+
+31:23: **For seven days**. The journey was at least 480 kilometers long. So Jacob done around 50 kilometers a day. Laban had to do around 70 kilometers a day to catch up. 
+It's likely that Jacob simply walked for 10 hours a day with his normal speed. He had cattle; remember! Laban probably had either to ride, or to walk at least 14 hours a day!
+
+31:23: **Gilead**. That's almost home. 50 kilometers to Bethel; 100 kilometers to where his father lives.
+
+31:24: **God came to Laban**. To Laban the pagan. Laban may have not been a godly person, but he revered God's power at least.
+
+31:24: **Not to say anything**. A request that makes sense... until you here: **either bad** ... **or good**. Why would God not allow Laban to say good things? Perhaps, because until now every good thing he had said has proven to be dishonest hypocrisy? And God knew that Laban was unable to say a single good thing to Jacob from a sincere heart?
+
+31:27: **with mirth and songs**. This is probably hypocrisy: on the outside, he would have made a nice party for his son-in-law; but on the inside, he would rather do him harm (v. 29).
+
+31:27: **with mirth and songs**. Laban seeks to portray Jacob in a poor light by contrasting his secretive flight with Laban’s desire to have a joyful send-off. (ESV)
+
+31:29: **It is in my power to do you harm. But...**. Had it not been for God's interference, Laban would have harmed Jacob. All that talk about mirth & songs is probably hypocritical: after years of life with Laban, Jacob has experienced mistreatment from him.
+
+31:29: **God of your father**. Although Laban acknowledges that God has spoken to him, he refuses to acknowledge God as his own; he is the God of Isaac. To underline this point, Laban asks Jacob, *Why did you steal my gods*? (v. 30) (ESV)
+
+31:31: **Because I was afraid that you would take your daughters from me**. This is the truth why Jacob has set out without telling Laban.
+
+31:32: **Shall not live**. Hasty words. But Jacob was certain that there were not thieves in his camp.
+
+31:32: **Point out**. In response to the accusation, Jacob invites Laban to search through the whole camp. And so he does: goes through every thing.
+
+31:35: **He searched and did not find**. Rachel sitting on and concealing Laban’s “gods” emphasizes the total impotence of such idols. (ESV)
+
+31:35: **He searched and did not find**. Metaphorically speaking, Laban searched for a god, but found none.
+
+31:39: **I bore the loss**. All this demonstrates how faithful a servant Jacob has become.
+
+31:43: **All what you see is mine**. Here Laban finally shows his true attitude to things: he believed that everything belongs to him. That's a really high degree of greed.
+
+31:44: **Let's make a covenant**. Apparently, a gesture possibly intended to save face. (ESV)
+
+31:45-46: **A stone ... a heap**. The two witnesses likely reflect the deities worshiped by Jacob and Laban. Jacob’s single stone stands in marked contrast to the heap of stones set up by Laban and his relatives. 
+Ancient Near Eastern treaties normally involved the gods as witnesses, the treaty between Jacob and Laban also required divine witnesses. Because Jacob is not prepared to compromise his monotheistic faith, two witnesses are established.
+(ESV)
+
+31:50: **God is witness**. Laban wanted to, but could not, take anything from Jacob. He's been stopped by God Himself. Now Laban can only make an agreement, asking the very same God to be the witness.
+
+
+
+
 
 
 
