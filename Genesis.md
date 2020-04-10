@@ -1749,7 +1749,133 @@ Ancient Near Eastern treaties normally involved the gods as witnesses, the treat
 
 
 ### Jacob Fears Esau
+
+32:1-2: **the angels of God met him**. More probably, as Jacob on his road to Padan Aram had been assured of God's watchful care of him by the vision of the angels ascending and descending the stairs, so now also in a dream he sees the angels encamped on each side of him, to assure him of protection against his brother. (Ellicott's Commentary)
+
+32:1: **Ангелы Божии**. Господь, желая ободрить праведника и рассеять всю его боязнь, даровал ему узреть полк ангелов. (Иоанн Златоуст)
+
+32:1-2: **the angels of God met him**. Messengers of Elohim.
+
+32:1-2: **God's camp**. A vision of the very angels that have kept Jacob safe thus far.
+
+32:1: **Ангелы Божии**. Этим они давали понять Иакову, что если бы Лаван не послушал Бога, явившегося ему вечером, то на следующее утро и он, и все бывшие с ним были бы умерщвлены рукой Ангелов, хранящих Иакова. (Прп. Ефрем Сирин)
+
+32:2: **Camp**. Since camps were mobile, unlike houses, Jacob’s remark suggests that God has sent his angels to accompany Jacob safely back to the land of Canaan. (ESV)
+
+32:2: **Нарёк имя месту тому**. Чтобы это наименование служило постоянным напоминанием о бывшем ему там видении. (Иоанн Златоуст)
+
+32:4-5: **my lord... your servant... favor in your sight**. The tone of Jacob’s message to Esau is very deferential. (ESV)
+
+32:6: **Four hundred**. That's a lot. Genesis 14 recounts how Abraham, with a force of 318 men, successfully went to battle against four kings. (ESV)
+
+32:7: **Afraid and distressed**. Jacob had heard God say, "I will be with you" (Gen 31:3), and apparently was afraid that God's protection only covered the travel; not the meeting with the brother. 
+He didn't lose faith; otherwise, he would've turned around. No righteous one risks death of his whole family unless he's certain that won't happen.
+
+32:7: **Two camps**. Perhaps, he drew the inspiration for such a wise action from the vision he'd seen of two camps? (v. 2)
+
+32:7: **Afraid and distressed. He divided.** Jacob’s actions, while understandable from a human perspective, reflect his inability to trust God fully for protection. (ESV)
+
+32:9: **Said**. Prayed. In his distress, Jacob does several things. 
+First, he refused to turn around, or settle in another land, even though he had sufficient resources to do so. He's had God's commandment.
+Secondly, he does what he humanly could to improve the situation: *he divided the people*. 
+Thirdly, he prayed for God's help.
+
+32:9: **LORD**. This is the first time Jacob addresses God using his special name, “Yahweh,” translated here “LORD”. (ESV)
+
+32:9: **Return to your country**. Shows that Jacob is still following God's guidance. He's just afraid. Being human.
+
+32:10: **I am not worthy**. God's made him into a meek person with a worshipful spirit.
+
+32:10: **steadfast love and all the faithfulness that you have shown**. God used all these years of hardship to bring Jacob into a relationship with Himself. Jacob knows God now. Jacob knows His qualities.
+
+32:11: **Please deliver me**. Jacob prays, knowing, that despite any action of his, the ultimate deliverance comes from God.
+
+32:12: **But You said**. Jacob trusts God and His promises. This may be counted to him as righteousness.
+
+32:13: **He stayed there that night**. Imagine how does it feel like to go to sleep, knowing that an army is marching to kill you and your family.
+
+32:13: **He took a present**. Jacob demonstrates a curious mix of prayer, where he asks God for help, and action, where he does what's possible. He didn't count on God doing everything for him; he's learned that God helps those who act, and who act righteously.
+
+32:18: **your servant Jacob … my lord Esau**. Jacob’s deferential attitude is noteworthy, given earlier statements about the older serving the younger (see 25:23) and Isaac’s blessing, which speaks of Jacob’s being lord over his brothers (27:29). (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob Wrestles with God
+
+32:22-32: Jacob Encounters God at Peniel. This passage records a nighttime encounter between God and Jacob. Jacob is transformed by this extraordinary meeting, which is marked by the changing of his name from “Jacob” to “Israel.”. (ESV)
+
+32:22: **Wives, servants, children**. Jacob took his nearest and dearest people with him. 
+He also took "everything he had" (v. 23), but the author emphasizes his family members.
+
+32:23: **He sent them across the stream**. This looks like flight. Clearly Jacob did not anticipate meeting God that night! He was just trying to resolve the crisis. By sending his dearest people away from the coming fight.
+
+32:24: **Was left alone**. His intention was probably to meet Esau alone, without jeopardizing anyone else. He was ready to die, but wanted to ensure no harm comes to his family.
+
+32:24: **A man wrestled**. The unexpected and sudden introduction of this man, who wrestles in the dark with Jacob, captures something of the event itself. 
+By the time their contest comes to an end, Jacob is convinced that his opponent is God himself (see v. 30). (ESV)
+
+32:22-14: **Jabbok... Jacob... Wrestled**. The story contains an interesting wordplay in Hebrew: God wrestles (ye’abeq) with Jacob (ya‘aqob) by the Jabbok (yabboq). (ESV)
+
+32:24: **Боролся Некто с ним**. Велико человеколюбие Господне! Всё это делалось по снисхождению, чтобы изгнать из души праведника страх и побудить его идти навстречу брату без всякого опасения. (Свт. Иоанн Златоуст)
+
+32:24: **Боролся Некто с ним**. невероятным кажется то, что он, будучи один, ночью, неизвестного принял мышцами, а не мечом или луком; поелику он не был уже в возрасте крепости телесной, имел около ста лет от рождения. (Свт. Филарет Дроздов)
+
+32:24: **Боролся Некто с ним**. Борьба Божия, по-видимому, долженствовала происходить в духе, но борьба Иакова кажется действием телесным. (Свт. Филарет Дроздов)
+
+32:24: **Боролся Некто с ним**. Почему боролся Иаков с Богом? Бог ведь за секунду мог уничтожить его? Почему допустил Господь борьбу с Иаковом? Господь желал благословить Иакова. (Прп. Гавриил (Ургебадзе))
+
+32:25: **повредил состав бедра**. Зачем?
+1) чтоб Иаков признал борьбу не за мечтание и призрак, но за истинное явление и действие; 
+2) чтоб узнал в своем противоборце Всемощного; 
+3) чтобы непобедимость приписал не своей силе, но вышней помощи; 
+4) чтобы в хромании оставить памятник сей благосердой брани. 
+(Свт. Филарет (Дроздов))
+
+32:26: **I will not let you go unless you bless me**. Somehow, by the end of the struggle, Jacob came to realize that he is wrestling with a heavenly being. Perhaps, he even understood that it was God himself.
+How did he understand that? Well, he has recently prayed, fervently. His heart and his mind were open to heavenly things. He was ready to see and accept.
+
+32:26: **I will not let you go unless you bless me**. It is interesting that upon realizing Who he's wrestling with, Jacob did not cease to wrestle in reverence. He kept holding the man.
+
+32:26: **Пусти Меня, ибо взошла заря**.  Слова сии допускают различные изложения:
+«Оставь меня: я хочу быть ощутим, но невидим»;
+«Оставь меня, ибо заря призывает тебя к твоему ополчению и к продолжению путешествия»;
+«Оставь меня, дабы с наступлением дня не обнаружить недостойным или слабым видения, для них не вместительного».
+(Свт. Филарет (Дроздов))
+
+32:28: **Your name shall no longer be called Jacob, but Israel**. Through all this, Jacob has finally come to realize the importance of being blessed by God. The events of the preceding years have changed Jacob. The God of his father has now become his God. 
+
+32:28: **no longer Jacob, but Israel**. He is not a deceiver anymore. He's changed. By God's grace, and work.
+
+32:28: **Ибо ты боролся с Богом, и человеков одолевать будешь**. Ободрение для Иакова в преддверии встречи с братом. 
+
+32:29: **на что ты спрашиваешь о имени Моем?**. Держись, говорит, в назначенных тебе пределах и не преступай меры. Ты хочешь получить от Меня благословение? Вот Я даю тебе благословение. (Свт. Иоанн Златоуст)
+
+32:29: **Скажи имя Твое**. Конечно, Иаков доселе думал, что Божество явилось ему в лице Ангела; и вопросил о имени его или для того, чтобы после употреблять сие имя в призывании Бога, или для того, чтобы ответствовать на благословение, или для того, чтоб имя явившегося дать месту явления. (Свт. Филарет (Дроздов))
+
+32:29: **На что ты спрашиваешь о имени Моем?** Ты не можешь благословить Меня новым именем, как Я тебя. (Свт. Филарет (Дроздов))
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob Meets Esau
 ### The Defiling of Dinah
 ### God Blesses and Renames Jacob
