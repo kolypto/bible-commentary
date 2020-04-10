@@ -51,7 +51,14 @@
 
 17:19: Ten were healed, but only one was **saved**; and that was done by his **faith**.
 
-<a id="id.dwbcdy95tjug"></a>
+17:22: **To the disciples**. Previously, in v. 20, Jesus spoke to the Pharisees; how He speaks to the disciples.
+
+17:22-23: **Пожелаете видеть**. Иисус предупреждает, что настанет время, когда церковь ослабеет, и люди будут желать видеть Христа лично. Далее Он предупреждает, что тут же найдутся люди от лукавого, которые, играя на этом желании, предложат увидеть его "здесь" и "там", в каком-либо обществе или тайном месте. Иисус предупреждает, что Он не придёт секретно, но явится так, что ни один человек в мире не сможет этого пропустить. Потому не стоит верить лукавым людям.
+
+17:31: **Не сходи взять**. Не по той причине, что будет некогда, или не до этого, или опасно; а лишь по той причине, что это для верующих будет столь особенный, и радостный момент, что земные вещи просто перестанут иметь какое-либо значение. И лишь мирские, земные люди, могут продолжать думать о такой мелочи как "вещи".
+В с.32 приводится пример жены Лота, чья проблема была не в том что она обернулась посмотреть, а в том, что она тосковала по этому падшему городу.
+
+17:33: **Кто станет сберегать душу свою, тот погубит её**. Душу свою *земную*; то есть, не привязывайтесь к земным, мирским вещам.
 
 18:9: Jesus told the parable “**to some who trusted in themselves**”: self-righteous **Pharisees**: a model Jew, highly religious, moral, and respectable. He contrasts with the **tax-collector**: a fellow Jew who had sold out to Rome for the purpose of collecting taxes from his brethren. He extorted all he could get from people, keeping for himself everything he purloined above what Rome required. He had forsaken both national, social, family, and religious loyalty for the sake of money.
 Yet Jesus said that, despite **the tax-collector’s** treachery and sin, he would be justified by God because of his penitent faith, whereas **the Pharisee**, despite his high morals and religiousness, would be condemned, because he trusted in his own righteousness and good works.
