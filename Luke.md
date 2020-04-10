@@ -60,6 +60,8 @@
 
 17:33: **Кто станет сберегать душу свою, тот погубит её**. Душу свою *земную*; то есть, не привязывайтесь к земным, мирским вещам.
 
+17:37: **Где, Господи?** Ученики спрашивают: где именно совершится это отделение одних людей от других? Господь отвечает, что это будет совершаться везде, где будут люди, заслуживающие наказания. (Лопухин А.П.)
+
 18:9: Jesus told the parable “**to some who trusted in themselves**”: self-righteous **Pharisees**: a model Jew, highly religious, moral, and respectable. He contrasts with the **tax-collector**: a fellow Jew who had sold out to Rome for the purpose of collecting taxes from his brethren. He extorted all he could get from people, keeping for himself everything he purloined above what Rome required. He had forsaken both national, social, family, and religious loyalty for the sake of money.
 Yet Jesus said that, despite **the tax-collector’s** treachery and sin, he would be justified by God because of his penitent faith, whereas **the Pharisee**, despite his high morals and religiousness, would be condemned, because he trusted in his own righteousness and good works.
 (MacArthur)
