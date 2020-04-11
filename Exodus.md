@@ -32,6 +32,8 @@ This is probably because God was building Moses a reputation. The whole nation s
 И в этом случае заповеди - это не насилие над человеком, а просто условия договора. А Ветхий Завет - это не про насилие, а опять про любовь Бога к человеку. И если ты не выполняешь эти условия, Богу совсем не нужно тебя бить. Если ты нарушаешь заповеди, ты просто разрываешь этот договор. И Господь перестаёт быть твоим Богом. Всё. Единственный неприятный момент, там, откуда удаляется Бог, все становится не очень хорошо. Но Господь всегда верен своему договору, а выбор уже зависит от человека.
 (Отец Андроник Пантак, РПУ)
 
+20:7: **Не произноси имени Господа, Бога твоего, напрасно**. Другой возможный перевод: "Не носи имя Бога впустую". То есть, не называйся верующим впустую. (Андроник Пантак)
+
 20:13: “**You shall not murder**” does not prohibit every form of killing. The term used for **murder** has to do with criminal killing. It’s clear from other teachings in Scripture that capital punishment, just warfare, accidental homicide, and self-defense are excluded. The commandment is against the intentional killing for purely personal reasons, whatever those reasons might be. (MacArthur)
 
 20:14: The sixth commandment (“thou shall not kill”) protects the sanctity of life, and the seventh (“**you shall not commit adultery**”) protects the sanctity of marriage. (MacArthur)

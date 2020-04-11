@@ -2,6 +2,11 @@
 
 1:1: The good news (**the gospel**) is in that Jesus has conquered the grave, conquered sin, and by His death has given us the power to defeat sin in ourselves. Because of the ressurection we can be saved. (Byron Johnson, UA)
 
+1:7: **Grace**. It means a favor bestowed by God through His power to transform a person’s life, starting at salvation and going on from there.
+Grace is a dynamic force, a dynamic and benevolent power, that applies the goodness of God and the resources of God to our lives, to save us, to keep us, to enable us, to deliver us, to sanctify us, to glorify us. All of God’s good favors to His children are given through the means of this beneficent goodness called grace..
+(MacArhur)
+
+
 3:19: An average person, when asked, will definitely say he thinks that he is a good person. we tend to think this way only because we compare ourselves with others. But if we compare ourselves with the God's law, **every mouth **is** closed**. (John Strohman)
 
 3:21: The **righteousness of Christ** does not mean we will automatically have practical righteousness. It means that now we are able to be righteous in practice coma and previously we were not. (MacArthur)
