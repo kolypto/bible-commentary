@@ -14,6 +14,10 @@
 
 2:51: **Was submissive to them**. Jesus was obedient to his parents. It is incomprehensible how God, having come into the world, was obedient to his parents. It is *God* being obedient to His Own creation. (MacArthur)
 
+3:2: **Первосвященниках**. Каиафа был первосвященником официально, а Анна, его родственник, всё ещё имел власть. Такое вот кумовство. (МЦЦ)
+
+3:2: **При первосвященниках... к Иоанну**. В то время было два первосвященника. Однако слово Божие было не к ним, а к Иоанну. (МЦЦ)
+
 3:23: Luke's record apparently traced from Mary's side, the "**Eli**" probably being Joseph's father-in-law (often referred to as a father) and therefore Mary's natural father. (MacArthur)
 
 4:29: **Сбросить**. В Талмуде забрасывание камнями было заменено сбрасыванием приговорённого на камни. Согласно Талмуду, приговорённого следует сбрасывать с такой высоты, чтобы смерть наступила мгновенно, но его тело при этом не было обезображено. 
