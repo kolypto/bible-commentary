@@ -12,6 +12,8 @@ Grace is a dynamic force, a dynamic and benevolent power, that applies the goodn
 
 2:1: **Судящий другого**. Только что Павел описал грешников, а теперь предупреждает: не осуждайте их, потому что сами такие же. (Лунёв)
 
+2:15: **Закон написан у них в сердцах**. Написан Богом. С теми людьми, до которых не дошли человеческие проповедники, Бог работает напрямую через сердце и совесть, и не оставляет их погибать. Бог может обойтись без человеческой помощи, даже в деле спасения. (Лунёв)
+
 3:19: An average person, when asked, will definitely say he thinks that he is a good person. we tend to think this way only because we compare ourselves with others. But if we compare ourselves with the God's law, **every mouth **is** closed**. (John Strohman)
 
 3:21: The **righteousness of Christ** does not mean we will automatically have practical righteousness. It means that now we are able to be righteous in practice coma and previously we were not. (MacArthur)
