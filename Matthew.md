@@ -1883,7 +1883,7 @@ You say, “But what am I going to do to make sure?" The Lord will bless. And th
 
 6:4: **And your Father who sees in secret will reward you.**. The principle is this: if we remember, God will forget; but if we forget, God will remember. Our purpose should be to meet every need we are able to meet, and leave the bookkeeping to God. (MacArthur)
 
-#### The Lord's Prayer
+#### On Prayer
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus continues His contrast of true and false righteousness. He exposed the hypocritical giving, will expose their hypocritical fasting, and now He exposes an equally hypocritical praying, as typified by the scribes and Pharisees. (MacArthur)
 
@@ -1954,7 +1954,84 @@ Some people prayed it honestly, with a worshipful heart. Others went through the
 
 6:9-13: Jesus gave us an outline. 9. In reverent praise. 10. For the coming **kingdom**. 11. For **daily** provision. 12. For spiritual protection by being **deliver**ed **from evil**. 13. For **forgive**ness of our sins, for the forgiveness of others. (John Strohman) 
 
-6:9: "Prayer will make a man cease from sin, or sin will entice a man to cease from prayer" (John Bunyan)
+
+#### The Lord's Prayer
+
+6:9: **Pray**. "Prayer will make a man cease from sin, or sin will entice a man to cease from prayer" (John Bunyan)
+
+6:9: **Pray**. Someone has said that many Christians offer their prayers like sailors use their pumps: only when the ship leaks. But look how Jesus went through His earhly ministry: He habitually rose early in the morning to commune with His Father, and in the evenings He would frequently go to some quiet place to pray. (MacArthur)
+
+6:9: **Pray**. "Man is at his greatest and highest when upon his knees he comes face to face to God" (Martyn Lloyd-Jones; quoted by MacArthur)
+
+6:9: **Prayer** and fasting. Fasting is meaningless apart from prayer, because apart from prayer it is apart from God. (MacArthur)
+
+6:9: (<u>the approach to prayer</u>) **Prayer** is an opportunity for God to manifest His goodness and glory. It's done for God's sake, to glorify Him. **Prayer** centers on God's glory, not on man's needs. It is not for claiming God's promises, or making demands, but it is to acknowledge His sovereignty, to see the display of His glory and to obey His will.
+(MacArthur)
+
+6:9: **Pray like this**. It is clear that Jesus did not give this prayer for it to be repeated. 
+1) The disciples asked Him *how* to pray, not to teach a prayer (Lk 11:1);
+2) **Like this** carries the idea of "in the following manner" or "along these lines";
+3) Jesus has just warned the disciples not to pray with "meaningless repetition" (v. 7). He could not contradict Himself by immediately giving a prayer to be recited verbatim;
+4) Nowhere in the NT do we find an instance of any prayer used in a repetitious, ritualistic manner.
+
+6:9: **Pray like this**. It is not a substitute for our own prayers, but a guide for them. (MacArthur)
+
+6:9-13: (<u>Structure</u>). Two sections, three petitions each. 
+The first section deals with God's glory: petitions in behalf of God's name, His kingdom, and His will.
+The second section deals with man's needs: petitions for daily bread, forgiveness, and protection from temptation.
+(MacArthur)
+
+6:9-13: From the perspective of the attitude and spirit of prayer: **Our** reflects unselfishness; **Father** family devotion; **hallowed be Thy name** reverence; **Thy kingdom come** loyalty; **Thy will be done** submission; **give us this day our daily bread** dependence; **forgive us our debts** penitence; **do not lead us into temptation** humility; **Thine is the kingdom** triumph; **and the glory** exultation; **forever** hope. (MacArthur)
+
+6:9-13: (<u>Structure</u>) Every element centers on God, acknowledging His: paternity, priority, program, plan, provision, pardon, protection, preeminence. (MacArthur)
+
+##### The Lord's Prayer: Petitions for God's glory
+
+6:9: (<u>God' Paternity</u>) **Our Father**. God is the Father in heaven of those who trust in Him.
+Pagans invariably had fear for their deities; to be able to go to God as our heavenly Father means the end of fear. It also gives hope: if our earthly father spares no effort to help and protect his children, how much more will the heavenly Father love, protect, and help His children? We also know that our heavenly Father will never leave us or forsake us. And **Our Father** indicates God's eagerness to hear our prayers, and to use His power to the petitions of His children.
+God's fatherhood also should mean our obedience. "Whoever does the will of My Father... is My brother and sister" (Mt 12:50).
+(MacArthur)
+
+6:9: (<u>God' Priority</u>) **Hallowed** (Gk. hagiazo) means "to make holy". To hallow God's name is to revere, honor, glorify, and obey Him as singularly perfect. We must have a constant awareness of His presence, not sporadic thinking of Him. To truly hallow His name is to consciously draw Him into every daily thought, every daily word, and every daily action. "I have set the Lord continually before me" (Ps 16:8). Then God's name is hallowed: when we behave in conformity to His will. (MacArthur)
+
+6:9: **Hallowed be Thy name**. After calling God with a tender **Our Father**, Jesus opens up great dimensions of reverence, awe, appreciation, honor, and adoration. This phrase protects against any sentimentalism, overuse and abuse of **Father**, which is prone to being sentimentalized. 
+**Name** represents all that He is: his qualities and His character. We know God's character, and **hallow** Him.
+(MacArthur)
+
+6:10: (<u>God' Program</u>) **Thy kingdom come**. Our greatest desire should be to see the Lord reigning in His kingdom. To pray "**thy kingdom come**" is to pray for God's program to be fulfilled. (MacArthur)
+
+6:10: **Kingdom** (Gk. basileia) does not refer to a territory, but to sovereignty and dominion. When we pray **Thy kingdom come**, we are praying for God's rule to come, His reign on earth to begin. (MacArthur)
+
+6:10: **Come** translates the aorist imperative of *erchomai*, indicating a sudden, instantaneous coming. It speaks of the coming millennial kingdom, not an effort to gradually bring in a more godly society. (MacArthur)
+
+6:10: **Thy will be done on earth**. The very fact that Jesus tells us to pray these words indicates that God's will is *not* always done on earth.  God is not now ruling on earth as He rules in heaven. (MacArthur)
+
+6:10: (<u>God' Plan</u>) **Thy will be done on earth, as it is in heaven**. It already is God's plan to do His will on earth. Even though God is sovereign and His will will be done, He still wants us to pray for it to come. Why ask for the inevitable? To exercise our own volition in this area. When we pray **thy will be done**, we are praying that God's will become our own will. \[We bring our will in sync with God's will\]
+(MacArthur)
+
+6:10: **Thy will be done**. God is sovereign, but He is not independently deterministic. In His gracious plan, prayer is essential to the proper working of His divine will on earth. In fact, lack of faithful prayer inhibits His will being done (!). God is sovereign, but He gives us choices. Remember that "the effective prayer of a righteous man can accomplish much (Jas 5:16). (MacArthur)
+
+6:10: **Thy name, Thy kingdom, Thy will**. "Shall I pray to change Thy will, my Father, until it accord to mine? But no, Lord, no: that shall never be. Rather I pray Thee blend my human will with Thine" (Amy Carmichael). 
+The great enemy of God's will is pride. For God's will to be accepted, self-will must be forsaken in the power of the Holy Spirit. When we pray in faith and in conformity with God's will, our prayer is a sanctifying grace that changes our lives dramatically. Prayer is a means of progressive sanctification.
+(MacArthur)
+
+6:10: **Thy will be done**. To be dedicated to God's will is to be opposed to satan's. The starting point is to rebel against the worldly idea that sin is normal, inevitable, and should be tolerated. 
+To pray for God's will is also to rebel against the idea that wicked things are somehow done in accordance to God's holy will. Nothing wicked or sinful comes from God. It is God's will that allowed sin to run its course, and satan have his way, for a season. But there is an appointed time for it to end.
+To pray for God's will to be done is to pray for satan's will to be undone.
+(MacArthur)
+
+6:10: **Thy will be done**. To pray rightly is to pray in faith, believing that God will hear and answer our prayers. I think the greatest hindrance to prayer is not lack of technique or knowledge or even enthusiasm, but lack of faith. We simply do not pray with the expectation that our prayers will make a difference in our lives, in other people's lives, in the world. (MacArthur)
+
+##### The Lord's Prayer: Petitions for man's needs
+
+6:11: (<u>God' Provision</u>) 
+
+6:12: (<u>God' Pardon</u>) 
+
+6:13: (<u>God' Protection</u>) 
+
+6:13: (<u>God' Preeminence</u>) 
+
 
 #### Fasting
 
@@ -2016,7 +2093,7 @@ earned, to buy things they don't want, to impress people they don't like."
 
 ### Chapter 7
 
-6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
+7:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
 7:1: We are not to **judge**? Some think we are never to judge anything as being right or wrong. Could Jesus really say that? Just look a little further (vv.15-20) and see that Jesus instructs us to judge the *fruit* in order to be able to identify false prophets. Also see Jn 7:24 (do not judge by appearance, but judge with righteous judgment). There is an eternal difference between self-righteous condemnation of another as compared with reproving a person with the desire of him coming into repentance (John Strohman)
 
