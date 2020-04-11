@@ -78,6 +78,8 @@ The message is the theme of Jesus' kingship: a King who is revealed, rejected, a
 
 1:21: The significance of this name is clear: "**Jesus**" is a form of the Hebrew Joshua, Jeshua, Jehoshua, the basic meaning of which is "Yahweh will save". By His own work He would save His people from their sins. (MacArthur)
 
+1:21: **Save His people from their sins**. Christianity in short: God saves men from sin. This is basically what the whole message is about, and these verses summarize Christianity. (MacArthur)
+
 1:22: This phrase gives a simple, straightforward definition of biblical inspiration as the Word of the Lord coming through human instruments. God does the saying. (MacArthur)
 
 1:23: Matthew did not give the term *alma* a Christian "twist", but used it with the same meaning with which all Jews of that time used it. See Is 7:14 and note. (MacArthur)
@@ -1246,7 +1248,7 @@ Christ is the true light, and we are His reflections. He is the Sun, and we are 
 5:16: The purpose of being **salt **and **light** is to **glorify the Father**. When we do **good works**, they reveal the beauty the Lord has worked in us. To see the good works by us is to see Christ in us. Those good works is not something we create, but something we allow the Lord to do through us. This is the supreme calling of life: glorifying God. Everything we do is to cause others to give praise to the God who is the source of all that is good.
 But when what we do causes people to be attracted to us rather than to God, to see our human character rather than His divine character, we can be sure that what they see is not His light. (MacArthur)
 
-
+5:16: **Let your light shine before others**. This is the core message of Christianity: God saves people from sin. And after saving the sinner, God leaves this sinner on Earth so that others can see that He is a saving God. When they see that, they will glorify him, meaning, that they will Mill what he can do, and perhaps, want it for themselves. (MacArthur)
 
 
 
@@ -2275,6 +2277,10 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 13:23: The seed is the same in every case, so the emphasis is on the different kinds of **soil**, which represents a human heart which can be receptive to the **word**.
 
+13:44: **Treasure**. The parable of the man finding great treasure means that this person had been accumulating wealth all his life, and now when he has found salvation, the way to salvation which is so valuable, he is willing to give up everything that he once considered valuable for this treasure to be his. That is in exchange.
+
+13:45: **Pearls**. The merchant looking for fine pearls also finds one whose value far exceeds the value of the pearls that he already has. The assumption is that he has been accumulating pearls his whole life, and he thought them to be valuable, and no he willingly gives them up because he recognizes that the true value is nothing compared to the value of this particular one.
+
 13:46: Notice that the **merchant** had to sell **all** that he had, and was willing to do so. This represents letting go of the things we used to value in order to get something that is far better.
 
 13:47-48: This is how the modern day church works: like a **net**, it gathers **fish of every kind**: both believers and unbelievers; but when it is **full**, when the endtime comes, it will be **sorted**. Apostle Paul expresses the same idea in 1 Cor 11:19: even within the church there are factions, and it “has to be” so, for when people divide, those who are genuine tend to stick together, and are thus clearly seen.
@@ -2341,6 +2347,11 @@ But in this verse, “**Peter took Him**.” Now, wait a minute, took *Him*? Tha
 Unbelievable, the guy was, I mean, he was feeling it, and I’m the leader.  I’ve got the keys now I’m going to start using them. You’re first. It’s always the danger in leadership, isn’t it? It doesn’t know where its limits are. 
 “**And the Lord said to him, ‘Get thee behind Me, Satan.’**“ Wow, that is a very clear lesson. You do not know the plan of God, and you are thinking from the human viewpoint. “**Get behind Me, Satan”**.  His mouth had just been used for God, and now his mouth was used for Satan. And now, he was doing exactly what Satan had done in the temptation: he was trying to derail Christ from the cross, and Peter was just as available to the Devil as he was to God, and that is a great lesson to learn for a leader. 
 You get yourself into a position where God can use you, and the greater the potential to be used by God, the greater the potential to be used by Satan. That’s a great lesson. 
+(MacArthur)
+
+16:25: **Gain... forfeit... exchange**. Jesus is talking about an exchange: losing something to gain something. If you want to gain your soul, it will cost you your life; if you desire to save your life, it will cost you your soul. If you hold on to the things that to you are precious and reject the things that to God are precious, it will cost you your eternal soul.
+There is an exchange in salvation. There is an exchange of all that I am for all that Christ is. There is an exchange of all my religious activities, ceremonies, righteous works for the person of Jesus Christ. There's a sense in which I may have spent all my life in religious achievement, but I have to lose it all in order to gain Christ, like Paul did. 
+Whatever it is that I have spent my life accumulating, even if I gain the world, it would mean nothing if I lost Christ. The wise person looks at everything in life, measures it against the value of the loss of his eternal soul and says it isn't worth it, I will give this up to gain my eternal soul.
 (MacArthur)
 
 

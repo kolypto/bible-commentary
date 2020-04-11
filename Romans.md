@@ -14,6 +14,13 @@ Grace is a dynamic force, a dynamic and benevolent power, that applies the goodn
 
 2:15: **Закон написан у них в сердцах**. Написан Богом. С теми людьми, до которых не дошли человеческие проповедники, Бог работает напрямую через сердце и совесть, и не оставляет их погибать. Бог может обойтись без человеческой помощи, даже в деле спасения. (Лунёв)
 
+3:18: **There is no fear of God**. "Fearing God" is a synonym for being a true believer, a God-fearer: a man who has respect for God’s holy person, work, Word, and will. It is not the idea of flight or panic or dread, but reverential respect, a sense of awe. When you've accepted God as God, your character has changed, and now you have a new motive which affects all of your behavior and speech.
+By the way, the OT is filled with the concept of fearing God on a negative side. God wanted people to be afraid of Him. That’s why He turned Lot’s wife to a pillar of salt; drowned the world; sent snakes to bite the Israelites; swallowed Korah, Dathan, and Abiram; killed Nadab and Abihu; sent fire down from heaven at the call of Elijah; consumed a hundred soldiers. God wanted to be feared as a judge. 
+There is to be a healthy fear of the power of God and of His judgment. But it’s not only that. Fearing God is revering His holiness, honoring Him for His mercy and grace, giving Him glory. 
+(MacArthur)
+
+3:18: **There is no fear of God before their eyes**. At the root of man’s problem of sin and unrighteousness is a practical atheism: he does not fear God. All the previous evils, all the indictments rise out of the absence of that fear. He is motivated by a wrong attitude toward God. (MacArthur)
+
 3:19: An average person, when asked, will definitely say he thinks that he is a good person. we tend to think this way only because we compare ourselves with others. But if we compare ourselves with the God's law, **every mouth **is** closed**. (John Strohman)
 
 3:21: The **righteousness of Christ** does not mean we will automatically have practical righteousness. It means that now we are able to be righteous in practice coma and previously we were not. (MacArthur)

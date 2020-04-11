@@ -24,6 +24,10 @@
 
 5:30: Peter is bold enough to tell to their face that they have crucified the Christ. His boldness can be explained by his confidence in God's support: the healings done by his hands, and the recent prison break miracle definite nourished his faith. And importantly, they knew that what they stand for is the truth.
 
+5:34: **Gamaliel**. Gamaliel was so elevated that he was called "the beauty of the law". This means that the law was never so beautiful as when it has been taught by Gamaliel. And this is the teacher who brought up Paul, probably starting at his age of 13. (MacArthur)
+
+5:34: **Gamaliel**. The Talmud says that “since Rabban Gamaliel died, the glory of the Law has ceased.”
+
 5:38: Если дать делу отлежаться, становится ясно я с какими начинаниями оно было затеяно. В церкви тоже, за любую хорошую вещь нужно помолиться, подождать. Если от Бога, то всё получится. (Сергей МЦЦ)
 
 6:3: Why **full of the Spirit**? Because this is not just some sort of mundane unimportant task, but an essential service to God.
@@ -33,6 +37,18 @@
 6:7: **Continued to increase** in human hearts, like a growing green sprout. This was happening because people were being sanctified by the **word** being spread, heard, and believed in: "sanctify them in the truth; Your word is truth" (Jn 17:17).
 
 7:25: Moses killed a person, and then **supposed** that **God** acted through him. Was his thinking right, and God would really kill by a hand of a righteous person, this breaking the commandment? Or did it mean that Moses has sinned, and his thinking was wrong, and he had to be disciplined?
+
+9:3: **Suddenly a light from heaven shone aroudn him**. Paul didn't learn *new facts*. Factually he understood who Christ was, he understood the facts of His life, he also understood the facts of the gospel that were being preached by Christians, that's why he persecuted them because he thought it was heresy and he wouldn't have persecuted a heresy that he didn't understand. 
+So he understood it. But when he was confronted by Christ, and the Holy Spirit began to illuminate his hard heart and take the shield off of his understanding, he began to consider Christ for the first time.
+Please note this. Salvation is a sovereign act of God by which He invades the sinner's darkness, gives him light and saves him. But salvation does not annihilate, obliterate, destroy, or bypass, human faculties. It stimulates human faculties. 
+Now Paul considers all that he had "rubbish" (Php 3:8). For years his salvation had been built on ritual, his race, rank, tradition, religion, sincerety, and works. And then he met Christ and saw that it was all loss. A liability he gladly gave up for the sake of Christ.
+(MacArthur)
+
+9:9: **For three days he ... neither ate nor drank**. What did he do? He communed with his new Master.
+The last thing he had seen before he went blind was the blazing presence of the glory of Jesus.  That sight dominated his now sightless eyes.  It was a blindness that I would think was not the blindness of blackness, but the blindness of light.  Not the blindness of looking into the darkness of a pitch black night, but the blindness of looking into the brilliance of a blazing sun.
+Great guilt weighed him down.  He had a lot to think about for three days, didn’t he?  He knew nothing about his future.  He didn’t know who he was anymore.  He didn’t know what he was supposed to do.  This was total devastation of everything he was, and it was in those days that all that he had considered precious became rubbish.
+Salvation was sudden, but its depth are often plumbed slowly.  He is now stunned; he is helpless; he is friendless.  He has friends who are now enemies, and enemies who don’t know they’re to be friends.  For three days, he communed with his Lord.
+(MacArthur)
 
 9:36: Interestingly, the girls name **Tabitha** sounds like the words that Jesus had said in order to raise another dead girl in Mk 5:41
 
