@@ -6,6 +6,11 @@
 Grace is a dynamic force, a dynamic and benevolent power, that applies the goodness of God and the resources of God to our lives, to save us, to keep us, to enable us, to deliver us, to sanctify us, to glorify us. All of God’s good favors to His children are given through the means of this beneficent goodness called grace..
 (MacArhur)
 
+1:18: **Неправда человеков**. Павел проповедует Евангелие именно потому, что оно спасает от всего того, что описано далее: нисходящая спираль греха. (Лунёв)
+
+1:24: **Предал их Бог в похотях**. Павел говорит, что для людей, которые ведут себя подобным образом, Бог стирает границы, убирает упрёк Духа Святого, и позволяет людям скатиться ко всё худшим вещам. Люди, считавшие себя мудрыми, считавшими что у них всё под контролем, придут к помутнению рассудка, и будут скатываться всё ниже. (Лунёв)
+
+2:1: **Судящий другого**. Только что Павел описал грешников, а теперь предупреждает: не осуждайте их, потому что сами такие же. (Лунёв)
 
 3:19: An average person, when asked, will definitely say he thinks that he is a good person. we tend to think this way only because we compare ourselves with others. But if we compare ourselves with the God's law, **every mouth **is** closed**. (John Strohman)
 
