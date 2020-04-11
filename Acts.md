@@ -64,7 +64,31 @@
 
 16:6-7: Ever since leaving **Galatia**, they have only received negative answers from the **Holy Spirit**. Paul and his people have travelled some 250km before they reached **Troas** and **the Spirit** has told them what to do. (__[Map: Paul’s second missionary journey](https://www.google.com/url?q=https://cdn.neverthirsty.org/wp-content/uploads/2018/10/pauls-second-missionary-journey.jpg&amp;sa=D&amp;ust=1582399365480000)__)
 
-Acts 16:18 The words of the fortune-telling girl (v. 17) were true in a formal sense. Paul was greatly annoyed, probably because he did not want it to appear that she was his partner in the gospel. (ESV)
+16:12: **Philippi**. Philippi was the first Macedonian city in which Paul witnessed. That makes it the first Christian sermon in Europe (!)
+
+16:12: **Philippi**. In Greece, a center of culture.
+In Philippi. was a major city northwest of the nearby island, Thasos. Philippi was a Roman colony: the most privileged status for provincial cities. 
+In 356 BC, King Philip II of Macedon conquered the city and renamed it to Philippi. aimed to take control of the neighbouring gold mines and to establish a garrison at a strategic passage: the site controlled the route between Amphipolis and Neapolis, part of the great royal route. The Via Egnatia, an important Roman commercial road linking Italy and the east, passed through Philippi (see “Via Egnatia”). 2000 people lived there.
+Philip drained nearby marshes, greatly expanding a small existing settlement on the slope of a prominent hill. He added a theater, city walls, and gates and named the resulting urban center after himself. 
+Following the assassination of Julius Caesar in 44 BC, the conspirators (Brutus) fled Italy and gathered their troops near Philippi for a climactic battle, which they lost against Mark Antony and Octavian (later named Augustus by the Senate). After the victory at the battle of Philippi in 42 BC, Antony settled army veterans in the city.The city was enlarged by a colony of Rom. veterans after the war.
+Its status as an Augustan colony exempted Philippi from significant forms of taxation and also granted additional privileges of land ownership. The colonists held the full legal status of citizens of Italy. Philippi’s legal and judicial systems were Roman, and Latin was the official language of civic rule. 
+The Roman ethos of the colony is evident in Philippi’s Latin civic inscriptions and worship of Roman gods. According to one study, of 421 inscriptions recovered from Philippi, only 60 were written in Greek. 
+One of the temples in the Philippian forum was devoted to the imperial cult from the time of Augustus. 
+The relatively small (50-by-100-m) first-century forum was linked to two small temples, a library, and administrative buildings. These buildings would have been the likeliest places for Paul’s confrontation with the city’s administrators (Acts 16:19). One small stone crypt (built over a cistern) near the forum was designated in later church tradition as the prison site of Paul and Silas (Acts 16:23–34). A theater,  Sanctuaries to the Egyptian gods.
+(Wikipedia)
+
+16:16: **Place of prayer** (lit. **going to the prayer**). Not a house, because a house would've been called oikos proseuchēs (Mk 11:17: ‘My house shall be called a house of prayer for all the nations’? But you have made it a den of robbers.”)
+
+16:16: **Place of prayer**. Philippi seems to have had no significant Jewish population. No traces of a synagogue have been found in the city. (It has been suggested that a third-century-AD tombstone indicates the existence of a synagogue at that time, but its location is unknown). 
+When Paul first visited Philippi, he went outside the city to find the open-air place of Jewish prayer. Paul's first convert is a non-Jewish woman; no men are mentioned at that gathering, which may explain why no evidence of a synagogue exists in the first century: since Jewish law required at least 10 men in order to form a synagogue.
+
+16:16: **A spirit of divination** (lit. **A spirit of Python**). In Greek mythology, Python was a large female dragon who guarded the oracle at Delphi until being slain by Apollo. It was killed by Apollo, who then received the surname Pythius. 
+Their battle is depicted on Greek sculptures, vase paintings, and coins. The place of Apollo’s triumph became known as Pytho and was considered to be the center of the earth. The priestess of the oracle, whose sanctuary is an important archaeological site today, was known as the Pythia.
+In Hellenistic belief, the **Python** was a spirit of divination that possessed certain persons and made them prophesy, unconsciously and usually with the mouth closed. The term pythōn later came to designate someone with powers of fortune-telling.
+This has no connection with the genus of giant snakes to which this Greek name is given.
+(Internet)
+
+16:19: **Crying out**. The words of the fortune-telling girl (v. 17) were true in a formal sense. Paul was greatly annoyed, probably because he did not want it to appear that she was his partner in the gospel. (ESV)
 
 16:25: **Other prisoners** were definitely surprised to see imprisoned people in such a good spirit.
 
