@@ -2148,6 +2148,13 @@ earned, to buy things they don't want, to impress people they don't like."
 
 7:21: Jesus does not want us to be externally religious; He wants us to be in a relationship with Him: to have a heart-to-heart connection with Him. (said: Byron Johnson)
 
+7:21: **Lord, Lord**. Mt: This verse is essentially saying that some people who think they will go to heaven would actually end up in hell.
+in this verse there is a condition for entering the kingdom of God. 
+These words, **Lord, Lord**, express their surprise: many people would go to hell eternally disappointed because they thought that their religiosity was enough. They depend on their morals, their good deeds, their church membership, their religious feelings, their baptism.
+d. 
+How does a man enter the kingdom of God? By doing *the will of the Father* who is in heaven. Lip profession is not enough, there's got to be obedience. 
+(MacArthur)
+
 7:24-27: The Lord reminds us that a standard of righteousness is required to enter the Kingdom of God. And unless your life is **built** on that standard, no matter how it looks like, when the **flood** comes, it's going to be washed away. 
 Here, in both v. 24 and v. 26, you have people who **hear** the **word** or God, both have built their **houses**. They listen, and they are involved in certain spiritual activities, they both belong to the visible body of believers. They both read Scripture and both attend meetings of the church, they carry a Bible, they say certain prayers. They are both busy building some edifice of spiritual activity, and it looks very much the same. They both even built their houses in the same location, because the same storm hits both houses! But there is a tremendous difference: the foundation, that's invisible. Once the edifice is up, you can't see the foundation anymore. And so it really becomes difficult to tell. Only an honest and careful soul-searching and self-examination can reveal the truth.
 (MacArthur)
