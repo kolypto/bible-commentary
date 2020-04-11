@@ -64,6 +64,8 @@
 
 16:6-7: Ever since leaving **Galatia**, they have only received negative answers from the **Holy Spirit**. Paul and his people have travelled some 250km before they reached **Troas** and **the Spirit** has told them what to do. (__[Map: Paul’s second missionary journey](https://www.google.com/url?q=https://cdn.neverthirsty.org/wp-content/uploads/2018/10/pauls-second-missionary-journey.jpg&amp;sa=D&amp;ust=1582399365480000)__)
 
+Acts 16:18 The words of the fortune-telling girl (v. 17) were true in a formal sense. Paul was greatly annoyed, probably because he did not want it to appear that she was his partner in the gospel. (ESV)
+
 16:25: **Other prisoners** were definitely surprised to see imprisoned people in such a good spirit.
 
 16:25: **Hymns**. Those songs were praising God.
