@@ -9,6 +9,24 @@ div {
 Two. <cut /> tag that splits a paragraph into two collapsible halves
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Continuous reading:
 
 * ESV: Gen 1 - ..

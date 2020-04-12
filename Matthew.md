@@ -9,19 +9,98 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
 ### Introduction
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 #### Introduction
 
 The central personality of OT prophecy is the coming great King Who will rule in God's promised kingdom: a righteous king, both *human* (born of a virgin, Is 7:14; afflicted, Is 53:3-7; Son of Man, Dan 7:13) and *divine* (Mighty God, Eternal Father, Is 9:6-7; Immanuel, Is 7:14; The Lord, Zeph 3:15; The Lord of Hosts, Zech 14:17). (MacArthur)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### Authorship
 
 Matthew was a tax collector (Mt 9:9): a hated and ostracized traitor of the Jewish society. Matthew is modest in writing his account: he always refers to himself in the 3rd person and nowhere speaks of himself as the author. We know of his authorship because his name is attached to all early copies of the manuscripts and because the early church Fathers unanimously attest him to be the book's author. (MacArthur)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### Message
 
 The message is the theme of Jesus' kingship: a King who is revealed, rejected, and a King who will return. Jesus is painted in royal colors as in no other gospel. Yet Matthew also focuses most uniquely on the rejection of Jesus as King: in no other gospel are the attacks against Him so bitter and vile. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -91,6 +170,18 @@ The message is the theme of Jesus' kingship: a King who is revealed, rejected, a
 1:24: We can imagine how great his feelings of amazement, relief, and gratitude must have been. Not only would he be able to take his beloved Mary as his wife with honor and righteousness, but he would be ien care of God's own Son while He was growing up. (MacArthur)
 
 1:25: The implication here is that normal marital relations began after that time. The fact that Jesus' brothers and sisters are spoken of numerous times in the gospels (Mt 12:46: "his mother and his brothers stood outside"; Mt 13:55-56 and Mk 6:3: "And are not his brothers James and Joseph and Simon and Judas? And are not all his sisters with us?"; Jn 7:5: "For not even his brothers believed in him."; etc) prove that Mary did not remain a virgin perpetually, as some claim. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -213,6 +304,18 @@ The specific statement, "**would be called a Nazarene**", does not appear in the
 
 2:23: The town of **Nazareth** was inhabited largely by people noted for their crude and violent ways. The term "**Nazarene**" ahd long been a term of derision, used to describe any person who was rough and rude. (The reason behind Nathanael's surprise in Jn 1:46, "can any good thing come our of Nazareth?". He was shocked that the Messiah actually could come from such a disreputable place). 
 The early Jewish persecutors of the church apparently considered Jesus' being from Nazareth as evidence that He could *not* be the Messian, rather than, as Matthew tells us, a sign that He was. Tertullus spoke of Paul as "a real pest... and a ringleader of the sect of the Nazarenes" (Ac 24:5). The church Father Jerome wrote that in synagogue prayers Christians were often cursed as Nazarenes. Jesus' birthplace gave Him a name, Jesus the Nazarene, that would be used as a title of reproach, thus fulfilling many other prophecies that depict the Messiah as "despised and forsaken of men" (Is 53:3). (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -390,6 +493,18 @@ Jesus came into the world to identify with men; and to identify with men is to i
 3:16: Why did the **Holy Spirit** come upon Jesus? When He became a man, Jesus did not lose His divinity. He was still fully God in every way. In His deity He needed nothing; but in His humanity He was here being anointed for service and granted strength for ministry. The Spirit anointed Him for His kingly service. "The Spirit of the Lord God is upon me, because the Lord has *anointed* me to bring good news to the afflicted; He has sent me to bind up the brokenhearted, to proclaim liberty to captives, and freedom to prisoners" (Is 61:1). The Spirit gave him strength, and empowered Him to to miracles (MacArthur).
 
 3:17: No OT sacrifice, no matter how carefully selected, had ever been truly pleasing to God, for no animal was perfect, and the blood of those animals was at best only symbolic, "for it is impossible for the blood of bulls and goats to take away sins" (Heb 10:4). But with Jesus God could say He was **well-pleased**. No imperfection could be found in Him, and God was delighted. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -594,7 +709,26 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 5
+
+
+
+
+
+
+
 
 
 
@@ -613,6 +747,15 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 5:3-7:29: The Sermon is the supreme  model of good preaching, a homiletical masterpiece. It beautifully and powerfully flows from the introduction (5:3-12) to the first point (the citizens of the kingdom, 5:13-16), to the second point (the righteousness of the kingdom, 5:17-7:12), to the third point (the exhortation to enter the kingdom, 7:13-27), and to the conclusion (the effect of the sermon on its hearers, 7:28-29). The transitions from point to point are clear and unmistakable. (MacArthur)
 
 5:1: A rabbi commonly **sat down** when he taught. If he spoke while standing or walking, what he said was considered to be informal and unofficial. But when he sat down, what he said was authoritative and official. (MacArthur)
+
+
+
+
+
+
+
+
+
 
 
 
@@ -669,6 +812,15 @@ But Jesus’ way was not any of those. To the Pharisees He said that true spirit
 
 
 
+
+
+
+
+
+
+
+
+
 #### Introduction: The Beatitudes
 
 5:3-12: The beatitudes emphasize that no human effort can earn those blessings, and one who reads it should be drawn to faith in God for forgiveness since the standard laid out here is impossible for a human to obtain on his own. (John Strohman)
@@ -691,6 +843,15 @@ True blessedness is on a higher level than anything in the world. Here is a comp
 (MacArthur)
 
 5:3-12: The Beatitudes are not in random order, but lead to the other in logical succession: being poor in spirit reflects the right attitude we should have to our spiritual condition, which then should lead us to mourn, to be meek and gentle, to hunger and thirst for righteousness, to be merciful, pure in heart, and have a peacemaking spirit. A Christian who has all those qualities will be so far above the level of the world that his life will rebuke the world — which will bring persecution from the world and light to the world. (MacArthur)
+
+
+
+
+
+
+
+
+
 
 
 
@@ -750,6 +911,15 @@ Second, we must remove and avoid those things that promote pride. Being given pr
 5:3: (<u>The Result of Being Poor in Spirit</u>). Those who come to the King in this humility inherit His** kingdom of Heaven**. God has gladly chosen to give the kingdom to those who humbly come to Him and trust Him. 
 In giving up their own kingdom, the poor in spirit inherit God’s.
 (MacArthur) 
+
+
+
+
+
+
+
+
+
 
 
 
@@ -834,6 +1004,15 @@ The second way to determine if we have genuine mourning over sin is to check our
 
 
 
+
+
+
+
+
+
+
+
+
 #### “Blessed are the meek, for they shall inherit the earth.
 
 5:5: Not the powerful, but the **gentle** will **inherit the earth**. Meekness and gentleness do not mean weakness and powerlessness. On the contrary, gentleness is *great power under control*. (John Strohman)
@@ -879,6 +1058,15 @@ The word **inherit** (kleronomeo) refers to the receiving of one’s allotted p
 
 
 
+
+
+
+
+
+
+
+
+
 #### “Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
 5:6: **Hunger** and **thirst** are basics of our physical needs. **Righteousness** is the basic in the spiritual life. Just as we have a driving passion to eat or drink, we are to have a driving passion to live righteously to the glory of God. Growing in righteousness is called **sanctification**. (John Strohman)
@@ -910,6 +1098,15 @@ Jesus satisfies with a water drinking which a person would never thirst (Jn 4:14
 
 5:6: (<u>the testing of spiritual hunger</u>) There are several marks of genuine hunger and thirst for God’s righteousness. 1) Dissatisfaction with self. One who is pleased with his own righteousness will see no need for God’s. 2) Freedom from dependence on external things for satisfaction. Nothing but God’s own righteousness can satisfy the person who has true spiritual hunger and thirst. 3) Craving for the Word of God, the basic spiritual food He provides His children. The more we seek God’s righteousness, the more we will want to devour Scripture. 4) The pleasantness of the things of God. Even the Lord’s reproofs and discipline bring satisfaction, because they are signs of our Father’s love. 5) Genuine hunger is unconditional and will seek and accept God’s righteousness in whatever way He chooses to provide it, and will obey His commands no matter how demanding they may be. The least of God’s righteousness is more valuable than the greatest of anything we possess in ourselves or that the world can offer. 
 (MacArthur)
+
+
+
+
+
+
+
+
+
 
 
 
@@ -991,6 +1188,15 @@ We do not earn salvation by being merciful. We must be saved by God’s mercy be
 
 
 
+
+
+
+
+
+
+
+
+
 #### “Blessed are the pure in heart, for they shall see God.
 
 5:8: “**Blessed** [anticipating God’s presence, spiritually mature] are the **pure in heart** [those with integrity, moral courage, and godly character], for they will see God.” (AMP)
@@ -1041,6 +1247,15 @@ God always provides for what He demands, and He has provided ways for us to live
 When our hearts are purified at salvation we begin to live in the presence of God. We begin to see and to comprehend Him with our new spiritual eyes. Purity of heart cleanses the eyes of the sould so that God becomes visible. 
 One sign of an impure heart is ignorance, because sin obscures the truth. Other signs of an impure heart are self-centeredness, pleasure in sin, unbelief, and hatred of purity. Those who belong to God exchange all of those things for integrity and purity.
 (MacArthur)
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1125,6 +1340,15 @@ Peacemaking is a hallmark of God’s children. A person who is continually disru
 
 
 
+
+
+
+
+
+
+
+
+
 #### “Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of heaven. Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you.”
 
 5:10: Господь обещает **гонимым за правду** царство небесное как бы взамен того, чего лишаются они через гонение. (Православный Катехизис Филаретовский)
@@ -1198,6 +1422,15 @@ We serve and obey Christ first of all because we love Him, but secondly, it’s 
 
 
 
+
+
+
+
+
+
+
+
+
 #### Salt and Light
 
 5:13: **Salt** is a flavoring, and a preservative. As Christian, we are to be people of influence, and not just be "tasteless" . We are to serve as a preserving elements of an otherwise degrading and ungodly society. (John Strohman)
@@ -1249,6 +1482,17 @@ Christ is the true light, and we are His reflections. He is the Sun, and we are 
 But when what we do causes people to be attracted to us rather than to God, to see our human character rather than His divine character, we can be sure that what they see is not His light. (MacArthur)
 
 5:16: **Let your light shine before others**. This is the core message of Christianity: God saves people from sin. And after saving the sinner, God leaves this sinner on Earth so that others can see that He is a saving God. When they see that, they will glorify him, meaning, that they will Mill what he can do, and perhaps, want it for themselves. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1402,6 +1646,15 @@ It is tragic that many people today, like the scribes and the Pharisees, will tr
 
 
 
+
+
+
+
+
+
+
+
+
 #### Introduction: Correcting Pharisees
 
 5:21-43: (<u>contrast</u>) In the rest of the chapter, Jesus gives 6 illustrations correcting the rabbinical, traditional teaching. Knowing that His self-righteous hearers could not possibly understand what He was saying, Jesus contrasted human teaching with the divine Word of God.
@@ -1418,6 +1671,15 @@ These examples deal with specific subjects of murder, sexual sin, divirce, speak
 In a less extreme way, the Jews of Jesus’ day had been separated from their Scriptures. Even though there was a Septuagint, it was bulky and expensive, and it was not used or understood by most Jews in Palestine. When it was read, most hearers understood little, and accepted whatever the leaders said.
 ANd most scribes and rabbis did not attempt to expound the scriptural text itself, but rather taught from the Talmud, an exhaustive collection of rabbinical traditions.
 (MacArthur)
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1516,6 +1778,15 @@ In the valley, King Ahaz had “burned his sons in fire” (2 Chron 28:3) and er
 
 
 
+
+
+
+
+
+
+
+
+
 #### Lust
 
 5:27-30: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to unmask the self-righteous externalism typified by the scribes and Pharisees by showing that the only righteousness acceptable to God is purity of heart. Without that purity, the outward life makes no difference. God’s divine evaluation takes place in the heart. (MacArthur)
@@ -1580,6 +1851,15 @@ Getting rid of harmful influences will not change a corrupt heart into a pure he
 
 
 
+
+
+
+
+
+
+
+
+
 #### Divorce
 
 5:31-32: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to correct the perversions of the rabbinical tradition, which accommodated for the desires of the people to lower God’s standard to their own sinful needs, and is bringing people back to the understanding of the Law as it was given in the OT.
@@ -1616,6 +1896,15 @@ That’s not a change of the OT law. In the OT, adultery would necessarily disso
 
 
 
+
+
+
+
+
+
+
+
+
 #### Oaths
 
 5:33-37: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to correct the perversions of the rabbinical tradition, which accommodated for the desires of the people to lower God’s standard to their own sinful needs, and is bringing people back to the understanding of the Law as it was given in the OT.
@@ -1635,6 +1924,15 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 5:34: **Do not take an oath at all**. In light of OT passages approving oaths, and Him not coming to abolish the law, it can hardly be correct, as many interpret this passage, that Jesus here forbids the making of any oath under any circumstance. In accordance with the OT, we are to swear by no other name but God’s. The greatest error in the system was in its basic deceptiveness, and this is what Jesus is speaking against.
 
 5:37: **Yes, yes. No, no**. Christian character has to be of such an integrity that every word is true even without an oath, and every **yes** can be trusted to be a true **yes**, and every **no** really means **no**. Jesus commends simple truthfulness in thought, word and deed.
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1692,6 +1990,15 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 5:41: **Go with him two miles**. Even with so despised a burden, we should carry it willingly. And we should surrender even more of our liberty rather than retaliate. In doing so, we are obedient to our Lord and testify to His righteousness. (MacArthur)
 
 5:42: **The one who begs**. The implication is that the person has a genuine need. We are not to respond to every foolish, selfish request made of us. Sometimes to give a person what he wants but does not need is a disservice, doing him more harm than good. (MacArthur)
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1787,20 +2094,28 @@ Jesus did not quote scripture, but taught, placing an emphasis on His authority 
 
 
 
-
-
-
-
-
-
-
-
-
 ### Chapter 6
 
 6:1-18: (<u>the flow of the Sermon on the Mount</u>) Mt 5:21-48 focuses on *the teaching* of the law: on what men believe; the following verses of 6:1-18 focus on *the practice* of the law, what men do. 
 The three representative illustrations that Jesus considered: our religion as it acts towards others (alms); our religion as it acts towards God (praying); our religion as it acts in relation to ourselves (fasting).
 (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1885,6 +2200,25 @@ You say, “But what am I going to do to make sure?" The Lord will bless. And th
 
 6:4: **And your Father who sees in secret will reward you.**. The principle is this: if we remember, God will forget; but if we forget, God will remember. Our purpose should be to meet every need we are able to meet, and leave the bookkeeping to God. (MacArthur)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### On Prayer
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus continues His contrast of true and false righteousness. He exposed the hypocritical giving, will expose their hypocritical fasting, and now He exposes an equally hypocritical praying, as typified by the scribes and Pharisees. (MacArthur)
@@ -1957,6 +2291,24 @@ Some people prayed it honestly, with a worshipful heart. Others went through the
 6:9-13: Jesus gave us an outline. 9. In reverent praise. 10. For the coming **kingdom**. 11. For **daily** provision. 12. For spiritual protection by being **deliver**ed **from evil**. 13. For **forgive**ness of our sins, for the forgiveness of others. (John Strohman) 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### The Lord's Prayer
 
 6:9: **Pray**. "Prayer will make a man cease from sin, or sin will entice a man to cease from prayer" (John Bunyan)
@@ -1986,6 +2338,25 @@ The second section deals with man's needs: petitions for daily bread, forgivenes
 6:9-13: From the perspective of the attitude and spirit of prayer: **Our** reflects unselfishness; **Father** family devotion; **hallowed be Thy name** reverence; **Thy kingdom come** loyalty; **Thy will be done** submission; **give us this day our daily bread** dependence; **forgive us our debts** penitence; **do not lead us into temptation** humility; **Thine is the kingdom** triumph; **and the glory** exultation; **forever** hope. (MacArthur)
 
 6:9-13: (<u>Structure</u>) Every element centers on God, acknowledging His: paternity, priority, program, plan, provision, pardon, protection, preeminence. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ##### The Lord's Prayer: Petitions for God's glory
 
@@ -2024,6 +2395,25 @@ To pray for God's will to be done is to pray for satan's will to be undone.
 
 6:10: **Thy will be done**. To pray rightly is to pray in faith, believing that God will hear and answer our prayers. I think the greatest hindrance to prayer is not lack of technique or knowledge or even enthusiasm, but lack of faith. We simply do not pray with the expectation that our prayers will make a difference in our lives, in other people's lives, in the world. (MacArthur)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ##### The Lord's Prayer: Petitions for man's needs
 
 6:11: (<u>God' Provision</u>) 
@@ -2033,6 +2423,24 @@ To pray for God's will to be done is to pray for satan's will to be undone.
 6:13: (<u>God' Protection</u>) 
 
 6:13: (<u>God' Preeminence</u>) 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 #### Fasting
@@ -2080,6 +2488,24 @@ You can tell people that you have fasted; just don't parade that. And God will s
 (MacArthur)
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### Lay Up Treasures in Heaven
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
@@ -2119,11 +2545,42 @@ earned, to buy things they don't want, to impress people they don't like."
 
 6:23: Jesus discusses the importance of not suffering from spiritual blindness. The tragedy is that the Son's victim does not even know he is blind. As he continues down the road of destruction, the blindness will manifest itself when he no longer hides his sin but openly defends it. (John Strohman)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 #### Do Not Be Anxious
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
 6:25: A threefold **do not be anxious**. We do not realize that worry is a manifestation of self-reliance. When we fret, we are not trusting in our Heavenly Father (John Strohman)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2174,9 +2631,33 @@ See also in Acts 20:32: "I commend you to the word of [God's] grace, which is ab
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 8
 
 8:8: Вера не только открывает человеку, какой Бог; вера также открывает человеку, каков он сам. Сотник называет себя недостойным именно по этой причине: он верит
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2200,6 +2681,18 @@ I think what makes it so fascinating to me also: he also had a name Levi, which 
 (MacArthur)
 
 9:14: Devout Jews  used to fast twice a week (Lk 18:12: "I fast twice a week"). To them, that was emblematic of holiness. And so they ask Jesus: why don't Your disciples fast??! What Jesus told them was that there is a time for fasting, and there is a time for joy. Fasting is a unique experience that is identified with grief and sorrow and pain, isolation, loneliness, fear, those kinds of times that *would not exist when you are walking in the presence of Jesus Christ*! Fasting, in the teaching of Jesus, is for the times of great concern, great anxiety, great sorrow, and great prayer. There are times when it wouldn't be appropriate to fast because you're enjoying the fullness of the presence of God and His blessing. Fasting reserved for the times of prayer: when we're so engulfed that we have no desire to eat. // Some people think that if you just arbitrarily don't eat, there's some spiritual virtue in it. But the real issue is in the prayer area.  (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2235,6 +2728,18 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 11
 
 11:12: “От дней же Иоанна Крестителя и доныне Царство Небесное силою берется, и люди стремятся овладеть им, полагаясь на свои усилия” (BTI)
@@ -2242,6 +2747,18 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 11:12: The pressing multitudes that had followed John continued to follow Jesus’ ministry (Luke 5:15; 12:1). This is the key to understanding Jesus’ statement that the kingdom of God suffers violence. Pointing to the huge crowds that followed John and that were now following Him, Jesus likens them to an invading army surrounding a city to capture it. “**From the days of John the Baptist until now**,” there has been an extraordinary rush of people pressing in from all sides, eager for a blessing. The “**kingdom of heaven suffers violence**,” figuratively speaking, in that people were so thronging to hear the gospel that they resembled an army trying to besiege a city. And the “**violent take it by force**”; the people entering the kingdom were not violent literally, but their eagerness to see the coming of the Messiah was so overwhelming that it was as if they were attacking a city and beating down the doors to enter. (<u>[gotquestions.org](https://www.google.com/url?q=https://www.gotquestions.org/kingdom-God-suffers-violence.html&amp;sa=D&amp;ust=1582399365448000)</u>)
 
 11:12: The word translated “**the violent**” always carries a negative connotation. It therefore cannot describe a positive action, as in “eager men are forcing their way into it” (J.B. Phillips). It must refer to those who opposed the kingdom. This becomes even more obvious when we recognize that the word translated “**take**” (or “lay hold of”) almost always involves malicious intent. Therefore the wicked people that fit this description are Herod Antipas, who imprisoned John the Baptist (v. 2), and the Jewish leaders who opposed Jesus’ ministry, and the kingdom to be under attack by the forces of darkness, represented by those **violent people**. (David Briones)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2271,6 +2788,18 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 13
 
 13:20-21: So it is possible to **receive** the word, even to have **joy** about it, and show all the signs of being on the right path … and yet prove to be the one who **falls away**.
@@ -2284,6 +2813,18 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 13:46: Notice that the **merchant** had to sell **all** that he had, and was willing to do so. This represents letting go of the things we used to value in order to get something that is far better.
 
 13:47-48: This is how the modern day church works: like a **net**, it gathers **fish of every kind**: both believers and unbelievers; but when it is **full**, when the endtime comes, it will be **sorted**. Apostle Paul expresses the same idea in 1 Cor 11:19: even within the church there are factions, and it “has to be” so, for when people divide, those who are genuine tend to stick together, and are thus clearly seen.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2310,11 +2851,35 @@ So, before you get on Peter’s case, realize where he was. People say, well, Pe
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 15
 
 15:19:  sin pervades us, all of our inmost being.  Sinfulness is at the very core of the human soul.  Jesus said, for example in Matthew 15:19 and 20, “Out of the heart come evil thoughts, murders, adulteries, fornications, thefts, false witness, slanders.  These are the things which defile the man.”  And then he said, “The evil man out of the evil treasure of his heart brings forth what is evil, for his mouth speaks from that which fills his heart,” Luke 6:45.  In other words, down deep in the human heart is pervasive sinfulness, and it rises to create the kind of words and the kind of actions that we label as sinful.  Frankly, it is human nature to love sin and hate God.  The carnal mind, Romans 8:7 says, is enmity against God.  We are born loving sin, loving ourselves, hating righteousness, and hating God.  Yet, though we are born that way, mark this, sin is not a weakness or a flaw for which we cannot be held responsible.  It is an energetic, purposeful antagonism toward God that rises out of our will.  Sinners freely, willfully and gladly choose sin.  In other words, the sin that is in us manifests itself in a deliberate, willful rebellion against God. (MacArthur)
 
 15:19: eventually, those things on the inside will show up on the outside.  No one ever falls into adultery.  We read about that with pastors and others.  No one ever falls into adultery.  The adulterer’s heart has been shaped by a long process of sinful thoughts and lustful thoughts.  It gets shaped that way.  The heart of the thief, it is bent long before his act of thievery by covetousness.  All sin is first incubated in the mind.  And James says in James 1:13, “Let no one say when he is tempted.  I’m being tempted by God for God cannot be tempted by evil and He doesn’t tempt anyone, but each one is tempted when he is carried away and enticed by his own lust.  When lust is conceived it gives birth to sin, and when sin is accomplished it brings forth death.”  Don’t be deceived, brethren, it all starts inside. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2361,9 +2926,33 @@ Whatever it is that I have spent my life accumulating, even if I gain the world
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 17
 
 17:12: The difficulty here is that John explicitly says that he is not **Elijah **in Jn 1:21. John indeed is not Elijah himself, but has come “in the spirit and power of Elijah" (Lk 1:17). See: [https://christianity.stackexchange.com/questions/14020/](https://www.google.com/url?q=https://christianity.stackexchange.com/questions/14020/how-did-john-the-baptist-have-the-spirit-and-power-of-elijah?newreg%3De7331f57bde74d2eb4da877bdec06cce&amp;sa=D&amp;ust=1582399365454000)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2393,9 +2982,32 @@ Whatever it is that I have spent my life accumulating, even if I gain the world
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 19
 
 19:24: See note on 6:4, where it explains that Jews believed giving alms saves the soul. Consequently, it was easier for the rich to get into heaven.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2410,6 +3022,18 @@ Whatever it is that I have spent my life accumulating, even if I gain the world
 20:2: The Jewish interpretation by Rashi argued that when a stranger comes to town, the proper thing to do would be to inquire if he needs food and drink, not whether his female companion is a married woman, and hence as Abimelech did the latter, it tipped off Abraham to the fact that there is no fear of God in this place, and so he lied about his relationship with Sarah in order to avoid being killed. Consequently, it could be argued that the parallel behaviour results from this lack of fear of God by the antagonists in the other two similar situations.
 Christian interpretation of the incidents has varied considerably. Some commentators have seen them as regrettable exceptions in the lives of those who otherwise lived upright lives, in the same sense perhaps as Noah's and Lot's drunkenness and David's adultery. On the other hand, commentators such as Allan Turner, in his essay "Lying: Is It Ever Right?", takes the standpoint that the patriarchal individuals did not actually lie, but merely concealed part of the truth.
 (Wikipedia)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2433,7 +3057,29 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 22
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2457,7 +3103,29 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Chapter 24
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2473,6 +3141,18 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 25:44: The hallmark of the wicked is to do good (including showing mercy) to people only when there is something in it for themselves: be it any immediate benefit, a potential of reciprocity, or just a chance to look good in the eyes of others. The wicked share in the surprise of the righteous when they learn that the Lord was among those needy people, but their additional surprise was about missing such an opportunity: had they only known that there have been chances to do the right thing personally to the Lord (servility, fake obedience), they wouldn’t have missed it.
 
 25:44: The vindictive, heartless, indifferent are not subjects of Christ’s kingdom. When they pass need by on the other side, as the priest and the Levite did in the story of the good Samaritan, they show they have passed Christ by.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2501,6 +3181,18 @@ What does it say about their religion?
 26:75: **Peter** lied to save his life. Nevertheless, this was treason: he **denied** Jesus, nothing less. If it's a sin to deny knowing God to save one's life, how much more bolder shall we be in confessing Jesus when our life is not in danger?
 
 26:75: Later **Peter** had to confess his love for Jesus the same number of times (Jn 21:15-17).
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

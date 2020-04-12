@@ -10,6 +10,18 @@ Reading Genesis 1-11 (Primeval history), readers will see that it’s designed t
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### The Creation of the World
 
 1: After declaring that God is the Creator of all things (v. 1), the focus of the rest of Genesis 1 is mainly on God bringing things into existence by His word and ordering the created things, rather than on how the earth was initially created. (ESV)
@@ -109,6 +121,18 @@ Reading Genesis 1-11 (Primeval history), readers will see that it’s designed t
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### The Fall
 
 3:4: In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
@@ -190,6 +214,18 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Cain and Abel
 
 4:1: This chapter shows mankind plunging further into sin, with Cain murdering Abel, and Lamech boasting of a murder for a simple offence. (ESV)
@@ -237,6 +273,18 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Adam’s Descendants
 
 5:3: While this implies that **Seth** is made, like **Adam**, in the divine **image**, it also suggests that he images his father as well; Seth’s line, however, is certainly portrayed more positively than that of Cain. (ESV)
@@ -262,6 +310,18 @@ In the end, the flood must have happened in the years 1656-1658 after creation. 
 5:31: The number **777** does not look that nice in Hebrew: שֶׁ֤בַע (še·ḇa‘). 
 
 5:31: **Lamech’s 777** years provides an interesting point of contact with his namesake in Ch. 4, where another Lamech, a descendant of Cain, boasted for murdering a man for striking him, and talking about a seventy-sevenfold vengeance (Gen 4:23-24: “Lamech said to his wives: ... I have killed a man for wounding me, a young man for striking me. If Cain's revenge is sevenfold, then Lamech's is seventy-sevenfold”). (seventy-seven: וְשִׁבְעָֽה׃ (wə·šiḇ·‘āh))
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -404,6 +464,18 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### The Table of Nations
 
 10: In general, the descendants of Ham settled in North Africa and the eastern Mediterranean coast, the descendants of Shem in Mesopotamia and Arabia, and the descendants of Japheth in Europe and the greater area of Asia Minor. (ESV)
@@ -417,6 +489,18 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 10:21: These are the people with whom Israelites felt the most affinity, for Abraham was descended from **Shem**. Insofar as they can be identified, many of these are Arabian tribes or kingdoms. (ESV)
 
 10:21: **Eber** is mentioned even before Shem’s own sons are named. The designation “Hebrew” (Hb. ‘ibri; see 14:13) is derived from “**Eber**” (Hb. ‘eber). (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -452,6 +536,18 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Shem’s Descendants
 
 11:28: **Ur** was a city with a highly developed urban culture. (ESV)
@@ -464,6 +560,18 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:32: If Abram was born when **Terah** was 70 years old (see v. 26), and if Abram was 75 years old when he departed for Canaan (see 12:4), then Terah **died** 60 years after Abram’s departure. 
 In Acts 7:4, however, Stephen says that Abram left **Haran** after the **death** of **Terah**. A simple way to resolve the chronological difficulty is to suppose that Stephen was following an alternative text (represented today in the Samaritan Pentateuch), which says that **Terah died** at the age of 145. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -503,6 +611,18 @@ In Acts 7:4, however, Stephen says that Abram left **Haran** after the **death*
 12:7: This is the first of a number of manifestations of **God** to the patriarchs. These are often associated with divine promises. On this occasion **God** promises the **land** to the descendants of **Abram**, although he is still childless. In response, Abram **builds an altar to the LORD**. (ESV)
 
 12:9: **Negeb**. **Abram** moves further south, towards Egypt. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -554,6 +674,18 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Abram and Lot Separate
 
 13:1: **Abram** did not leave **Egypt** voluntarily: after the situation around his wife, they were expelled from Egypt (12:20: “sent him away”).
@@ -576,6 +708,18 @@ It must be to emphasize the futility of Lot’s choice that the author has chose
 13:18: A cuneiform tablet discovered there from this time period indicates that **Hebron** was a capital city of a Canaanite kingdom. (ESV)
 
 13:18: Repeated mentions of **building altars to the Lord** indicates that even though **Abram’s** faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -615,6 +759,18 @@ It must be to emphasize the futility of Lot’s choice that the author has chose
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### God’s Covenant with Abram
 
 15:1: **After these things.** **Abram** rejected the offer from the king of Sodom for the victory spoils as a reward. In response, God now states that Abram’s reward shall be very great. By rejecting the use of human wealth to achieve greatness, Abram demonstrates his willingness to wait for God to provide. (ESV)
@@ -632,6 +788,18 @@ It must be to emphasize the futility of Lot’s choice that the author has chose
 15:16: **Amorites** were the descendants of Ham (Gen 10:16). The Amorites will be dispossessed of their land as an act of divine punishment. At that time, their accumulated iniquity will be so great that God will no longer tolerate their presence in the land. (ESV)
 
 15:18: God unconditionally pledges that Abram’s offspring will possess this land. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -671,6 +839,18 @@ It must be to emphasize the futility of Lot’s choice that the author has chose
 16:15: By naming **Ishmael**, **Abram** publicly acknowledges him as his son and heir. (ESV)
 
 16:16: Ishmael is born 11 years after Abram settled in the land of Canaan (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -735,6 +915,18 @@ It must be to emphasize the futility of Lot’s choice that the author has chose
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Isaac's Birth Promised
 
 18:1: It’s been *years* since Abraham settled at the **oaks of Mamre**, but he is still dwelling in a **tent** (ESV).
@@ -770,6 +962,18 @@ Either way, she was not at the table.
 At the same time, **Sarah** had faith, because it is “by faith [that she has] received power to conceive” (Heb 11:11).
 
 18:19: God’s **promise** is conditional upon **Abraham**’s descendants’ **keeping the way of the Lord**, and that is, **by doing righteousness and justice**: something that the believing Jews of the distant future will forget.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -910,6 +1114,18 @@ The **fear** was sufficiently strong to drive the whole family into a distant *
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Abraham and Abimelech
 
 20:2: Sarah is pregnant, and **Abimelech’s** actions put in jeopardy the fulfillment of God’s promise to Abraham that Sarah will bear him a son. (ESV)
@@ -939,6 +1155,18 @@ The **fear** was sufficiently strong to drive the whole family into a distant *
 20:11: **There is no fear of God at all in this place**. Abraham’s response betrays both his lack of faith in God and his misjudgment of the people of Gerar. The whole episode reveals that the king and his servants were God-fearing. (ESV)
 
 20:15: **My land is before you**. Abraham had wronged **Abimelech**, but the king, who is innocent, shows generosity to Abraham. Kings’s actions contrast sharply with Abraham’s self-serving deception. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -991,6 +1219,18 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### A Treaty with Abimelech
 
 21:22: **God is with you in all that you do**. No wonder: his house had been punished because of Sarah, and even God spoke to him personally saying that Abraham is a prophet. And now Abimelech sees an old man making children with an equally old lady, and attributing the glory for that to God! That man is full of miracles.
@@ -1014,6 +1254,18 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 21:32: The use of the term “**Philistines**” here is generally taken to be anachronistic, since the name is normally associated with non-Canaanites from the Aegean region who inhabited southwest Canaan from about 1180 B.C. onward—nearly a thousand years after Abraham’s time. (In 1 Samuel the Philistines are portrayed as the main opponents of the Israelites.) In light of this, the term may be used here and elsewhere to replace an earlier, obscure term; Genesis contains various examples of such modernizations. (ESV)
 
 21:33: **Everlasting God** (Hb. ’El ‘Olam). ’El = God, followed ‘Olam: the attribute “of everlastingness”. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1119,6 +1371,18 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Sarah's Death and Burial
 
 23:2: **Mourn and weep**. He loved her dearly.
@@ -1150,6 +1414,18 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 23:19: According to tradition, **the cave of Machpelah** is located beneath the present Mosque of Abraham in Hebron. (ESV)
 
 23:20: **Made over to Abraham as a property**. Abraham’s purchase of the field and cave meant that his descendants would own this land in perpetuity. Abraham, Isaac, Jacob, Rebekah, and Leah would later be laid to rest in this cave. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1214,6 +1490,18 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Abraham's Death and His Descendants
 
 25:1: **Took another wife**. God must have permanently enabled Abraham to have children, for even before the birth of Isaac his body had already been “as good as dead”, and he still was able to produce more children after Isaac.
@@ -1231,6 +1519,18 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 25:11: **God blessed Isaac**. There existed a special relationship between God and Isaac, the continuation of the relationship Abraham had.
 
 25:11: **Beer-lahai-roi**. “The well of the living one who sees me” (Gen 16:14)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1266,6 +1566,18 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### God's Promise to Isaac
 
 26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. **Isaac**, however, is stopped by God and instructed to remain in **Gerar** while he was already moving south. (ESV)
@@ -1277,6 +1589,18 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 26:3: **Sojourn in this land, and I will bless you**. The Lord instructs Isaac to remain in Canaan, with the promise that he will be blessed for doing so. (ESV)
 
 26:5: **Kept my commandments**. The words underline that Abraham’s obedience to God was unreserved. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1315,6 +1639,18 @@ The covenant seems to become a covenant between nations.
 26:33: **Beersheba**. The word had already been used in v. 23, and had been used before in the Abraham’s story, which indicates that the author is well aware of anachronisms he intentionally inserts for clarity.
 
 26:34: **Esau** chose two wives, not one. Apparently, he did not choose wisely either. Both of the are of the Hittite origin, which may indicate ungodliness. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1381,6 +1717,17 @@ The covenant seems to become a covenant between nations.
 
 
 
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob Sent to Laban
 
 28:1: **Called Jacob and blessed him**. Interestingly, if Isaac was disappointed in Jacob after his nefarious deception, he still wants the best for him: **You must not take a wife from the Canaanite women**. Or is he afraid that Jacob would pick up their pagan religion?
@@ -1397,6 +1744,17 @@ The covenant seems to become a covenant between nations.
 
 
 
+
+
+
+
+
+
+
+
+
+
+
 ### Esau Marries an Ishmaelite
 
 28:6-7: There is an antithesis of the two sons. Esau **took Canaanite women**, but Jacob did not. Esau disobeyed his father in this, but **Jacob obeyed**. 
@@ -1404,6 +1762,17 @@ The covenant seems to become a covenant between nations.
 28:8: **Did not please Isaac**. Esau seeks to make amends for his earlier actions. To gain his parents’ approval, he marries one of Ishmael’s daughters. Esau, however, still retains his two Hittite wives. (ESV)
 
 28:8: **Did not please Isaac**. The text clearly shows that his motivation for taking another wife was to please his father. Why? Did he hope to receive a blessing?
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1448,6 +1817,19 @@ The covenant seems to become a covenant between nations.
 28:22: **this stone … shall be God’s house**. Jacob promises that he will construct a sanctuary for God, the consecrated stone being the first part of the process. (ESV)
 
 28:22: **Tenth**. A tithe.
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1503,6 +1885,21 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 29:27: **Complete the week of this one**. The wedding celebrations lasted for seven days. Laban persuades Jacob to complete this process with Leah on the understanding that he will then be able to marry Rachel. This would also give ample opportunity for Leah to conceive a child. (ESV)
 
 29:30: **served Laban for another seven years.** The implication is that Jacob served 14 years without earning any possessions for himself or his family.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1589,6 +1986,20 @@ From Rachel: **Joseph**: "take away".
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob's Prosperity
 30:25: **As soon as Rachel had borne Joseph**. That would be 14 years into their marriage, because this is how much Jacob had agreed to serve. Interesting coincidence? well... unless Jacob is trying to leave sooner than it was agreed.
 
@@ -1628,6 +2039,20 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 30:43: **The man increased greatly**. After working for 14 years for his two wives, Jacob would now work 6 years for himself (Gen 31:41: "twenty years"). From Jacob's speech in Gen 31:36-42 we learn that he's worked faithfully, suffered loss, suffered injustice from the hands of Laban, had his wages cut, and still worked faithfully. A blameless person he's been made into.
 
 30:43: **Female servants and male servants**. It's unclear where those servants came from. When Jacob arrived to Paddan-Aram, he only had his staff with him (Gen 32:10: "with only my staff I crossed this Jordan"; staff = walking stick). Was he given more servants? Were they born to Bilnah and Zilpah?
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1748,6 +2173,18 @@ Ancient Near Eastern treaties normally involved the gods as witnesses, the treat
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob Fears Esau
 
 32:1-2: **the angels of God met him**. More probably, as Jacob on his road to Padan Aram had been assured of God's watchful care of him by the vision of the angels ascending and descending the stairs, so now also in a dream he sees the angels encamped on each side of him, to assure him of protection against his brother. (Ellicott's Commentary)
@@ -1797,6 +2234,13 @@ Thirdly, he prayed for God's help.
 32:13: **He took a present**. Jacob demonstrates a curious mix of prayer, where he asks God for help, and action, where he does what's possible. He didn't count on God doing everything for him; he's learned that God helps those who act, and who act righteously.
 
 32:18: **your servant Jacob … my lord Esau**. Jacob’s deferential attitude is noteworthy, given earlier statements about the older serving the younger (see 25:23) and Isaac’s blessing, which speaks of Jacob’s being lord over his brothers (27:29). (ESV)
+
+
+
+
+
+
+
 
 
 
@@ -1863,6 +2307,13 @@ How did he understand that? Well, he has recently prayed, fervently. His heart a
 32:29: **Скажи имя Твое**. Конечно, Иаков доселе думал, что Божество явилось ему в лице Ангела; и вопросил о имени его или для того, чтобы после употреблять сие имя в призывании Бога, или для того, чтобы ответствовать на благословение, или для того, чтоб имя явившегося дать месту явления. (Свт. Филарет (Дроздов))
 
 32:29: **На что ты спрашиваешь о имени Моем?** Ты не можешь благословить Меня новым именем, как Я тебя. (Свт. Филарет (Дроздов))
+
+
+
+
+
+
+
 
 
 
@@ -1961,6 +2412,17 @@ Why then did he send messengers (Gen 32:3) to inform Esau of his coming, if he w
 
 
 
+
+
+
+
+
+
+
+
+
+
+
 ### The Defiling of Dinah
 
 
@@ -1977,27 +2439,431 @@ Why then did he send messengers (Gen 32:3) to inform Esau of his coming, if he w
 
 
 
+
+
+
+
+
 ### God Blesses and Renames Jacob
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### The Deaths of Rachel and Isaac
 
 35:29: **Esau and Jacob**. Last time they've seen each other was at Peniel, where Esau came with 400 men to meet his brother Jacob, and then went back to Seir alone, while Jacob has had a change of plans.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Esau's Descendants
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph's Dreams
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Judah and Tamar
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph and Potiphar's Wife
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Interprets Two Prisoners' Dreams
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Interprets Pharaoh's Dreams
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Rises to Power
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph's Brothers Go to Egypt
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph's Brothers Return to Egypt
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Tests His Brothers
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Provides for His Brothers and Family
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Brings His Family to Egypt
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob and Joseph Reunited
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob's Family Settles in Goshen
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob Blesses Ephraim and Manasseh
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob Blesses His Sons
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob's Death and Burial
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### God's Good Purposes
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### The Death of Joseph
