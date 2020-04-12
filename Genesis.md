@@ -2388,9 +2388,9 @@ Why then did he send messengers (Gen 32:3) to inform Esau of his coming, if he w
 
 33:18: **Сихем**. У евреев есть предание, что в этом месте бедро хромающего Иакова окрепло и стало здоровым. Поэтому и город получил название в честь исцелённого и ставшего совершенным бедра. (Блж. Иероним Стридонский) 
 
-33:18: **Schechem**. Jacob goes further west. It's about 32km west of Succoth.
+33:18: **Shechem**. Jacob goes further west. It's about 32km west of Succoth.
 
-33:18: **Schechem** was the first place named in connection with Abraham’s arrival in Canaan. God had appeared to Abraham here and promised Him many descendants (Gen 12:67). And here one descendant, Jacob, is going to *purchase a piece of land* (v. 19) and *build an altar* to the Lord. (ESV)
+33:18: **Shechem** was the first place named in connection with Abraham’s arrival in Canaan. God had appeared to Abraham here and promised Him many descendants (Gen 12:67). And here one descendant, Jacob, is going to *purchase a piece of land* (v. 19) and *build an altar* to the Lord. (ESV)
 
 33:19: **He bought the piece of land**. Jacob has started to acquire property in Canaan, the promised land.
 
@@ -2425,11 +2425,92 @@ Why then did he send messengers (Gen 32:3) to inform Esau of his coming, if he w
 
 ### The Defiling of Dinah
 
+34:1: **Дина**. Прошло не менее чем 8 лет после прошлой главы: Дина, родившаяся в конце второго семилетия службы Иакова у Лавана (30:21), уже взрослая девушка лет 16. Ей было 6–7 лет при прибытии Иакова в Сокхоф, около 2 лет Иаков жил там и, следовательно, жил около 8 лет в Сихеме). Симеон и Левий тоже стали взрослыми юношами. (Лопухин А.П.) 
 
+34:3: **Spoke tenderly to her**. It is striking that after such an event she stayed with him, and they even talked.
 
+34:3: **Говорил по сердцу девицы**. Должно думать, что утешал обещанием правильного супружества. (Свт. Филарет (Дроздов))
 
+34:6: **Went out to Jacob**. Some days have already passed.
 
+34:5: **Jacob heard** and did nothing. Because *his numbers are few*, and it was not in his power to respond with force (v. 30). 
+Dinah have not returned was still at Shechem's house (v. 26). But probably, he couldn't do much, because it was *the prince of the land*: a powerful person in a foreign land.
 
+34:7: **In Israel**. The first time Israel is mentioned as a people.
+
+34:9: **Make marriages with us**. That's something that God will explicitly prohibit: marriages with pagan people. Jacob already knew that, for he's seen how bitter the life of Isaac has become because of the pagan wives of Esau. He himself went to Paddan-Aram to find himself a wife.
+
+34:10: **Dwell with us**. That's the king of the land speaking. Such words sound like an official invitation, and refusing an invitation like that might mean a diplomatic conflict.
+
+34:11: **Let me find favor in your eyes**. Shechem the prince is trying to make amends for what he has done.
+
+34:13: **The sons of Jacob answered**. Although Hamor comes to speak to Jacob (v. 6), the latter appears to be pushed aside by his sons. They are the ones who engage in discussion with Hamor and Shechem. (ESV)
+
+34:13: **Deceitfully**. The Hebrew term used here (*mirmah*) implies treachery. Although Jacob’s sons resemble their father, whose name means “he deceives” (see 25:26), their actions here are about to go beyond anything he has done. (ESV)
+
+34:13: **Deceitfully .. because he had defiled**. No doubt, they thought they had the right to act treacherously because of the prior injustice dealt to their family by Shechem. That's a very human approach: to find excuses for sinful behaviors, appealing to circumstances and the deeds of other people. Calling that "justice".
+
+34:14: **Who is uncircumcised**. While Jacob’s sons are right to insist that circumcision is necessary in order for both groups to become one people, their intention is not to bring those people to God, but to murder them. (ESV)
+
+34:15: **Be circumcised**. They are using the sign of God's covenant as the means for achieving revenge. Isn't that double nasty?
+
+34:15: **Be circumcised**. The brothers realized that they cannot defeat a king in his full power. 
+
+34:15: **Circumcision**, which was intended by God to bring divine blessing, leads on this occasion to death and destruction. All of this takes place without any reference to God. (ESV)
+
+34:15: **Обрезание**. Само предложение обрезания не могло ни удивить, ни раздражить евеян: обрезание, по свидетельству Геродота, существовало издревле у египтян, финикиян и др., след., могло быть известно и у хананеян, которые в Библии обычно не называются необрезанными. Скорее удивительно, что евеяне оставались необрезанными, когда, напр., сильное племя Измаила, несомненно, имело обрезание. О внутреннем значении и смысле обрезания сыновья Иакова ничего не говорят Сихему и Еммору. (Лопухин А.П.)
+
+34:16: **Become one people**. This deception has gone really far.
+
+34:19: **He was the most honored of all his father's house**. A man capable of rape is **most honored**? Tells us a lot about those people's morals and values. They probably respected people acting "manly".
+
+34:20: **Spoke to the men**. Probably, not trying to convince them, but using their power and reputation to have them do what Shechem wanted.
+
+34:21: **Their daughters**. It is clear that Israel did not have many daughters at the moment.
+
+34:23: **Their livestock, their property, will be ours**. This is something that's more likely to motivate the folks. Greed.
+
+34:24: **Every male was circumcised**. They were ready to go through a painful operation in order to have women and cattle.
+
+34:25: **На третий день**. Абен–Езра замечает, что болезнь обрезания обыкновенно сильнейшим образом чувствуется на третий день. (Свт. Филарет (Дроздов))
+
+34:25: **На третий день**.Третий день после совершения обрезания характеризуется наибольшим воспалением раны после операции.  (Лопухин А.П.)
+
+34:25: **Simeon and Levi**. Sons of Leah.
+
+34:25: **Simeon and Levi**. Although all sons were involved in the deception of Hamor and Shechem, only Simeon and Levi are involved in the slaughter. (ESV)
+
+34:25: **Took their swords**. They were acting without the consent of their father, the head of the family.
+
+34:25: **Killed all the males**. A clear overreaction: for the transgression of one person, should the whole city be put to the sword? It's incredible how much hatred they had.
+
+34:25: **Killed all the males**. While the rape of Dinah by Shechem is inexcusable, the punishment meted out by Simeon and Levi far exceeds the crime. (ESV)
+
+34:25: **Killed all the males**. This act of theirs has influenced the prophecy Jacob will say on them: " Cursed be their anger, for it is fierce, and their wrath, for it is cruel! I will divide them in Jacob and scatter them in Israel." (Gen 49:7)
+
+34:26: **Убили мечом**. В книге Иудифь (Иудифь 9:2-3) избиение сихемлян и разграбление их города представляется делом суда Божья над первыми за насилие Дине: "Го­с­по­ди Боже отца моего Симеона, которому Ты дал в руку меч на отмще­ние иноплемен­ным ... Ты сказал: да не будет сего, а они сделали. И за то Ты пред­ал князей их на убие­ние... по­раз­ил рабов подле владетелей и владетелей на тронах их, и отдал жен их в расхище­ние, дочерей их в плен и всю добычу в раз­дел сынам, воз­люблен­ным Тобою, которые воз­ревновали Твоею ревностью". Это толкование в корне противоречит словам Иакова же в Быт 49:7: "проклят гнев их, ибо жесток, и ярость их, ибо свирепа".
+
+34:27: **The sons of Jacob** may refer to more than the original pair of Simeon and Levi whose initiative that was.
+
+34:27: **Plundered the city**. Now their behavior is not much different from the greedy people of Shechem who wanted to possess Israel's livestock.
+
+34:29: **Their wives**. As servants, or as wives?
+
+34:30: **Said to Simeon and Levi**. While all the brothers are involved in the deception and the plundering of the city, Jacob later attaches particular guilt to Simeon and Levi for the massacre of the men of Shechem. (ESV)
+
+34:30: **You have brought trouble on me**. Jacob’s condemnation focuses not on the morality of their actions, but on the possible consequences. (ESV)
+
+34:30: **You have brought trouble on me**. Jacob did not agree with the course of action his children have taken.
+
+34:30: **Trouble**. Almost as soon as Jacob returns to Canaan, an incident threatens the future security of his whole family. (ESV)
+
+34:30: **My numbers are few**. Jacob had a lot of livestock, but unlike Abraham, he did not have an army.
+
+34:30: **У меня людей мало**. Как бы так говорил: разве не знаете, что нас немного и мы сами легко можем потерпеть тоже самое, что решились вы сделать им. И как Сихем стал причиною такой гибели для отца и для всех жителей города, так и вы – для меня.  (Свт. Иоанн Златоуст)
+
+34:30: **Истреблён буду я и дом мой**. На эту сторону дела пока и обращает их внимание Иаков, высказывая порицание их поступку; полную же оценку его с нравственной стороны он дал на смертном одре (Быт. 49:5–6). (Лопухин А.П.)
+
+34:31: **Should he treat our sister like a prostitute?**. While they are reluctant to acknowledge any fault on their part, Jacob is very conscious of how their actions have endangered his entire household. (ESV)
 
 
 
