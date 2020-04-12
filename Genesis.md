@@ -1877,9 +1877,111 @@ How did he understand that? Well, he has recently prayed, fervently. His heart a
 
 
 ### Jacob Meets Esau
+
+33:1: **So he divided the children**. He had sent them away across the stream (Gen 32:23), but clearly, after his encounter with God, he changed his decision.
+
+33:1: **Разделил**. Не три группы образовал Иаков, как считают очень многие, а две. **Разделил** Акила перевёл как "поделил пополам", то есть Лия и Рахиль были в одной группе. (Блж. Иероним Стридонский)
+
+33:2: **The servants with their children in the front**. Even though all the children were Jacob's, the servants' children had less favor in his eyes.
+
+33:2: **The servants with their children in the front**. Dan, Naphtali, Gad, Asher.
+
+33:2: **then Leah with her children**. Reuben the firstborn, Simeon the second oldest son, Levi, Judah, Issachar, Zebulun, Dinah.
+
+33:2: **Rachel and Joseph last of all**. The beloved wife, and the child he loved most tenderly.
+
+33:2: **Joseph** is the only one of Jacob’s sons to be named here. Jacob’s special treatment of Joseph becomes an important theme later in Genesis. (ESV)
+
+33:2: **Рахиль**. Паче всех Рахиль соблюдается от опасности, не только как возлюбленная, но и как первая, по намерению Иакова, супруга. (Свт. Филарет (Дроздов))
+
+33:3: **Came near to his brother**. Esau did not attack immediately.
+
+33:3: **Bowing ... seven times**. Jacob’s actions are clearly intended to express his submission to Esau. Jacob’s behavior is noteworthy, especially given the earlier divine revelation that the older would serve the younger. (ESV)
+
+33:3: **Поклонился до земли семь раз** Иаков выражает этим отсутствие в нем горделивых замыслов — господствовать над старшим братом и как бы раскаяние Иакова в несправедливости, допущенной им относительно Исава при получении благословения. (Лопухин А.П.)
+
+33:4: **Esau ran to meet him**. The unreserved manner in which Esau greets and embraces Jacob reveals that he holds no animosity toward his brother. (ESV)
+
+33:4: **Esau ran to meet him**. The description of their reconciliation may well have influenced Jesus’ account of the lost son returning to his father. (ESV)
+
+33:4: **Embraced him**. God orchestrated the events in such a way that there was no real danger, but by all appearances, there were serious fears that have driven Jacob to God in distress. And there, in that encounter, the change of Jacob's heart has been made final.
+
+33:4: **Embraced him**. Twenty years of separation have brought about forgiveness. Esau missed his brother, of whom he heard nothing in all these years. He also heard how their mother and father missed Jacob. All of this has softened his heart.
+
+33:4: **И плакали**. Иаков страшится, как опаснейшего врага, своего брата, но своею осторожностью, молитвою, пожертвованиями, смирением и прозорливым от общения его уклонением без брани остается его победителем.  (Свт. Филарет (Дроздов))
+
+33:10: **Like seeing the face of God**. Esau does not know that, but Jacob has really seen the face of God the night before. Still under the impression, Jacob sees something similar in those two encounters.
+
+33:10: **Like seeing the face of God**. Jacob draws a remarkable parallel between his earlier encounter with God and his meeting with Esau. Like God, Esau shows unmerited favor to Jacob. (ESV)
+
+33:11: **Please accept my blessing**. Previously, Jacob had deprived Esau of the blessing of the firstborn. While Jacob cannot restore this particular blessing to Esau, he seeks to make restitution by giving him another blessing, which comes from God’s blessing of Jacob. (ESV)
+
+33:11: **God has dealt graciously with me**. Jacob recognizes that all that he has, both children and possessions, are from the Lord.
+
+33:12: **Иаков же сказал ему**. На самом же деле Иаков, видимо, опасается, как бы мир с братом не был нарушен при дальнейшем совместном путешествии. (Лопухин А.П.)
+
+33:14: **I will lead on slowly**. Jacob politely refuses and invents all sorts of excuses because his intention was not to follow Esau south. He had to go to Bethel first and fulfill his vows.
+Why then did he send messengers (Gen 32:3) to inform Esau of his coming, if he wasn't going to come immediately? Either he had to ask His brother before entering the land; or more likely, Jacob had a change of mind after the encounter with God, and so he had a change of plans.
+
+33:15: **Оставлю я с тобою несколько из людей**. Ради охраны, или для выражения почёта, в качестве свиты. (Лопухин А.П.)
+
+33:16: **Seir**. Jacob will never actually reach Seir. Or at least, Moses never written anything about it. Jacob would only meet Esau when Isaac dies (Gen 35:29)
+
+33:17: **Succoth**. Jacob did not tell his brother that he did not intend to go to Seir directly. Instead of following his brother south, Jacob started west, crossed the Jordan river, and **built himself a house**. He obviously was not planning to go home just yet. [Map](https://i0.wp.com/headwatersresources.org/wp-content/uploads/2017/03/patriar.png)
+
+33:17: **Succoth** was only 7 kilometers to the west.
+
+33:17: **Сокхоф**. Иаков предположительно пребывал здесь два года. (Лопухин А.П.)
+
+33:18: **Благополучно пришёл в Сихем**. Выражение «благополучно» или «цел — невредим» еврейские и некоторые христианские толкователя понимали, как указание на исцеление бедра Иакова от раны после таинственной борьбы. (Лопухин А.П.)
+
+33:18: **Сихем**. У евреев есть предание, что в этом месте бедро хромающего Иакова окрепло и стало здоровым. Поэтому и город получил название в честь исцелённого и ставшего совершенным бедра. (Блж. Иероним Стридонский) 
+
+33:18: **Schechem**. Jacob goes further west. It's about 32km west of Succoth.
+
+33:18: **Schechem** was the first place named in connection with Abraham’s arrival in Canaan. God had appeared to Abraham here and promised Him many descendants (Gen 12:67). And here one descendant, Jacob, is going to *purchase a piece of land* (v. 19) and *build an altar* to the Lord. (ESV)
+
+33:19: **He bought the piece of land**. Jacob has started to acquire property in Canaan, the promised land.
+
+33:19: **Купил**.  Если Авраам приобрел в Хевроне место погребения жене и себе, то Иаков в Сихеме приобретает поле для обитания на нем, чем и выражает веру в божественное обетование о наследовании Ханаана его потомством. После на этом месте погребены были кости Иосифа (Нав. 24:32); в евангельское время (Ин. 4:5–6) и даже теперь упоминается о колодезе Иакова близ Сихема. (Лопухин А.П.)
+
+33:20: **Altar**. Previously, Abraham had built an altar at Shechem. Possibly, Jacob reconstructs this earlier altar, for the Hebrew verb used to describe his action is not the usual one for building altars. (ESV)
+
+33:20: **Altar**. Since this is the first altar mentioned in connection with Jacob, it signals his commitment to worship the Lord. This is reinforced by the name he gives the altar. (ESV)
+
+33:20: **El-Elohe-Israel**. God, the God of Israel. Such a tender name would mean that Jacob came to a closer relationship with God. 
+
+33:20: **Поставил там жертвенник**. Подобно Аврааму, поставившему по прибытии в Ханаан жертвенник в Сихеме (Быт. 12:7), ставит здесь жертвенник и Иаков, призывая теперь Бога, как уже Бога Израиля, т. е. своего, а не только Бога отцов. (Лопухин А.П.)
+
+
+
+
+
+
+
+
+
 ### The Defiling of Dinah
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### God Blesses and Renames Jacob
 ### The Deaths of Rachel and Isaac
+
+35:29: **Esau and Jacob**. Last time they've seen each other was at Peniel, where Esau came with 400 men to meet his brother Jacob, and then went back to Seir alone, while Jacob has had a change of plans.
+
 ### Esau's Descendants
 ### Joseph's Dreams
 ### Judah and Tamar
