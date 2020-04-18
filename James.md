@@ -51,3 +51,7 @@ You see, there is a sense in which if anything is dearer to you than God, then h
 (Андроник Пантак)
 
 2:21: **Justified by works**. James apparently has a different sense of the word “**justify**” in view here, as evidenced by the different Scripture passages, and the different events in Abraham’s life, to which James and Paul refer. The primary way in which Paul uses the word “**justify**” (Gk. dikaioō) emphasizes the sense of being declared righteous by God through faith, on the basis of Jesus’ atoning sacrifice (Rom. 3:24–26), whereas the primary way that James uses the word “**justify**” (Gk. dikaioō) here seems to emphasize the way in which works demonstrate that someone has been justified, as evidenced by the good works that the person does (cf. Matt. 12:33–37). 
+
+2:22: Наш успех на пути с Богом измеряется не тем, что мы знаем, а тем, что мы делаем. (Лунёв)
+
+
