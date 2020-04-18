@@ -2486,7 +2486,7 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 34:25: **Killed all the males**. While the rape of Dinah by Shechem is inexcusable, the punishment meted out by Simeon and Levi far exceeds the crime. (ESV)
 
-34:25: **Killed all the males**. This act of theirs has influenced the prophecy Jacob will say on them: " Cursed be their anger, for it is fierce, and their wrath, for it is cruel! I will divide them in Jacob and scatter them in Israel." (Gen 49:7)
+34:25: **Killed all the males**. This act of theirs has influenced the prophecy Jacob will say on them: "Cursed be their anger, for it is fierce, and their wrath, for it is cruel! I will divide them in Jacob and scatter them in Israel." (Gen 49:7)
 
 34:26: **Убили мечом**. В книге Иудифь (Иудифь 9:2-3) избиение сихемлян и разграбление их города представляется делом суда Божья над первыми за насилие Дине: "Го­с­по­ди Боже отца моего Симеона, которому Ты дал в руку меч на отмще­ние иноплемен­ным ... Ты сказал: да не будет сего, а они сделали. И за то Ты пред­ал князей их на убие­ние... по­раз­ил рабов подле владетелей и владетелей на тронах их, и отдал жен их в расхище­ние, дочерей их в плен и всю добычу в раз­дел сынам, воз­люблен­ным Тобою, которые воз­ревновали Твоею ревностью". Это толкование в корне противоречит словам Иакова же в Быт 49:7: "проклят гнев их, ибо жесток, и ярость их, ибо свирепа".
 
@@ -2527,7 +2527,82 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 ### God Blesses and Renames Jacob
 
+35:1: **Go up to Bethel**. This has broken Jacob's plan to follow Esau, if there was one.
 
+35:1: **Altar**. Jacob had only set up a pillar at Bethel (Gen 28:18). By returning to Bethel and building an altar there, Jacob acknowledges that God has been faithful to him. (ESV)
+
+35:1: **To the God who appeared to you**. God, who has fulfilled his promises to Jacob, reminds Jacob of the promise he has given to God. 
+
+35:2: **Put away the foreign gods**. So Jacob, himself being a God-fearer and a leader of the family, knew that there were pagan gods amidst them, and tolerated that. Did he also know about the gods Rachel has stolen from Laban?
+
+35:2: **Foreign gods**. That go against the first prohibition of the Ten Commandments (Ex 20:3). (ESV)
+
+35:2: **Put away ... purify yourselves and change your garments**. Rachel’s theft of her father’s household **gods** suggests that polytheistic beliefs existed within Jacob’s household. These must be eradicated. 
+The members of Jacob’s household must **purify** themselves. While no details are given here, later Israelite tradition emphasized the importance of purification rituals, some of which involved the washing of clothes. This may explain Jacob’s final instruction to change **garments**. (ESV)
+
+35:3: **In the day of my distress**. Jacob primarily means the recent events (Esau, Shechem), but also all other events since his first vision at Bethel.
+
+35:3: **Has been with me wherever I have gone**. God didn't just ask Jacob to worship Him; God has actually proven Himself to Jacob. And so it seems, God hasn't required anything from Jacob but a righteous heart.
+Interesting how God works, isn't it? God, the Maker of the universe, *proving Himself* to people. And asks worship only *after* Jacob's heart trusts Him. Which He Himself has won.
+That's how love works.
+
+35:4: **Rings .. in their ears**. Probably the rings were somehow related to their pagan religion?
+
+35:4: **Rings .. in their ears**. It is not clear whether these earrings were worn by the people or by the foreign gods; some ancient Near Eastern evidence indicates that idols could have earrings (ESV)
+
+35:4: **They**. It's interesting how Jacob's decision to follow God also spreads to everyone with him. This surely includes his wives, and clearly now includes his servants. Which were not too many, but still.
+
+35:4: **Hid them under the tree**. Likely not with the purpose of getting them back again. They have thrown them away completely.
+
+35:5: **Did not pursue the sons of Jacob**. For the massacre they have committed at Shechem (Gen 34:25).
+
+35:5: **A terror from God**. God directly influences the senses of humans to make Jacob seem more dangerous to them than he really was.
+
+35:5: **A terror from God**. It is interesting how God protects the family from the consequences of their actions at this particular instance, despite His disapproval. God did not let the massacre go unnoticed though, for Jacob would pronounce a prophetic curse on those who committed them. (Gen 49:7)
+
+35:5: **A terror from God**. How did this **terror** look like? Those people have heard that Jacob's sons have massacred the entire city of Shechem, and there was a desire to **pursue** them and take revenge. The desire was likely discussed at their cities' gates, but invariably, even in distant towns, people have overestimated Jacob's power (Gen 34:30: "my numbers are few"). Perhaps, even to the point of being fearful of the same massacre happening to their own cities!
+That's how **a terror from God** would look like. Irrational fear.
+
+35:5: **A terror**. May also mean the fear of God himself. The fear of God used to protect the patriarchs before (Pharaoh; Gen 20:8 Abimelech; Gen 26:28: Laban).
+
+35:6: **Came to .. Bethel**. It was a relatively short journey of about 30km, but no doubt, a very stressful one. God probably didn't tell Jacob that his family was under protection, and Jacob had every reason to think that they were not anymore.
+
+35:7: **Built an altar**. Some 20 years after this promise has been made. This doesn't mean Jacob lingered; this means that God's guidance can be a long process sometimes, but that's a sure process.
+
+35:9: **God appeared**. Unlike the previous episode, no details are given. Is it a reminder of the very same episode?
+
+35:10: **God said**. Transformed by the experiences of Bethel and Peniel, Jacob is now in a position to assume the mantle of his father as the one through whom the divine promises to Abraham will be continued. (ESV)
+
+35:10: **No longer shall your name be Jacob**. God’s statement here confirms the importance of the transformation that has taken place in Jacob’s life. (ESV)
+
+35:10: **Israel shall be your name**. This time, the change of name is also linked with the building of an altar, the fulfillment of a vow.
+In Bethel, Jacob's path with God has started, when he set a stone. God has been with Jacob everywhere he went. Now, after living 20 years with God and going through miscellaneous tests with Him, Jacob is a different person. And at the very same place where this journey has started, this new Jacob receives a new name. Israel. No more a deceiver.
+
+35:11: **I am God Almight** (El Shaddai). This is how God revealed himself to Abraham (Gen 17:1–2), and is the divine name used by Isaac when he blesses Jacob in 28:3. (ESV)
+
+35:11: **be fruitful and multiply**. This instruction goes back to the very creation of humanity (Gen 1:28). (ESV)
+
+35:11: **Nations shall come from you**. It the first time that God gives Jacob the very same promise he gave to Abraham: that his descendants will be numerous. This happens only after (on the surface) Jacob has fulfilled his vow and (actually) when Jacob's path was over and he was a new, godly, person, devout to God in word and deed.
+
+35:11: **Nations**. Not just Israel, but many nations.
+
+35:11: **Kings shall come from your own body**. This is a new promise that hasn't been given to Abraham. 
+
+35:12: **Abraham**. The link that shows that it is the very same promise. Jacob now continues the line.
+
+35:12: **Isaac**. Now God confirms that even though Jacob was not the firstborn, he is the son of the blessing.
+Notice how God's plan, predicted before Jacob's birth, was implemented by the means of Jacob's deception. The responsibility for this deception is fully on Jacob, but God's plan comes true anyway.
+
+35:13: **Went up**. This means that previously God has *come down*. 
+
+35:14: **set up a pillar, poured oil**. Jacob performs the very same actions that he had performed 20 years earlier at that same place (Gen 28:18-19: "So early in the morning Jacob took the stone that he had put under his head and set it up for a pillar and poured oil on the top of it. 19 He called the name of that place Bethel, but the name of the city was Luz at the first.")
+
+35:14: **Drink offering**. Later references suggest that wine was used (e.g., Ex. 29:40; Lev. 23:13; Num. 15:1–10). (ESV)
+
+35:8 **Deborah, Rebekah’s nurse**. Rebekah's nurse. That's Jacob's mother's nurse. What is she doing here?
+
+35:8 **Deborah, Rebekah’s nurse** previously received just a brief mention in Gen 24:59 ("So they sent away Rebekah their sister and eher nurse, and Abraham's servant and his men."), although this is the first time that her name is given. 
+Her presence with Jacob may suggest that she had been sent to him by Rebekah in fulfillment of her promise in Gen 27:45 ("until your brother's anger turns away from you, and he forgets what you have done to him. Then I will send and bring you from there.") (ESV)
 
 
 
