@@ -2525,7 +2525,15 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 
 
+
+
+
+
+
+
 ### God Blesses and Renames Jacob
+
+35:1: **Arise**. Jacob has already lived in Shechem for over a year (perhaps 1 1/2, or even as long as 8), and obviously hesitated to fulfil his vow at Bethel. Now God tells him to arise and leave, having said these words as a kind reminder. And Jacob does not linger anymore: immediately he speaks to his family.
 
 35:1: **Go up to Bethel**. This has broken Jacob's plan to follow Esau, if there was one.
 
@@ -2645,6 +2653,10 @@ Notice how God's plan, predicted before Jacob's birth, was implemented by the me
 35:14: **Drink offering**. Later references suggest that wine was used (e.g., Ex. 29:40; Lev. 23:13; Num. 15:1–10). (ESV)
 
 35:14: **И возлил на него возлияние**. Во времена закона для сего употреблялось вино (Чис. 15:5), знамение радости духовной. (Свт. Филарет (Дроздов))
+
+
+
+
 
 
 
