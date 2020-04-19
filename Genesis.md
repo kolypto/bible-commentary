@@ -2529,9 +2529,15 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 35:1: **Go up to Bethel**. This has broken Jacob's plan to follow Esau, if there was one.
 
+35:1: **встань, пойди в Вефиль**. Бог даёт ему повеление идти в Вефиль, которое одновременно было и одобрением и напоминанием. (Лопухин А.П.)
+
 35:1: **Altar**. Jacob had only set up a pillar at Bethel (Gen 28:18). By returning to Bethel and building an altar there, Jacob acknowledges that God has been faithful to him. (ESV)
 
+35:1: **Поставь там жертвенник Богу**. В первый раз, если исключить жертвоприношение Исаака, Бог является в Св. истории требующим жертвенника. Не потому ли требует, что Иаков, обещав десятину, ожидал какого‑либо внушения или наставления о том, как исполнить сей обет? (Свт. Филарет (Дроздов))
+
 35:1: **To the God who appeared to you**. God, who has fulfilled his promises to Jacob, reminds Jacob of the promise he has given to God. 
+
+35:2: **И сказал Иаков дому своему**. Заметь и послушание и благочестие праведника. Лишь только услышал он: «взыди в Вефиль, сотвори жертвенник», – тотчас, созвал всех своих домашних. (Свт. Иоанн Златоуст)
 
 35:2: **Put away the foreign gods**. So Jacob, himself being a God-fearer and a leader of the family, knew that there were pagan gods amidst them, and tolerated that. Did he also know about the gods Rachel has stolen from Laban?
 
@@ -2539,6 +2545,14 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 35:2: **Put away ... purify yourselves and change your garments**. Rachel’s theft of her father’s household **gods** suggests that polytheistic beliefs existed within Jacob’s household. These must be eradicated. 
 The members of Jacob’s household must **purify** themselves. While no details are given here, later Israelite tradition emphasized the importance of purification rituals, some of which involved the washing of clothes. This may explain Jacob’s final instruction to change **garments**. (ESV)
+
+35:2: **«Поверзите боги чуждыя**, которых взяли вы в разграбленном вами Сихеме. (Прп. Ефрем Сирин)
+
+35:2: **Богов чужих**. Пример Иакова может служить к очищению понятия прославляемой в новейшие времена терпимости вер. Правда, что любовь долготерпит, не раздражается (1 Кор. 13:4). Но она не исключает и снедающей ревности по доме Божием (Ин. 2:17). (Свт. Филарет (Дроздов))
+
+35:2: **И очиститесь**. Еврейское слово טהר означает очищение, в особенности верою (Чис. 31:23-24: "и все, что проходит через огонь, проведите через огонь, чтоб оно очистилось, а кроме того и очистительною водою должно очистить; все же, что не проходит через огонь, проведите через воду"). (Свт. Филарет (Дроздов))
+
+35:2: **И очиститесь**. Догадка (Grot, in Mat, с. Ill), что употребление в богослужении омовения особенно установлено в память потопа как очистительного действия всемирного, имеет в себе нечто сообразное с духом священной древности. (Свт. Филарет (Дроздов))
 
 35:3: **In the day of my distress**. Jacob primarily means the recent events (Esau, Shechem), but also all other events since his first vision at Bethel.
 
@@ -2550,9 +2564,21 @@ That's how love works.
 
 35:4: **Rings .. in their ears**. It is not clear whether these earrings were worn by the people or by the foreign gods; some ancient Near Eastern evidence indicates that idols could have earrings (ESV)
 
+35:4: **Серьги**. Здесь должно разуметь не простое украшение, употребляемое женским полом, но такое, которое служило некоторым родом талисмана, и которое Блаженный Августин называет *idolorum philasteria*, хранилищами идолов. (Свт. Филарет (Дроздов))
+
 35:4: **They**. It's interesting how Jacob's decision to follow God also spreads to everyone with him. This surely includes his wives, and clearly now includes his servants. Which were not too many, but still.
 
+35:4: **So they gave**. It's interesting, how easy people have given up their beliefs. Is it because they have also witnessed how good has God been to Jacob, and participated in the blessing? After all, they're all part of the same household.
+
 35:4: **Hid them under the tree**. Likely not with the purpose of getting them back again. They have thrown them away completely.
+
+35:4: **Закопал их Иаков под дубом**. Иаков закапывает эти предметы в землю (по иуд. преданию — тайно, чтобы никто не извлек их обратно). (Лопухин А.П.)
+
+35:4: **Под теревинфом** (вместо под дубом). Терпентинное дерево по долговечности способно для приметы мест. Место сие после уважаемо было Израильтянами (Нав. 24:26: "И вписал Иисус слова сии в книгу закона Божия, и взял большой камень и положил его там под дубом, который подле святилища Господня.", Суд. 9:6: "И собрались все жители Сихемские и весь дом Милло, и пошли и поставили царем Авимелеха у дуба, что близ Сихема."). (Свт. Филарет (Дроздов))
+
+35:4: **под дубом, который близ Сихема**. Судя по всему, дуб пользовался известностью  (Быт. 12:6; Нав. 24:26; Суд. 9:6). (Лопухин А.П.)
+
+35:5: **И отправились они**. \[Бог не только нагнал страху на окрестных жителей, но и Иакову дал смелость идти через их края.\] Как праведнику Он дал смелость, так на тех навел страх. (Свт. Иоанн Златоуст)
 
 35:5: **Did not pursue the sons of Jacob**. For the massacre they have committed at Shechem (Gen 34:25).
 
@@ -2565,11 +2591,26 @@ That's how **a terror from God** would look like. Irrational fear.
 
 35:5: **A terror**. May also mean the fear of God himself. The fear of God used to protect the patriarchs before (Pharaoh; Gen 20:8 Abimelech; Gen 26:28: Laban).
 
+35:5: **И был ужас Божий на окрестных городах, и не преследовали сынов Иаковлевых**. Так, когда Бог благоволит оказать Свою помощь, то и слабых делает крепче сильных, и малочисленных сильнее многочисленных, и нет блаженнее человека, приобревшего помощь свыше. Нет сильнее человека, стяжавшего вышнюю помощь, как нет слабее человека, лишенного этой помощи. (Свт. Иоанн Златоуст)
+
+35:5: **Ужас Божий**. Ревность Иакова по чистоте веры и послушание ему его семьи вознаграждается ниспосланною Богом безопасностью ее со стороны соседних племен, между тем как после сихемского кровопролития Иаков ожидал нападения. (Лопухин А.П.)
+
 35:6: **Came to .. Bethel**. It was a relatively short journey of about 30km, but no doubt, a very stressful one. God probably didn't tell Jacob that his family was under protection, and Jacob had every reason to think that they were not anymore.
 
 35:7: **Built an altar**. Some 20 years after this promise has been made. This doesn't mean Jacob lingered; this means that God's guidance can be a long process sometimes, but that's a sure process.
 
-35:9: **God appeared**. Unlike the previous episode, no details are given. Is it a reminder of the very same episode?
+35:7: **Эл–Вефиль**. Значит Бог Вефиля. Так назвал себя прежде сам Бог, явясь Иакову (Быт. 31:13). (Свт. Филарет (Дроздов))
+
+35:8 **Deborah, Rebekah’s nurse**. Rebekah's nurse. That's Jacob's mother's nurse. What is she doing here?
+
+35:8: **Умерла Девора**. Из дома ли Исаака пришла она к Иакову или последовала за ним из дома Лавана — разыскание тщетное. (Свт. Филарет (Дроздов))
+
+35:8 **Deborah, Rebekah’s nurse** previously received just a brief mention in Gen 24:59 ("So they sent away Rebekah their sister and eher nurse, and Abraham's servant and his men."), although this is the first time that her name is given. 
+Her presence with Jacob may suggest that she had been sent to him by Rebekah in fulfillment of her promise in Gen 27:45 ("until your brother's anger turns away from you, and he forgets what you have done to him. Then I will send and bring you from there.") (ESV)
+
+35:8: **Девора**. Традиция иудейская говорит, что Ревекка, согласно данному ей обещанию Иакову (27:45) по истечении 14 лет пребывания Иакова в Харране послала туда Девору с известием, что Иаков может теперь возвратиться. (Лопухин А.П.)
+
+35:9: **God appeared again**. Unlike the previous episode, no details are given. It cannot be the same episode, because of **again**.
 
 35:10: **God said**. Transformed by the experiences of Bethel and Peniel, Jacob is now in a position to assume the mantle of his father as the one through whom the divine promises to Abraham will be continued. (ESV)
 
@@ -2578,7 +2619,11 @@ That's how **a terror from God** would look like. Irrational fear.
 35:10: **Israel shall be your name**. This time, the change of name is also linked with the building of an altar, the fulfillment of a vow.
 In Bethel, Jacob's path with God has started, when he set a stone. God has been with Jacob everywhere he went. Now, after living 20 years with God and going through miscellaneous tests with Him, Jacob is a different person. And at the very same place where this journey has started, this new Jacob receives a new name. Israel. No more a deceiver.
 
-35:11: **I am God Almight** (El Shaddai). This is how God revealed himself to Abraham (Gen 17:1–2), and is the divine name used by Isaac when he blesses Jacob in 28:3. (ESV)
+35:10: **Имя твое**. Бог повторяет переименование Иакова, может быть, потому, что сей, по смирению, доселе не употреблял и не открывал нового своего имени. (Свт. Филарет (Дроздов))
+
+35:10: **И Бог назвал его именем Израиль**. Несколько раньше Ангел вовсе не даёт имени Иакову, но предсказывает, что имя должно быть дано Богом. Поэтому то, что там было обещано как будущее, здесь утверждается как исполнившееся. (Блж. Иероним Стридонский)
+
+35:11: **I am God Almighty** (El Shaddai). This is how God revealed himself to Abraham (Gen 17:1–2), and is the divine name used by Isaac when he blesses Jacob in 28:3. (ESV)
 
 35:11: **be fruitful and multiply**. This instruction goes back to the very creation of humanity (Gen 1:28). (ESV)
 
@@ -2599,12 +2644,7 @@ Notice how God's plan, predicted before Jacob's birth, was implemented by the me
 
 35:14: **Drink offering**. Later references suggest that wine was used (e.g., Ex. 29:40; Lev. 23:13; Num. 15:1–10). (ESV)
 
-35:8 **Deborah, Rebekah’s nurse**. Rebekah's nurse. That's Jacob's mother's nurse. What is she doing here?
-
-35:8 **Deborah, Rebekah’s nurse** previously received just a brief mention in Gen 24:59 ("So they sent away Rebekah their sister and eher nurse, and Abraham's servant and his men."), although this is the first time that her name is given. 
-Her presence with Jacob may suggest that she had been sent to him by Rebekah in fulfillment of her promise in Gen 27:45 ("until your brother's anger turns away from you, and he forgets what you have done to him. Then I will send and bring you from there.") (ESV)
-
-
+35:14: **И возлил на него возлияние**. Во времена закона для сего употреблялось вино (Чис. 15:5), знамение радости духовной. (Свт. Филарет (Дроздов))
 
 
 
