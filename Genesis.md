@@ -2478,6 +2478,9 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 34:25: **Simeon and Levi**. Sons of Leah.
 
+34:25: **Simeon and Levi**. The significance of this episode is that **Simeon and Levi** are the 2nd-born and the 3rd-born sons of Jacob, and they will bring a curse on themselves because of this massacre, effectively losing some of their inheritance rights: "Cursed be their anger, for it is fierce, and their wrath, for it is cruel! I will divide them in Jacob and scatter them in Israel." (Gen 49:7).
+*Reuben* the firstborn will also lose his inheritance rights (Gen 35:22: "lay with his father's concubine"), and because of these events, Judah inherits the blessing, and kings come from his line.
+
 34:25: **Simeon and Levi**. Although all sons were involved in the deception of Hamor and Shechem, only Simeon and Levi are involved in the slaughter. (ESV)
 
 34:25: **Took their swords**. They were acting without the consent of their father, the head of the family.
@@ -2675,10 +2678,54 @@ Notice how God's plan, predicted before Jacob's birth, was implemented by the me
 
 ### The Deaths of Rachel and Isaac
 
+35:16: **From Bethel**. The plan is not to return to Shechem. Jacob travels south from Bethel, undoubtedly with the intention of going to Mamre (Hebron). (ESV)
+
+35:16: **Ephrath**. Means "fruitful". Later called Bethlehem (v. 19). Very close to Jerusalem.
+
+35:18: **His father called him**. This is the first son whose name is given by Jacob. All other sons are named by his wives.
+
+35:18: **Ben-oni**. The name is ambiguous and may mean "son of my strength", as well as "son of my sorrow". Jacob deliberately changes the name and removes the ambiguity. (ESV)
+
+35:18: **Rachel** gave the son a bitter name, but Jacob did not want his son to bear such a name. Why?
+
+35:18: **Benjamin**. The only other son born from Rachel is Joseph.
+
+35:18: **her soul was departing**. This is one place in the OT where the word “soul” (Hb. nepesh) denotes what gives life to the body. (ESV)
+
+35:19: **Rachel died**. She was his most loved wife. Perhaps, even the only wife he really loved.
+
+35:20: **Set up a pillar**, but did not give it a name.
+
+35:20: **Rachel's tomb**. Jewish tradition locates the tomb between Bethlehem and Jerusalem. This tradition, however, can be traced back only to the fourth century A.D. (ESV)
+
+35:20: **Rachel's tomb**. Because Rachel was buried at Bethlehem, Matthew uses her as an archetype of Jewish women weeping at Bethlehem for their massacred children in Mt 2:18 ("A voice was heard in Ramah, weeping and loud lamentation, Rachel weeping for her children; she refused to be comforted, because they care no more.”).
+
+35:22: **Reuben**. The firstborn son.
+
+35:22: **Reuben lay with his father's concubine**. While Reuben’s action may have been prompted by inappropriate lust, it challenged Jacob’s position as head of the household. As the firstborn son, Reuben may also have viewed his action as establishing his authority over his brothers. See 2 Sam. 16:20–23, where David's son deliberately goes in to his father's concubines. (ESV)
+
+35:22: **Israel heard of it**. This verse implies that he's done nothing this time. This event is, however, remembered as a curse in the end of Jacob's life (Gen 49:4: "Unstable as water, you shall not have preeminence, because you went up to your father's bed; then you defiled it—he went up to my couch!"). On the basis of this episode, Reuben will actually lose his firstborn rights.
+The 2nd and the 3rd sons, Simeon and Levi, have already lost their blessing because of the massacre. 
+The next in line is Judah, and it is from his line that kings will come, as God has promised (Gen 35:11: "kings shall come from your own body").
+
+35:23: **Reuben (Jacob's firstborn)**. This verse helps us understand what has just happened. The **firstborn** son has defiled his father's bed.
+
+35:27: **His father Isaac**. When Jacob met Esau a couple of years ago, he learned that his father was still alive. Jacob couldn't have know it before that moment: so for over 20 years he didn't know how his father was.
+
+35:27: **Came to his father**. After twenty-something years! What a meeting it must have been!
+
+35:27: **Came to his father Isaac**. While Gen 27:1-2, where Isaac's eyes were dim when he gave Jacob the blessing, may suggest that his death was imminent, Isaac has remained alive during Jacob’s 20 years of exile in Paddan-aram. (ESV)
+
+35:28: **Isaac .. 180 years**. While Jacob lingered in Shechem, he really risked not to see his father alive.
+
+25:28: **Gathered to his people**. Indicates that even in the OT people’s spirits did not disappear, but were gathered together.
+This is supported by the words of Jesus in Mt 22:32: "And as for the resurrection of the dead, have you not read what was said to you by God: ‘I am the God of Abraham, and the God of Isaac, and the God of Jacob’? He is not God of the dead, but of the living.”
+
 35:29: **Esau and Jacob**. Last time they've seen each other was at Peniel, where Esau came with 400 men to meet his brother Jacob, and then went back to Seir alone, while Jacob has had a change of plans.
 
+35:29: **Buried**.Isaac was buried in the cave at Machpelah (Gen 49:30-31: "in the cave that is in the field at Machpelah, to the east of Mamre, in the land of Canaan, which Abraham bought with the field from Ephron the Hittite to possess as a burying place. There they buried Abraham and Sarah his wife. There they buried Isaac and Rebekah his wife, and there I buried Leah”"). (ESV)
 
-
+25:29: **Breathed his last**. The report of Isaac’s death, like that of Abraham in 25:7–10, marks the end of an era and brings to a natural conclusion the main narrative section that began with 25:19. (ESV)
 
 
 
