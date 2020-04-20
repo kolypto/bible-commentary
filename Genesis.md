@@ -2682,9 +2682,13 @@ Notice how God's plan, predicted before Jacob's birth, was implemented by the me
 
 35:16: **Ephrath**. Means "fruitful". Later called Bethlehem (v. 19). Very close to Jerusalem.
 
+35:17: **В родах**. по Мидрашу, с каждым сыном Иакова рождалась вместе и сестра, а с Вениамином — 2 сестры. (Лопухин А.П.)
+
+35:17: **Не бойся**. Повивальная бабка пытается утешить ее, напоминая страстное желание ее иметь второго сына, и возвещая ей, что рождается у нее именно сын. (Быт 30:24: "И нарекла ему имя: Иосиф, сказав: Господь даст мне и другого сына"). (Лопухин А.П.)
+
 35:18: **His father called him**. This is the first son whose name is given by Jacob. All other sons are named by his wives.
 
-35:18: **Ben-oni**. The name is ambiguous and may mean "son of my strength", as well as "son of my sorrow". Jacob deliberately changes the name and removes the ambiguity. (ESV)
+35:18: **Ben-oni**. The name is ambiguous and may mean "son of my strength", as well as "son of my sorrow". Jacob deliberately changes the name and removes the ambiguity, for "the right hand" also means "strength". (ESV)
 
 35:18: **Rachel** gave the son a bitter name, but Jacob did not want his son to bear such a name. Why?
 
@@ -2700,6 +2704,8 @@ Notice how God's plan, predicted before Jacob's birth, was implemented by the me
 
 35:20: **Rachel's tomb**. Because Rachel was buried at Bethlehem, Matthew uses her as an archetype of Jewish women weeping at Bethlehem for their massacred children in Mt 2:18 ("A voice was heard in Ramah, weeping and loud lamentation, Rachel weeping for her children; she refused to be comforted, because they care no more.”).
 
+35:20: **Надгробный памятник**. В 1 Цар. 10:2 гробница Рахили указывается на границе Вениаминовой, т. е. значительно севернее, равно и в Иер. 31:15 (о плаче Рахили над пленными евреями, слышном в Раме) предполагается близость этой гробницы к Раме в колене Вениаминовом. (Лопухин А.П.)
+
 35:22: **Reuben**. The firstborn son.
 
 35:22: **Reuben lay with his father's concubine**. While Reuben’s action may have been prompted by inappropriate lust, it challenged Jacob’s position as head of the household. As the firstborn son, Reuben may also have viewed his action as establishing his authority over his brothers. See 2 Sam. 16:20–23, where David's son deliberately goes in to his father's concubines. (ESV)
@@ -2710,9 +2716,13 @@ The next in line is Judah, and it is from his line that kings will come, as God 
 
 35:23: **Reuben (Jacob's firstborn)**. This verse helps us understand what has just happened. The **firstborn** son has defiled his father's bed.
 
+35:23: **Двенадцать** колен Израилевых.
+
+35:26: **Родившиеся в Месопотамии**. Говоря точнее, писатель должен был исключить из сего Вениамина, который родился в земле Ханаанской. Но он допустил небрежность такую, которая никого не могла ввести в заблуждение. (Свт. Филарет (Дроздов))
+
 35:27: **His father Isaac**. When Jacob met Esau a couple of years ago, he learned that his father was still alive. Jacob couldn't have know it before that moment: so for over 20 years he didn't know how his father was.
 
-35:27: **Came to his father**. After twenty-something years! What a meeting it must have been!
+35:27: **Came to his father**. After almost 30 years! What a meeting it must have been!
 
 35:27: **Came to his father Isaac**. While Gen 27:1-2, where Isaac's eyes were dim when he gave Jacob the blessing, may suggest that his death was imminent, Isaac has remained alive during Jacob’s 20 years of exile in Paddan-aram. (ESV)
 
