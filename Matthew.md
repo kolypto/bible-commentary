@@ -2779,6 +2779,10 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 12:31: **Blasphemy against the Spirit** is the point of no return: when the Holy Spirit had been prompting a person to stop sinning, but the person, by ignoring the spirit, has brought himself to such a condition that he is so deaf to the Spirit that he can no longer repent. For as long as you are worried about sin, you hear the Spirit's guidance, and you can repent. But if one keeps sinning, there is a point of no return, after which repentance is no longer possible: not because God won't forgive, but because the person wouldn't seek God's forgiveness. When, like the Pharisees here, the person would even deny the things that are obvious.
 
+12:40: **Три ночи**. Три дня по еврейскому счёту получается (включая два крайних дня). А где же три ночи?
+Потому что тьма была "с часа шестого до часа девятого", (то есть, в самом разгар дня с 12:00 до 15:00). Получается, что Господь специально создал ночь, чтобы она считалась как третья.
+(Андроник Пантак)
+
 12:50: **Кто будет исполнять, тот Мой брат**. Мы говорим, что мы ученики Иисуса Христа потому что мы ходим в церковь, молимся, читаем Библию. Но Ученик Иисуса Христа — это тот, кто живёт как его учитель, кто поступает, как его учитель. В таком ученике будет видно самого Христа; как он сказал, "кто видел меня, видел отца". Не то же ли правда и для нас? Кто видел христиан, видел Христа. Иначе какие же это христиане? (МЦЦ)
 
 
