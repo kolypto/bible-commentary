@@ -2755,6 +2755,62 @@ This is supported by the words of Jesus in Mt 22:32: "And as for the resurrectio
 
 ### Esau's Descendants
 
+36:2: **Esau took .. wives**. The wives of Esau are given here as: Adah (of Elon the Hittite), Oholibamath (of Anah, of Zibeon the Hivite), Basemath (of Ishmael, sister of Nebaioth). 
+But in Gen 26:34 the following women are named: Judith (of Beeri the Hittite), Basemath (of Elon the Hittite). In Gen 28:9 he also takes: Mahalath (of Ishmael, of Abraham, the sister of Nebaioth).
+So: there are two sisters of Nebaioth: Mahalath and Basemath, born of the same Ishmael. And there are two sisters born of Elon the Hittite: another Basemath,, and Adah.
+Esau took sisters as wives!
+However... those previous wives aren't mentioned in the list of generations to come. Didn't they bear any children?
+
+36:2: **Basemath**. (1) Esau may have married more than three women; (2) the same woman may have been known by two different names. (ESV)
+
+36:2: **Жёны**. Признавая, что эти вариации могли быть обязаны древневосточному обычаю переименования или даже ошибке переписки, отметим моменты сходства во всех трех редакциях: а) Исав имел три жены; б) одна из них называлась Васемафа; в) две были хананеянки; третья — дочь Измаила. (Лопухин А.П.)
+
+36:4: **Елифаз**. Это тот Елифаз, о котором упоминает Писание в Книге Иова. (Блж. Иероним Стридонский) Но он скорее всего не прав, потому что в ст. 11 сказано что "Елифаз родил Фемана", а не наоборот; в то время как в книге Иова Елифаз назван "Феманянином" (Иов 4:1). Это подтверждает Лопухин А.П. (ст. 11)
+
+36:4: **Eliphaz**. The Midrash relates that when Jacob escaped from Esau and fled to his uncle Laban in Haran, Esau sent Eliphaz to pursue and kill Jacob, his uncle, who was his Rabbi also. When they met, Jacob implored Eliphaz not to kill him, but Eliphaz challenged that he had his father's instructions to fulfill. Jacob gave everything he had with him to Eliphaz and said, ”Take what I have, for a poor man is counted as dead." Eliphaz was satisfied and left his uncle and rabbi poor, but still alive: (Rashi to Book of Genesis Gen 29:11) (Wikipedia)
+
+36:6: **Away from his brother Jacob**. Esau has moved away from the land he's lived in for decades. Does this indicate that their relationships were bitter still? Or does he move away from **Canaan**, the promised land, because it was promised to *another*? Was it envy, rivalry, or respect?
+**Edom** would become an enemy nation of Israel. Obadiah claims that the Edomites participated in the destruction of the First Temple by Nebuchadnezzar in 587 BC. 
+vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reader to think of hostility.
+
+36:6: **В другую землю**. Исав уже избрал Сеир главным местом своего пребывания, но пребывание он мог почитать случайным только и временным дотоле, доколе жив был Исаак. По смерти отца, вместе с окончательным разделом наследия долженствовал между братьями последовать и решительный разбор мест обитания. Должно думать, что завещание Исаака утвердило Иакова на земле Ханаанской, Исав же только не противоборствовал сему. (Свт. Филарет (Дроздов))
+
+36:6: **От лица Иакова**. Мидраш не без основания говорит, что это удаление Исава «от лица Иакова» означало, что Исав не будет иметь участия в обетованиях Авраама. (Лопухин А.П.)
+
+36:7: **Their possessions were too great**. The motive for their separation is the same as the motive for the separation of Lot and Abraham had been.
+
+36:8: **И поселился Исав на горе Сеир**. Сие соединено было с изгнанием прежних жителей (Втор. 2:12: "В Сеире жили прежде Хорреи, но сынове Исавовы овладели ими"). Исав уже начинает жить мечом своим (Быт. 27:40: "ты будешь жить мечом твоим"). (Свт. Филарет (Дроздов))
+
+36:8: **Сеир**. Во Втор. 2:4-5 говорится, что Сеир Исаву отдал во владение Сам Всевышний и что израильтяне не должны иметь каких-либо претензий на эту страну. (Втор. 2:4-5: "гору Сеир Я дал во владение Исаву") (Лопухин А.П.)
+
+36:9: **Seir**. By a clever use of genealogical information, vv. 9-43 reveal that Esau’s descendants established themselves as the dominant group in Seir. (ESV)
+
+36:11: **Eliphaz .. Teman**. Eliphaz, the first of the three visitors of Job (Job 2:11), was supposed to have come from Teman (Job 4:1: "Eliphaz the Temanite"), an important city of Edom. Thus Eliphaz appears as the representative of the wisdom of the Edomites, which, according to Obadiah 8, Jeremiah 49:7, and Baruch 3:22, was famous in antiquity. ([Wikipedia](https://en.wikipedia.org/wiki/Eliphaz_(Job)))
+
+36:11: **Елифаз .. Феман**. **Феман**, 1-й сын **Елифаза**, дал имя городу, не раз упоминаемому у пророков (Иер. 49:20: "опустошат жилища их"; Ам. 1:12: "пошлю огонь на Феман"; Ав. 1:9: "Поражены будут страхом храбрецы твои, Феман, дабы все на горе Исава истреблены были убийством"; Иез. 25:13: "так говорит Господь Бог: простру руку Мою на Едома и истреблю у него людей и скот, и сделаю его пустынею; от Фемана до Дедана все падут от меча"); жители его, по-видимому, известны были своей мудростью (Иер. 49:7: "разве нет более мудрости в Фемане?"); одним из потомков Фемана, сына Елифазова, был старший из друзей Иова — феманитянин (Иов. 2:11: "Елифаз Феманитянин"). (Лопухин А.П.)
+
+36:12: **Амалик**. Амаликитяне были при Моисее сильнейшим племенем Аравии (Исх. 17:8: "И пришли Амаликитяне и воевали с Израильтянами в Рефидиме"). (Лопухин А.П.)
+
+36:15: **Chiefs**. Since chiefs were normally tribal leaders, these verses indicate that Esau became the father of 14 tribes. (ESV)
+
+36:16: **Amalek**. Likely the father of the Amalekites. **Amalek** is a nation described in the Hebrew Bible as an enemy of the Israelites. 
+
+36:20: **Сыновья Сеира Хорреянина**. Часть 2. Родословие Сеира, жившего в земле Идумейской прежде Исава, присовокупленное для показания различия и взаимных отношений родов. (Свт. Филарет (Дроздов))
+
+36:22: **Финна**. Может быть, та самая, которая была наложницею Элифаза и родила Амалика (ст. 12) (Свт. Филарет (Дроздов)). 
+
+36:22: **Финна**. Это та самая Фамна, о которой было сказано выше. И эта Фамна была наложницей Елифаза, первенца Исава. И от неё родился Амалик (ст. 12) (Блж. Иероним Стридонский). 
+
+36:30: **царствовавшие в земле Едома**. Список царей производит впечатление глубокой древности. Царская власть у Едома в то отдаленное время, видимо, не была наследственной: ни один из 8 царей не принимает царской власти по преемству от отца своего. Народное избрание, или даже узурпация, определяли преемственное следование их одного за другим, причем были цари и чужеземные, как Саул из города Реховоф на Евфрате (ст. 37). (Лопухин А.П.)
+
+36:31: **Kings**. Although the kings listed here succeed one another, the list probably records a series of dynasties, each associated with a particular city. (ESV) 
+
+36:31: **Before any king reigned over the Israelites**. The author of v. 31 either lived after the Israelite monarchy was a reality or clearly anticipated that one would be established. (ESV)
+
+36:38: **Baal-hanan**. This is a clear sign that paganism has replaced godliness in his line.
+
+36:39: **Хадар**. Достойно примечания, что о царе, последнем в списке, сообщено несколько более подробностей, нежели о предшествовавших, а о смерти его не сказано, хотя то сказано о всех прочих. Сие подает мысль: не он ли царствовал в то время, когда Моисей посылал послов из Кадеса к царю Эдомскому? (Чис. 20:14). (Свт. Филарет (Дроздов))
+
 
 
 
