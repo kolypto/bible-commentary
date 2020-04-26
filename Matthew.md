@@ -2416,9 +2416,50 @@ To pray for God's will to be done is to pray for satan's will to be undone.
 
 ##### The Lord's Prayer: Petitions for man's needs
 
-6:11: (<u>God' Provision</u>) 
+6:11: **Daily bread** represents all of our physical needs. 
+John Stott has observed that to Martin Luther: "everything necessary for the preservation of this life is bread, including food, a healthy body, good weather, house, home, wife, children, good government, and peace".
+(MacArthur)
 
-6:12: (<u>God' Pardon</u>) 
+6:11: **Daily bread**. In the western society we are well-fed, and many of us even need to consume less food than we do, but in the NT times this may have been a genuine concern. (MacArthur)
+
+6:11: (<u>God' Provision</u>) **Give us**. This statement is a petition, but also an affirmation that every good thing we have comes from God. Even though God may have already provided, we ask -- in recognition of His past and present provision, as well as in trust for His future provision. (MacArthur)
+
+6:11: **Give us**. It is marvellous to understand that the God who created the entire universe should be concerned that we receive enough food to eat, clothes to wear, and a place to rest. God obligates Himself to supply our needs. And we only ask for what He has already promised. (MacArthur)
+
+6:11: **us**. The **us** are those who belong to Him. God does not *bind* Himself to meet the physical needs of everyone, but only of those who trust in Him (see Ps. 37:4: "trust in the Lord .. and he will give"; 2 Cor 9:10: "will multiply your seed for sowing and increase the harvest of your righteousness"; Lk 18:30: "shall receive many times as much at this time"; Mt 6:33: "all these things shall be added to you").
+
+6:11: **Give**. God has sometimes provided for His children through miraculous means, but His primary way of provision is through work, for which He has given life, energy, resources, and opportunity. (MacArthur)
+
+6:11: **daily**. The schedule of God's provision for His children is **daily**. The supply is daily, and we are to rely on the Lord one day at a time. To accept the Lord's provision for the present day, without concern for our needs or welfare tomorrow, is a testimony of our contentment in His goodness and faithfulness. (MacArthur)
+
+6:12: (<u>greek words for "sin"</u>) **Debts** (Gk. *opheilema*) is one of the five NT Greek terms for sin:
+* *Hamartia* is the most common, carries the root idea of missing the mark. Sin misses the mark of God's standard of righteousness;
+* *Paraptoma*, often rendered "trespass", is the sin of slipping or falling, and results more from carelessness than from intentional disobedience;
+* *Parabasis* refers to stepping across the line, going beyond the limits prescribed by God, and is often translated "transgression". This sin is more conscious and intentional;
+* *Anomia* means lawlessness, and is a still more intentional and flagrant sin. It is direct and open rebellion against God and His ways.
+* *Opheilema* refers to moral and spiritual debts. Sin is a debt to God that must be paid.
+Luke uses *Hamartia*, but Matthew used *Opheilema* probably because it corresponded to the most common Aramaic term (*hoba*) for sin, which also represented moral or spiritual debt to God.
+(MacArthur)
+
+6:12: (<u>what is sin</u>) **Sin**. Sin is that which separates man from God, and is therefore man's greatest enemy and greatest problem. Sin dominates the mind and heart of man. The ultimate effects of sin are death and damnation, and the present effects are misery, dissatisfaction, and guilt. It is a spiritual disease for which man has no cure (Jer 13:23: "can the Ethiopian change his skin or the leopard his spots?"). The natural man does not want his sin cured, because he loves darkness rather than light (Jn 3:19).
+(MacArthur)
+
+6:12: **Debt**. What debt? "As creatures we owe a debt of obedience unto our maker and governor, and through failure to render the same .. we have incurred a debt of punishment; and it is for this that we implore a divine pardon" (Arthur Pink; quoted by MacArthur)
+
+6:12: (<u>God' Pardon</u>) **Forgive us**. Believers have received God's judicial forgiveness then moment Christ was trusted as Savior. No one, human or satanic, can condemn or bring any "charge against God's elect" (Rom 8:33-34). But because we still fall into sin (1 Jn 1:8: "if we say that we have no sin"), we frequently require God's forgiveness: His forgiveness not now as a Judge, but as Father (see note on Jn 13:5: Jesus washes the disciples' feet, where dirt symbolizes daily contamination; 1 Jn 1:9: God will "cleanse us from all unrighteousness").
+(MacArthur)
+
+6:12: (<u>confession</u>) **Forgive us**. Asking forgiveness implies confession. Feet that are not presented to Christ cannot be washed by Him. Sin that is not confessed cannot be forgiven. John makes it plain: "if we confess" (1 Jn 1:9). 
+"To confess" basically means "to agree with": to agree with God about them that they are wicked, evil, defiling, and have no part in those who belong to Him.
+It is difficult to confess sins, and both satan and our prideful nature fight against it. But it is the only way to the free and joyful life. "Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them will obtain mercy." (Prov 28:13).
+John Stott says, "One of the surest antidotes to the process of moral hardening is the disciplined practice of uncovering our sins of thought and outlook, as well as of word and of deed, and the repentant forsaking of them".
+The true Christian does not see God's promise of forgiveness as a license to sin, a way to abuse His love and presume on His grace. Rather, he sees God's gracious forgiveness as the means of spiritual growth and sanctification and continually gives thanks to God for His great love and willingness to forgive and forgive and forgive.
+(MacArthur)
+
+6:12: **as we also have forgiven our debtors**. It is the prerequisite for receiving forgiveness. If we have forgiven, we will be forgiven; if we have not forgiven, we will not be forgiven (reinforced in vv. 14-15). 
+We are to forgive because it is the character of righteousness, of the faithful Christian life. They will forgive. Be merciful (Mt 5:7). They love even their enemies -- because they have the nature of the loving heavenly father within them (mt 5:44-45,48). 
+Forgiveness is the mark of a truly regenerate heart. It reflects God's own gracious forgiveness, and therefore expresses the highest virtue of man.
+(MacArthur)
 
 6:13: (<u>God' Protection</u>) 
 
