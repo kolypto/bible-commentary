@@ -2753,6 +2753,9 @@ This is supported by the words of Jesus in Mt 22:32: "And as for the resurrectio
 
 
 
+
+
+
 ### Esau's Descendants
 
 36:2: **Esau took .. wives**. The wives of Esau are given here as: Adah (of Elon the Hittite), Oholibamath (of Anah, of Zibeon the Hivite), Basemath (of Ishmael, sister of Nebaioth). 

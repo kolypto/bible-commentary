@@ -1019,6 +1019,8 @@ The second way to determine if we have genuine mourning over sin is to check our
 
 5:5: **Кротость** — тихое состояние духа, соединённое с осторожностью никого не раздражать и ничем не раздражаться. В особенности, не роптать не только на Бога, но и на людей, и когда происходит что-то против наших желаний, не предаваться гневу, не превозноситься. Обещание **наследовать землю** исполнилось буквально: постоянно короткие христиане вместо того, чтобы быть истреблёнными яростью язычников, наследовали вселенную, которой прежде обладали язычники. (Православный Катехизис Филаретовский)
 
+5:5: **Кротость** -- это всегда проявление отношения к кому-то. **Кростость** -- это нежное отношение друг к другу. (Лунёв)
+
 5:5: (<u>shocking to hearers</u>) Like the first two beatitudes, his one must have been shocking and perplexing to head. All Jews hoped for deliverance from Roman rule. The Pharisees expected the Messiah to come with great fanfare and a mighty show of power. Sadducees hoped for a change through political compromise. The Zealots expected the Messiah to come as a powerful, irresistible military leader who would conquer Rome. The idea of a **meek** Messiah leading meek people was far from any of their concepts of the messianic kingdom. The people as a whole eventually rejected Jesus because He did not fulfill their messianic expectations. How could a Messiah who taught for a few years, accomplished absolutely nothing as far as anyone could see, and then was rejected by the religious teachers and put to death, be worth believing in? (MacArthur)
 
 5:5: (<u>The meaning of meekness</u>) **Gentle **(Gk. *praos*) means mild or soft. Was much used to refer to tame animals whose wild spirits were broken by a trainer so that they could do useful work. As a human attitude, it meant being gentle of spirit, meek, submissive, quiet, tenderhearted. 
@@ -2221,7 +2223,7 @@ You say, “But what am I going to do to make sure?" The Lord will bless. And th
 
 #### On Prayer
 
-6:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus continues His contrast of true and false righteousness. He exposed the hypocritical giving, will expose their hypocritical fasting, and now He exposes an equally hypocritical praying, as typified by the scribes and Pharisees. (MacArthur)
+6:5-8: (<u>the flow of the Sermon on the Mount</u>) Jesus continues His contrast of true and false righteousness. He exposed the hypocritical giving, will expose their hypocritical fasting, and now He exposes an equally hypocritical praying, as typified by the scribes and Pharisees. (MacArthur)
 
 6:5: (<u>Calvinist and Arminian view on prayer</u>) **Pray**. None of us can comprehend how prayer functions within the infinite mind and plan of God. Two extreme views:
 <u>Calvinist view</u>: God is sovereign, and He works according to His perfect will regardless of the way we pray. Prayer is nothing more than tuning in to God's will; a way of lining up with God regarding what He has already determined to do.
@@ -2460,6 +2462,8 @@ The true Christian does not see God's promise of forgiveness as a license to sin
 We are to forgive because it is the character of righteousness, of the faithful Christian life. They will forgive. Be merciful (Mt 5:7). They love even their enemies -- because they have the nature of the loving heavenly father within them (mt 5:44-45,48). 
 Forgiveness is the mark of a truly regenerate heart. It reflects God's own gracious forgiveness, and therefore expresses the highest virtue of man.
 (MacArthur)
+
+TODO: <https://en.wikipedia.org/wiki/Lord%27s_Prayer>
 
 6:13: (<u>God' Protection</u>) 
 
