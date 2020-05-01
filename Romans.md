@@ -38,7 +38,7 @@ There is to be a healthy fear of the power of God and of His judgment. But it’
 12:2: **Discern the will of God**. I believe we can know God’s will.  Let me tell you why. A very basic thought: God does not will things for us that He does not make available to us. If God has a will for my life, then He will reveal it to me if I’m in the right place to receive it. God does not purposely frustrate Himself. God wills that men be saved. 
 (MacArhur)
 
-12:2: **Discern the will of God**. How to discern God's will?
+12:2: **Discern the will of God**. How to discern God's will? If you're choosing a job, or a place to move to, or a girl to marry?
 1. For you to be saved. Salvation is basic, because the natural man would not understand the things of God (1 Cor 2:14).
 2. For you to be Spirit filled (Eph 5:18: "be filled with the Spirit"). Not just to have the Spirit resident, but to have the Spirit *dominant*. The word "filled" is used to speak of total control (Examples: Jn 16:6: filled with sorrow; Lk 4:28: filled with wrath; Lk 5:26: filled with fear). To be filled with the Spirit is to have constant Christ consciousness: to stand in His presence constantly and let it dominate your mind.
 3. For you to be sanctified. "For this is the will of God, your sanctification" (1 Thess 4:3). "Sanctified" means being set apart. That means being pure, being holy, being righteous, being virtuous, being sinless.
