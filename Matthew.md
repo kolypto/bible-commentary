@@ -2463,11 +2463,22 @@ We are to forgive because it is the character of righteousness, of the faithful 
 Forgiveness is the mark of a truly regenerate heart. It reflects God's own gracious forgiveness, and therefore expresses the highest virtue of man.
 (MacArthur)
 
-TODO: <https://en.wikipedia.org/wiki/Lord%27s_Prayer>
+6:13: **Temptation** (Gk. *peirasmos*) in Greek means *testing* or *proving* and does not necessarily have good or evil connotations. God's holiness and goodness will never lead anyone into a place or experience in which they would purposely be induced to commit sin (Jas 1:13: "God .. tempts no one"; using *peirasmos*). 
+Chrysostom explains that Jesus is here not speaking of logic, but of a heart desire to avoid the danger and trouble sin creates. It is the expression of the redeemed soul that so despises and fears sin that it wishes to avoid sin rather than having to defeat it. We know that trials are a means for our spiritual growth (Jas 1:2-3: "count it all joy"), but we have no desire to be in a place where even the possibility of sin is increased.
+(MacArthur)
 
-6:13: (<u>God' Protection</u>) 
+6:13: (<u>God' Protection</u>) **Lead us not into temptation, but deliver us from evil**. We know that what men and satan mean for evil, God will turn to the good of His children (Gen 50:20); but we are not certain that we will be completely submissive to and dependent on God in out trials. This petition asks God not to lead us into a trial that will present such a temptation that we will not be able to resist (1 Cor 10:13: God will not allow you to be tempted beyond what you are able"). (MacArthur)
 
-6:13: (<u>God' Preeminence</u>) 
+6:13: **For Thine is the kingdom**. Although these words are not found in the most reliable manuscripts, the words are perfectly scriptural. (MacArthur)
+
+6:14: **If you forgive**. Jesus gives a comment to only one of the petitions, thus amplifying its importance. (MacArthur)
+
+6:14: **If you forgive men .. Father will also forgive you**. Believers cannot know the forgiveness and fellowship and blessings of God apart from forgiving others in heart and word. (MacArthur)
+
+6:14; **Forgive** (Gk. *aphiemi*) means literally "to send away", "to leave alone", "to permit" (Strong's Concordance), "to release" (HELPS). 
+
+6:14: **If you do not forgive .. Father will not forgive your transgressions**. An unforgiving spirit is inconsistent with God's forgiveness, and also brings the chastening of God rather than His mercy.
+To receive pardon from the perfectly holy God and then to refuse to pardon others is the epitome of abuse of mercy. The sin of an unforgiving heart and a bitter spirit forfeits blessing and invites judgment. (MacArthur)
 
 
 
