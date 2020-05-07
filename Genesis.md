@@ -2835,9 +2835,57 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 ### Joseph's Dreams
 
+37:xx: This story serves the first readers by explaining how they came to be in Egypt, namely, through God’s mysterious use of evil and noble deeds to bring about his purpose (cf. Gen. 50:20). (ESV)
+
+37:2: **Joseph** and Benjamin are the only sons of Rachel, the wife that Jacob loved the most. They were Jacob's favorites, as can be clearly seen from the story, and other brothers resented Joseph because he, as it seems, enjoyed favoritism way too much. This time, he **brought a bad report**: basically, told on his brothers.
+
+37:2: **A bad report**. The report was probably true: we'll see in v.11 that Jacob trusted Joseph (about his dreams not being made up), and that the brothers were able to do wicked things.
+
+37:2: **Иосиф был семнадцати лет**. Иоанн Златоуст считает, что Иосиф был добр к своим братьям: "Для чего он означает нам и число лет? Дабы научить тебя, что юность нисколько не может быть препятствием к добродетели – чтобы вполне показать тебе и повиновение юноши отцу, и расположение к братьям, и их жестокость в том, как, не смотря все его расположение к ним и самый возраст его, способный возбуждать сочувствие к себе, они не сохранили братской любви, но с самого начала, замечая в нем наклонность к добродетели и любовь к нему отца, начали ему завидовать." (Свт. Иоанн Златоуст)
+
+37:2: **Семнадцати лет .. будучи отроком**. В том, что об Иосифе, после указания 17-л. его возраста, говорится, что он был молод (naar, отрок), еврейские толкователи видели указание на детски-наивное (отчасти — в неодобрительном смысле) поведение Иосифа, благодаря которому он невольно навлек на себя ненависть своих братьев. (Лопухин А.П.)
+
+37:2: **Пас скот**. Младший из всех других Иосиф (он был семнадцати лет) от труда пастушеского не уклонялся, но вместе с другими братьями прилагал старание к тем же занятиям, не праздность, столь приятную для юношеского возраста и всегда как бы любезную предпочитая, не избегая преждевременной заботы житейской и не любя более всего распущенность (Свт. Кирилл Александрийский)
+
+37:3: **Loved Joseph more**. In two verses we see a lot of favoritism: **the robe**, the **love**, and the **bad report**. That's some unhealthy family relations.
+
+37:3: **Loved more**. Remember how much bitterness has this favoritism brought between Rachel and Leah? The same bitterness is not growing among the brothers, where one enjoys much more affection than all the others. Jealousy has already come as a result. 
+
+37:3: **Loved Joseph more**. And bestowed on him privileges normally given to the firstborn. Joseph’s royal dreams further antagonize his older brothers, who cannot accept that he will reign over them. (ESV)
+
+37:3: **Любил Иосифа более**. Приятно любить детей и весьма приятно любить их сильнее. Однако неумеренная отеческая любовь часто вредит детям. Например, чрезмерная снисходительность расслабляет возлюбленного сына или предпочтение одного из них отвращает от братского чувства всех остальных. Больше же приобретает тот сын, который приобретает любовь братьев. (Свт. Амвросий Медиоланский)
+
+37:3: **Потому что он был сын старости его**. \[Про Вениамина, самого младшего, и сына любимой жены, такого не сказано. Поэтому причиной любви был не порядок рождения.\]
+Смысл такой: Иаков любил Иосифа преимущественно пред другими детьми за его добрые душевные свойства; но не открывал этой причины, а давал вид, что любит Иосифа более других детей потому, что Иосиф сын его старости. А написал это законодатель, как я думаю, повествуя не о том, что было, но указывая лишь предлог и отговорку отца. Это был вымысел отца, желавшего прекратить братскую войну.
+(Свт. Иоанн Златоуст)
+
+37:3: **Разноцветную одежду**. Преимущественную любовь свою к Иосифу Иаков выразил тем, что сшил ему как бы первенцу (ср.Быт. 27:15 — о богатой одежде Исава) особую одежду. (Лопухин А.П.)
+
+37:5: **Dream**. Although it is not specified here, in Genesis dreams are normally associated with divine revelations. (ESV)
+
+37:5: **Told it to his brothers**. No doubt, he told it with pleasure. Didn't he know that such a dream won't be pleasing to his brothers, who already hated him? 
+
+37:8: **Hated him for his dreams**. The probably thought that Joseph has made it up to irritate them.
+
+37:9: **Told it to his brothers**. Now it's clear that he is doing this on purpose: telling those things being well aware that brothers won't like it at all. He's just teasing them, and then telling on them. What a son.
+
+37:9: **To me**. This time, Joseph already gives an interpretation of the dream. Before, he simply described it. This probably means that the first dream has added up to his pride, and Joseph started to think even more highly of himself.
+
+37:10: **To this father**. This time he wanted to tease his brothers in the presents of the father. There is no doubt that the dream was real, but it's also inconceivable that Joseph was speaking out of naivete. He's already seen that his brothers didn't like the story.
+
+37:10: **Shall I and your mother**. When Joseph had this dream, his mother Rachel was probably dead; “your mother” refers to Leah. (ESV)
+
+37:11: **Kept the saying in mind**. Jacob rebuked Joseph for his arrogance, but at the same time he had no doubt about Joseph's truthfulness.
+
+37:12: **Israel**. Jacob is 108 years old now. Isaac was still alive at this moment, but Isaac will die before Joseph reunites with his family in 22 years from this moment.
 
 
+TODO: <http://bible.optina.ru/old:gen:37:04>
 
+
+### Joseph Sold by His Brothers
+
+37:27: В Истории Иосифа есть много черт, по которым невольно переносишься к Господу нашему Иисусу Христу. Особенно замечательно сходство в лицах, продавших Иосифа и Господа. Оба – Иуды, и оба продали за деньги. (Прав. Иоанн Кронштадтский)
 
 
 
