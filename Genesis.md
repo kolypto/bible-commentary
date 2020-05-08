@@ -2861,6 +2861,16 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 37:3: **Разноцветную одежду**. Преимущественную любовь свою к Иосифу Иаков выразил тем, что сшил ему как бы первенцу (ср.Быт. 27:15 — о богатой одежде Исава) особую одежду. (Лопухин А.П.)
 
+37:4: **Возненавидели**. Они могли опасаться (по замечанию Абарбанеля), как бы отец не лишил их всякого наследства из-за Иосифа. (Лопухин А.П.)
+
+37:4: **Увидели .. что отец любит его более .. и возненавидели**. До какой степени они начинают ненавидеть его, ничем их не оскорбившего. (Свт. Иоанн Златоуст)
+
+37:4: **Не могли говорить с ним мирно**. Поелику слово **мир** употребляется у евреев во всех обыкновенных приветствиях, то слова сии могут иметь такой разум, что братья Иосифа не хотели даже приветствовать его при свиданиях. (Свт. Филарет (Дроздов))
+
+37:4: **Не могли говорить с ним мирно**. **Не могли** сказано потому, что обладаемые страстью в самом деле чувствуют себя как бы не в силах делать то, чего долго и упорно не хотели. (Свт. Филарет (Дроздов))
+
+37:4: **Brothers .. hated him**. Ever since Cain, the theme of hatred among brothers is a common reminder of the original sin living in man's heart. 
+
 37:5: **Dream**. Although it is not specified here, in Genesis dreams are normally associated with divine revelations. (ESV)
 
 37:5: **Told it to his brothers**. No doubt, he told it with pleasure. Didn't he know that such a dream won't be pleasing to his brothers, who already hated him? 
@@ -2871,16 +2881,27 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 37:9: **To me**. This time, Joseph already gives an interpretation of the dream. Before, he simply described it. This probably means that the first dream has added up to his pride, and Joseph started to think even more highly of himself.
 
+37:9: **Солнце и луна и одиннадцать звёзд**. Солнце, луна и одиннадцать звезд поклонились Иисусу Христу, когда после Воскресения святая Мария - луна, благословенный Иосиф - солнце, и одиннадцать звезд, то есть благословенных апостолов, преклонились пред Ним и исполнилось пророчество: Хвалите Его, солнце и луна, хвалите Его, все звезды и свет (Пс. 148:3).  (Свт. Кесарий Арелатский)
+
+37:9: **Солнце и луна и одиннадцать звезд поклонились мне**. Поклонение солнца и звезд трудно представить. Может быть, сие было нисхождение их с высоты к ногам Иосифа. (Свт. Филарет (Дроздов))
+
 37:10: **To this father**. This time he wanted to tease his brothers in the presents of the father. There is no doubt that the dream was real, but it's also inconceivable that Joseph was speaking out of naivete. He's already seen that his brothers didn't like the story.
 
 37:10: **Shall I and your mother**. When Joseph had this dream, his mother Rachel was probably dead; “your mother” refers to Leah. (ESV)
 
+37:10: **Я и твоя Мать**. Поелику Рахили в сие время уже не было в живых, то сие слово некоторые относят к Лии, яко старшей супруге Иакова, а некоторые к Балле, почитая ее питательницею Иосифа. Но можно также относить оные и к Рахили; и тогда речь Иакова будет изображать невозможность того, чтобы сон Иосифов исполнился. «Неужели я и умершая уже мать твоя тебе поклонимся?». 
+Сомнительно здесь токмо то, какую из его матерей значит Луна? Ибо и Лия скончалась в земле Ханаанской (Быт. 49:31), а о других супругах Иакова сказание о переселении не упоминает (Быт. 46:26). Но если Лия скончалась незадолго до переселения, то она, вместе с Иаковом, поклонилась уже Иосифу через сынов своих, когда они просили у него хлеба (Быт. 42:7).
+(Свт. Филарет (Дроздов))
+
 37:11: **Kept the saying in mind**. Jacob rebuked Joseph for his arrogance, but at the same time he had no doubt about Joseph's truthfulness.
+
+37:11: **Отец заметил это слово**. Отец понял, что это было откровение Божие, обратил внимание на сказанное. Но не так поступили братья. (Свт. Иоанн Златоуст)
+
+
+37:11: **Заметил это слово**. Отец его сохранил слово сие. То есть хотя Иаков и укорил Иосифа за его сон для успокоения братьев его, но сам тщательно наблюдал, не Бог ли открывает чрез него будущее (Свт. Филарет (Дроздов))
 
 37:12: **Israel**. Jacob is 108 years old now. Isaac was still alive at this moment, but Isaac will die before Joseph reunites with his family in 22 years from this moment.
 
-
-TODO: <http://bible.optina.ru/old:gen:37:04>
 
 
 ### Joseph Sold by His Brothers
