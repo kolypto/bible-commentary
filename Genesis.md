@@ -2906,9 +2906,52 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 ### Joseph Sold by His Brothers
 
+37:12: **Pasture the flock .. near Shechem**. Joseph’s brothers have taken the family flocks northward from Hebron to find better pasture. (ESV)
+
+37:13: **Here I am.** In the OT the phrase indicates complete readiness. Joseph exhibits readiness to obey his father.
+
+37:14: **see if it is well with your brothers**. Looks like Joseph has had a reputation of bringing reports to his father. And Jacob seems to distrust those sons of his.
+
+37:14: **Shechem**. There's over 100km from Hebron to Shechem. Why would anyone travel that much with the flock? Did they have some business in Shechem, the city they had plundered just a few years ago? Why would anyone even want to go to that land after such a story? Perhaps, that is the reason why their father was worried?
+
+37:17: **Dothan**. What has made them change their plans?
+
+37:17: **Dothan**. Another 26-32 km north. (ESV)
+
+37:18: **To kill him**. What a hatred.
+Fratricide is a repeated theme in Genesis and represents the presence of sin in the fallen humanity.
+
+37:21: **Reuben**, the firstborn, saves his brother's life. The one who probably had more reasons to hate Joseph than everyone else.
+
+37:21: **Reuben**. Reuben possibly hopes to regain his father’s favor (after sleeping with his wife) so that he will be confirmed as the firstborn; or perhaps Reuben has no other motive than to show mercy to Joseph. (ESV)
+
+37:22: **throw him into the pit .. that he might rescue him**. Reuben had no hatred for Joseph, or at least he did not let himself act out of that hatred. Nevertheless, he couldn't confront his brothers openly.
+
+37:22: **shed no blood; throw him into this pit**. Reuben appealed to their sense of mock morals, stating that leaving a person to death is fine, while shedding blood is not. 
+
+37:25: **Sat down to eat**. This underlines the callousness of the brothers, who have just thrown their brother into a pit, and are now having a pleasant time. (ESV)
+
+37:27: **Let not our hand by upon him**. Another example of that mock morals, when suffering caused to a person by the hand of someone else seems acceptable.
+
 37:27: В Истории Иосифа есть много черт, по которым невольно переносишься к Господу нашему Иисусу Христу. Особенно замечательно сходство в лицах, продавших Иосифа и Господа. Оба – Иуды, и оба продали за деньги. (Прав. Иоанн Кронштадтский)
 
+37:27: **Sell him to the Ishmaelites**. Apparently this was a known activity in the region: e.g., one Ugaritic text, from the 14th century B.C., tells of a man in Syria being sold by his comrade to a passing caravan of Egyptians—who stripped him of his goods and abandoned him. (ESV)
 
+37:27: **Sell him**. We do not know whether Judah is motivated by compassion, or greed for profit.
+
+37:28: **Twenty shekels of silver**. Mesopotamian documents from the early second millennium B.C. reveal that the price of slaves ranged from 15 to 30 shekels. (ESV)
+
+37:29: **Tore his clothes**. A visible sign of intense anguish and pain, often linked to mourning. Reuben’s grief and despair might center not on the loss of Joseph himself but on his own lost opportunity to regain his father’s favor. (ESV)
+
+37:30: **Where shall I go?**. Reuben now openly says that he feels responsible for his younger brother.
+
+37:32: **Brought it to their father**. That was really cruel: had they said that "they didn't know where he was", the father might have had hope. But they've robbed him of hope. It is possible that they didn't want to lie openly, but found it acceptable to lie by tricking the father -- just as they found acceptable to sell their brother, but agreed that an unmediated murder is immoral. 
+
+37:33: **Robe**. Jacob’s deception by his sons, using Joseph’s cloak and a slaughtered goat, mirrors the way Jacob had deceived his own father by using Esau’s cloak and two goatskins. (ESV)
+
+37:33: **A fierce animal**. Note that the brothers didn't say a single lying word, but they've brought Jacob an item that made him think about death by fierce animal. In v. 20 we saw that this is what they initially were going to tell their father.
+
+37:35: **His sons rose to comfort him**. The very sons that caused him this suffering are now trying to comfort him. Every word they must have said was either a blunt lie, or a huge discomfort to those who had to invent all sorts of falsehoods.
 
 
 
