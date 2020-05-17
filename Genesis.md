@@ -2921,15 +2921,34 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 37:18: **To kill him**. What a hatred.
 Fratricide is a repeated theme in Genesis and represents the presence of sin in the fallen humanity.
 
+37:18: **Стали умышлять против него, чтобы убить его**. Видишь ли, они решились убить его, опасаясь исполнения его снов? (ст. 20) Но они должны были научиться, что предвозвещенное самим Богом не может не совершиться. Они совещаются между собою, составляют замысел, обнаруживая свою злобу; а премудрый и благопромыслительный Бог устрояет так, что сами же злоумышленники невольно содействуют совершению будущих событий. (Свт. Иоанн Златоуст)
+
+37:19: **Сновидец**. Еврейское выражение *владыка снов* (Hb. *baal*) более знаменательно и более укоризненно для Иосифа. В нем, как думает Абарбенел, заключается мысль братьев, что Иосиф выдумал сны свои. (Свт. Филарет (Дроздов))
+
 37:21: **Reuben**, the firstborn, saves his brother's life. The one who probably had more reasons to hate Joseph than everyone else.
 
 37:21: **Reuben**. Reuben possibly hopes to regain his father’s favor (after sleeping with his wife) so that he will be confirmed as the firstborn; or perhaps Reuben has no other motive than to show mercy to Joseph. (ESV)
+
+37:21: **Рувим** как старший, считал себя особенно ответственным перед отцом за младших братьев, в особенности за любимца отца — Иосифа. (Лопухин А.П.)
 
 37:22: **throw him into the pit .. that he might rescue him**. Reuben had no hatred for Joseph, or at least he did not let himself act out of that hatred. Nevertheless, he couldn't confront his brothers openly.
 
 37:22: **shed no blood; throw him into this pit**. Reuben appealed to their sense of mock morals, stating that leaving a person to death is fine, while shedding blood is not. 
 
+37:24: **Бросили его в ров**. Бросили его, конечно, при отчаянном вопле его о сострадании (Быт 42:21: "И говорили они друг другу: точно мы наказываемся за грех против брата нашего; мы видели страдание души его, когда он умолял нас, но не послушали") (Лопухин А.П.)
+
+37:24: **ров же тот был пуст; воды в нем не было**. Бросили его в ров пустой, без воды, но едва ли без жидкой грязи на дне этого рва — цистерны, полной, может быть, разных гадов: скорпионов, змей (Лопухин А.П.)
+
 37:25: **Sat down to eat**. This underlines the callousness of the brothers, who have just thrown their brother into a pit, and are now having a pleasant time. (ESV)
+
+37:25: **сели они есть хлеб**. Рувим в этом время отсутствует.
+
+37:25: **стираксу, бальзам и ладан**. Все эти продукты в сыром виде везлись в Египет, где и приготовлялись из них пряности; позже Иаков (Быт. 43:11) послал этих продуктов в дар Иосифу. (Лопухин А.П.)
+
+37:26: **what profit is it if we kill our brother?**. Judah's raising of this question means that the brothers were still plotting to kill Joseph, despite Reuben's suggestion in v. 22. They've done as Reuben said, but they didn't leave the idea of killing.
+The murder they planned is cold and premeditated. It's not momentary rage upon seeing Joseph: they're planning it.
+
+37:26: **И сказал Иуда братьям своим: что пользы, если мы убьем брата нашего и скроем кровь его**. Рувим и Иуда, храня верность священным законам братства, захотели избавить Иосифа из рук. И весьма справедливо Иуда был предпочтен отеческим благословением, когда ему говорится: поклонятся тебе сыны отца твоего, молодой лев Иуда, и ему покорность народов (Быт. 49:8-10). (Свт. Амвросий Медиоланский)
 
 37:27: **Let not our hand by upon him**. Another example of that mock morals, when suffering caused to a person by the hand of someone else seems acceptable.
 
@@ -2939,11 +2958,30 @@ Fratricide is a repeated theme in Genesis and represents the presence of sin in 
 
 37:27: **Sell him**. We do not know whether Judah is motivated by compassion, or greed for profit.
 
+37:27: **Пойдем, продадим его Измаильтянам**. Иуда (в отсутствие Рувима) со своей стороны предлагает меру, которая, по его намерению, имела служить к спасению Иосифа от голодной, мучительной смерти в колодце. (Лопухин А.П.)
+
+37:27: **Продадим его**. Продав Иосифа, братья его совершили преступление человекохищничества, за которое впоследствии закон Моисеев назначил смертную казнь. (Лопухин А.П.)
+
 37:28: **Twenty shekels of silver**. Mesopotamian documents from the early second millennium B.C. reveal that the price of slaves ranged from 15 to 30 shekels. (ESV)
+
+37:28: **Twenty shekels of silver**. Это за дёшево.
+
+37:28: **продали Иосифа Измаильтянам**. Представь же себе, как этот дивный юноша, воспитанный среди множества слуг, постоянно бывший в объятиях отца, внезапно принужден нести тяжкое рабство, и притом у людей диких, которые не лучше самых зверей. Но Владыка всяческих и людей этих сделал кроткими, и ему дал великое терпение. (Свт. Иоанн Златоуст)
+
+37:28: **продали Иосифа**. Продав брата, братья Иосифа находились в состоянии людей, достигших своей цели, потому что удалили от себя ненавистного им брата. (Свт. Иоанн Златоуст)
 
 37:29: **Tore his clothes**. A visible sign of intense anguish and pain, often linked to mourning. Reuben’s grief and despair might center not on the loss of Joseph himself but on his own lost opportunity to regain his father’s favor. (ESV)
 
 37:30: **Where shall I go?**. Reuben now openly says that he feels responsible for his younger brother.
+
+37:30: **А я, куда я денусь**. Не найдя Иосифа в колодце, приходит в отчаяние, разрывает в знак нестерпимой печали одежду (как после сделает Иаков, ст. 34). 
+В вопле его к братьям — enennu vaani ani anah ba — заключается непереводимый, свойственный еврейскому языку, ассонанс, выражающий непосредственную и глубокую скорбь доброй души Рувима, не имевшего, однако, достаточно твердости открыть отцу действительное положение дела. (Лопухин А.П.)
+
+37:30: **Куда я денусь?** Рувим паче прочих сокрушается о Иосифе, как старший из братьев и потому обязанный пещися о всех прочих. Но скорбь его не есть еще чистое раскаяние, а только страх гнева отеческого; почему и сопровождается не признанием пред Иаковом, а обманом. (Свт. Филарет (Дроздов))
+
+37:31: **закололи козла**. Р. Маймонид (выдающийся еврейский философ и богослов-талмудист, раввин, врач и разносторонний учёный) говорит, что в законе Моисея нередко требуется козел за грехи общества Израилева, для напоминания об этом обмане Иакова сыновьями его и для возбуждения в грешнике сознания необходимости очищения грехов. (Лопухин А.П.)
+
+37:31: **Вымарали одежду кровью**. Они удовлетворили своей страсти, то вот теперь они стали придумывать все способы, как бы обмануть отца и скрыть от него свое преступное соумышление. Они за важное почитают только страх и стыд пред людьми в настоящей жизни, а не думают о будущем страшном суде и вечных невыносимых муках; они заботятся лишь о том, как бы избежать укоризны от людей. Так думали и эти и решились обмануть отца. (Свт. Иоанн Златоуст)
 
 37:32: **Brought it to their father**. That was really cruel: had they said that "they didn't know where he was", the father might have had hope. But they've robbed him of hope. It is possible that they didn't want to lie openly, but found it acceptable to lie by tricking the father -- just as they found acceptable to sell their brother, but agreed that an unmediated murder is immoral. 
 
