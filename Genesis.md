@@ -3006,6 +3006,35 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 
 ### Judah and Tamar
 
+38:1: **Went down from his brothers**. A sense of foreboding is conveyed through Judah’s separation from the rest of his family, his friendship with **Hirah**, a native of the Canaanite city of Adullam (about 19 km southwest of Bethlehem), and his marriage to an unnamed Canaanite woman, the daughter of Shua. In Genesis, marriages to Canaanites are never applauded. (ESV)
+
+38:1: **Adullamite**. Adullam was one of the royal cities of the Canaanites. (Wikipedia)
+
+38:1: **Иуда отошел от братьев своих**. В родословную Мессии входят явные грешники. Христу, понесшему на Себе грехи всего мира и не возгнушавшемуся родиться от Адама-богоотступника, не тяжко было родиться и от Иуды–кровосмесника. (Свт. Филарет (Дроздов))
+
+38:7: **Господь убил его**. Род смерти не показывается. И сие дает разуметь, что смерть безвременная и смерть бездетного вообще почиталась казнию от Бога. (Свт. Филарет (Дроздов))
+
+38:8: **Go in to your brother's wife**. Levirate marriage. See Dt 25:5–10.
+
+38:9: **So as not to give offspring**. The evil is not in the wasting of semen; the evil is in the heart that did not want to honor his brother. He still wanted sex, though.
+
+38:9: **Onan knew that the offspring would not be his**. While publicly Onan appears to fulfill his father’s request, in private he refuses to father a child on behalf of Er. (ESV)
+
+38:9: **So as not to give offspring to his brother**. A detailed explanation for his action is not given, but selfishness is the most likely explanation: he probably feared that a son born to Tamar would be privileged over all other sons born to him, reducing the importance of his own family line and reducing his share of Judah’s inheritance. (ESV)
+
+38:11: **In your father's house**. Judah sends her back to her parents.
+
+38:11: **He feared that he would die**. He treats Tamar as if she were dangerous, while it was actually the evil of the two sons that brought about their deaths. (ESV)
+
+38:11: **Живи вдовою в доме отца твоего**. Представилось Иуде, что оба мужа Фамари погибли за ее грехи, и послал он ее в дом к отцу ее в надежде, что выйдет она замуж. (Прп. Ефрем Сирин)
+
+38:11: **Пока подрастёт Шела**. Опасаясь, чтобы и этот, подобно братьям, не подвергся наказанию, Иуда не исполнял обещания. (Свт. Иоанн Златоуст)
+
+38:11: **Пока подрастёт Шела, сын мой**.  Или это есть один предлог отказа, или в самом деле Иуда лучше надеялся сохранить третьего сына своего, если он вступит в супружество в возрасте более зрелом. Первое кажется справедливее, по признанию самого Иуды (Быт 38:26: "Иуда узнал и сказал: она правее меня, потому что я не дал ее Шеле, сыну моему."). (Свт. Филарет (Дроздов))
+
+38:11: **Пока подрастёт Шела, сын мой**. Настоящей причиной был суеверный страх Иуды: взгляд на Фамарь, как на женщину, приносящую смерть тому, кто вступит с нею в брак (ср. Тов. 3:7–8; по позднейшему еврейскому обычаю женщина, у которой умерли уже 2 мужа, строго говоря, теряла право на 3-й брак). Протягивая время обещанием выдать Фамарь за Шелу, Иуда на самом деле обрекал ее на вечное вдовство (ст. 14), чем и причинял ей несправедливость, в которой после сам сознался (ст. 26). (Лопухин А.П.)
+
+38:29: **Perez**.  Later, in ch. 49, kingship will be associated with Judah’s descendants, and biblical history reveals that from Perez comes the Davidic dynasty (see Ruth 4:18–22). (ESV)
 
 
 
