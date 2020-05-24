@@ -2503,14 +2503,16 @@ To receive pardon from the perfectly holy God and then to refuse to pardon other
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
-6:16: The Pharisees saw **fasting** as an opportunity to get the approval of others who saw them. This is the same attitude they had about prayer. It was all external appearances. False humility is actually pride, and worthless in the sight of God (John Strohman)
+6:16: **Fasting**. The Bible records no teaching or practice of fasting for practical reasons, such as getting revelations, heightened spiritual experience, visions, special insight, awareness, or a better bodily shape. Legitimate fasting always had a spiritual purpose and is never presented as having *any* value in and of itself. (MacArthur)
+
+6:16: **Fasting**. The only compulsory public fast was the Day of Atonement. On that day all people were to "humble \[their\] souls" (Lv 16:29): forsook food as an act of self-denial. When Christ died on the cross, the Day of Atonement stopped existing. (MacArthur)
+
+6:16: **Fast**. The Pharisees saw **fasting** as an opportunity to get the approval of others who saw them. This is the same attitude they had about prayer. It was all external appearances. False humility is actually pride, and worthless in the sight of God (John Strohman)
 
 6:16: **Their fasting**. The Talmud tells us they fasted twice a week: on the second day and the fifth day. And it has become a hypocritical, self-righteous demonstration to show how super-spiritual you are.
 And if you asked a Pharisee, why? they will say because it was the second day and the fifth day which Moses went up and down from Sinai, and we commemorate that. 
 But, as spiritual as it sounds, if you look a little closer in Jewish history, in the city of Jerusalem, you will find out that market day was the second and the fifth day. And those were the two days in the week when everybody from the countryside came to town. And if you were going to parade your piosity that was the time.
 (MacArthur)
-
-6:16: **Fasting**. The only compulsory public fast was the Day of Atonement and when Christ died on the cross, the Day of Atonement stopped existing. (MacArthur)
 
 6:16: (<u>what causes us to fast</u>) **Fasting**. The Bible never commands a fast. To pray, yes; but never to fast. Fasting then, was a personal, non-compulsory, spontaneous, voluntary act. Even Paul never commanded a word about it. 
 The Bible never commands it -- almost as if it will happen when it should happen. Because fasting is a corollary to something else: to some deep spiritual anxiety.
@@ -2529,19 +2531,18 @@ If fasting has a place, then what is it that causes us to fast? What brings that
 I’ve searched the Scripture from one end to the other. I find no times where fasting is without praying. Fasting is not an end in itself, but is a corollary to a spiritual struggle that draws us into the presence of God. The man who prays with fasting, you see, is giving heaven notice that he’s really in earnest. That he will not give up, that he won’t let go until God blesses. 
 (MacArthur)
 
-6:16: (<u>heart attitude</u>) **Fast**. Fasting is a response to a pure heart. What I mean is this. If your heart isn’t right, your fasting is a sham. If you’re not really fasting as a corollary to intense prayer and spiritual struggle, your heart isn’t right. 
-That's is exactly the problem of the scribes and the Pharisees. Their hearts were not right.
-So it all begins with your heart. It has to be totally weaned away from the world and consecrated to God. Fast when your heart calls for a fast. And your heart should call for a fast if you’re really consecrated to God. And when you do, you’re moving into God’s sphere of blessing.
-(MacArthur)
+6:16: **Disfigure their faces**. They would wear old clothes, sometimes purposely torn and soiled, dishevel their hair, cover themselves with dirt and ashes, and even use makeup in order to look pale and sickly. (MacArthur)
 
 6:17: **Anoint your head**. Jews used to anoint themselves with fragrant oil: to protect from the sun, and to be a little more fragrant without deodorants invented. They would prepare themselves and get dressed. And this is what God expects and anticipates: we should take care of ourselves. You’re not more spiritual when you look bad. Comb your hair, wash your face, put on a little make up. Look like you always look! Just be normal.
-You see, the Lord is after an inward thing, because He *sees in secred* (v. 18).
+You see, the Lord is after an inward thing, because He *sees in secret* (v. 18).
 (MacArthur)
 
 6:18: **Not be seen**. Don't try to impress anyone with your fasting: then you've crossed the line. You've done it for men.
 I’ve had people even go that far in spite of what Scripture says and say, “I’m – I’m fasting". Well, you have your reward. You just got it. I know you’re fasting. You’re paid in full. God owes you nothing.
 You can tell people that you have fasted; just don't parade that. And God will see the fast and He’s the only that really matters. God blesses that kind of heart.
 (MacArthur)
+
+6:18: **But by your Father**. Fasting is not to be a display for anyone, including God. Genuine fasting is simply a part of concentrated, intense prayer and concern for the Lord, His will, and His work. Jesus' point is that the **Father** never fails to notice fasting that is heart-felt and genuine, and that He never fails to reward it. (MacArthur)
 
 
 
