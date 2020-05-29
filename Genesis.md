@@ -3056,6 +3056,54 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 
 ### Joseph and Potiphar's Wife
 
+39:2: **The Lord was with Joseph**. Implicit in this account is the idea that God’s presence with Joseph is linked to Joseph’s commitment to the Lord. (ESV)
+
+39:2: **The Lord was with Joseph**. Although God never speaks directly to him (as he did to Abraham, Isaac, and Jacob), Joseph’s life in Egypt is governed by God’s providential care (Gen 50:20: "you meant evil against me, but God meant it for good, to bring it about that many people should be kept alive"). (ESV)
+
+39:2: **The Lord was with Joseph, and he became a successful man**. Echoes the story of Jacob, who had become successful while being a servant for Laban.
+
+39:2: **became a successful man**. In spite of having been sold into slavery, Joseph prospers. This means that he did not only have work, but also good conditions and personal possessions.
+
+39:3: **His master saw .. that the Lord**. The master couldn't *see* that the success was due to the Lord's power; he could only *hear* the explanation from Joseph. This means that Joseph was a God-worshipper and didn't hesitate to express it even being a slave in a pagan land.
+
+39:3: **The Lord .. the Lord**. The repeated references to **the LORD** in these verses emphasize that Joseph’s success is due to God’s presence with him.  (ESV)
+
+39:5: **blessed .. for Joseph's sake**. Same story happened with Jacob: Laban's household was blessed for Jacob's sake (Gen 30:27: "the Lord has blessed me because of you").
+This second case demonstrates that God's blessing to a righteous person may yield fruit to those around him.
+
+39:5: **blessed the Egyptian's house**. By indicating that divine blessing comes through Joseph, the narrator picks up on one of the important elements of the promises made to the patriarchs (Gen 12:3: "I will bless those who bless you"; Gen 18:18: "all nations shall be blessed in him \[Abraham\]") (ESV)
+
+39:6: **had no concern about anything**. This tells us about the character of Joseph: he was a responsible, reliable, and hard-working person, even when it came to managing something that's not his.
+Again, Joseph displays the same character that the new Jacob had: he worked for Laban while not having any livestock of his own.
+
+39:8: **he refused**. Joseph’s refusal to lie with her contrasts sharply with the behavior of Reuben and Judah (Gen 35:22: "Reuben went and lay with Bilnah his father's concubine"; Gen 38:15–18: "Judah .. thought she was a prostitute")). His integrity does not permit him to betray his master by committing adultery. (ESV)
+
+39:9: **How can I do this great wickedness**. Joseph exercises authority without seeing this as an opportunity to betray or exploit others. (ESV)
+
+39:9: **against God**. Here Joseph again demonstrates his God-fearing attitude. The main reason is not a betrayal of confidence of a person, but sinning against God.
+
+39:10: **or to be with her**. He tried to avoid her company.
+
+39:12: **caught him by his garment**. The episode may seem ridiculous, but it only looks so because the seductive specifics of a horny behavior are omitted.
+
+39:14-15: **He has brought among us a Hebrew to laugh at us**. She tries to maximize her case with 1) putting some blame on her husband (**he has brought**), 2) emphasizes Joseph's **Hebrew** origin to exploit the long-standing racial tension, 3) she portrays Joseph’s action as being directed against the entire household ("laugh at us"). (ESV)
+
+39:15: **this garment**. As before, Joseph's garment is used to deceive people (last time -- his father). (ESV)
+
+39:17-19: **The Hebrew .. whom you have brought. .. your servant treated me**. Once again she focuses on the non-Egyptian background of Joseph (v. 17: **Hebrew**), her husband’s poor judgment in bringing him into the household (v. 17: **whom you have brought**), and Joseph’s exploitation of her (v. 17: **laugh at me**, v. 17; contrast v. 14, where she speaks of “laugh at us”). To place further pressure on her husband, she describes Joseph as **your servant** (v. 19). (ESV)
+
+39:19: **put him in prison**. Potiphar could have killed Joseph, but he didn't. Was it because he thought that Joseph's transgression is forgivable? Or because he remembered the good service Joseph has done and repaid him with mercy?
+
+39:20: **where the king's prisoners were confined**. While the reader is not immediately conscious of the significance of Joseph’s being imprisoned **where the king’s prisoners were confined**, this will prove significant for future developments. (ESV)
+
+39:21: **The Lord .. showed him steadfast love**. Notice how God's love didn't protect Joseph from getting into prison for a crime he did not commit. God has put Joseph into these circumstances for a purpose: to lift him up afterwards, and to grow Joseph's godly character up in the meanwhile. Even one month in prison is a huge opportunity for spiritual growth.
+
+39:21: **Gave him favor in the sight of the keeper**. God can not only arrange the circumstances, but also cause people to look favorably upon His people.
+
+39:23: **Whatever he did, the Lord made it succeed**. This is a strong statement: every thing that Joseph started, was successful. What a blessing!
+
+
+
 
 
 
