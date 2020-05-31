@@ -33,6 +33,8 @@
 
 6:5: **Sabbath** was meant not as a burden, but made for the benefit of men.
 
+6:38: **Running over**. When God gives you can shake His box and it’s still running over. You don’t ever get cheated when you give to God ‘cause He returns the blessing multiplied. And with whatever measure you measure it shall be measured to you again. So whatever you invest with God that’s what you get a return on. Giving is investing with God. (MacArthur)
+
 7:6: People had said he was worthy (v 4), but he himself said he was **not worthy**.
 
 14:18: John Stott wrote in his helpful little book Basic Christianity, “The Christian landscape is strewn with the wreckage of derelict half-built towers, the ruins of those who began to build and were unable to finish.  For thousands of people still ignore Christ’s warning, and undertake to follow Him without first pausing to reflect on the cost of doing so.  The result is the great scandal of Christendom today, so-called nominal Christianity.  In countries to which Christian civilization has spread, large numbers of people have covered themselves with a decent but thin veneer of Christianity.  They have allowed themselves to become somewhat involved, enough to be respectable, but not enough to be uncomfortable.  Their religion is a great, soft cushion.  It protects them from the hard unpleasantness of life while changing its place and shape to suit their convenience.  No wonder the cynics speak of hypocrites in the church and dismiss religion as escapism,” end quote. (MacArthur)
