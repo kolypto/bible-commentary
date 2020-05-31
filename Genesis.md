@@ -2904,6 +2904,23 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Sold by His Brothers
 
 37:12: **Pasture the flock .. near Shechem**. Joseph’s brothers have taken the family flocks northward from Hebron to find better pasture. (ESV)
@@ -3004,6 +3021,12 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 
 
 
+
+
+
+
+
+
 ### Judah and Tamar
 
 38:1: **Went down from his brothers**. A sense of foreboding is conveyed through Judah’s separation from the rest of his family, his friendship with **Hirah**, a native of the Canaanite city of Adullam (about 19 km southwest of Bethlehem), and his marriage to an unnamed Canaanite woman, the daughter of Shua. In Genesis, marriages to Canaanites are never applauded. (ESV)
@@ -3035,6 +3058,7 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 38:11: **Пока подрастёт Шела, сын мой**. Настоящей причиной был суеверный страх Иуды: взгляд на Фамарь, как на женщину, приносящую смерть тому, кто вступит с нею в брак (ср. Тов. 3:7–8; по позднейшему еврейскому обычаю женщина, у которой умерли уже 2 мужа, строго говоря, теряла право на 3-й брак). Протягивая время обещанием выдать Фамарь за Шелу, Иуда на самом деле обрекал ее на вечное вдовство (ст. 14), чем и причинял ей несправедливость, в которой после сам сознался (ст. 26). (Лопухин А.П.)
 
 38:29: **Perez**.  Later, in ch. 49, kingship will be associated with Judah’s descendants, and biblical history reveals that from Perez comes the Davidic dynasty (see Ruth 4:18–22). (ESV)
+
 
 
 
@@ -3101,8 +3125,6 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 39:21: **Gave him favor in the sight of the keeper**. God can not only arrange the circumstances, but also cause people to look favorably upon His people.
 
 39:23: **Whatever he did, the Lord made it succeed**. This is a strong statement: every thing that Joseph started, was successful. What a blessing!
-
-
 
 
 
