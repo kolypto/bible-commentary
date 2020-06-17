@@ -1979,6 +1979,8 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 5:39: Подставь другую щёку? Это вообще как? Господи, я не могу! Да, ты не можешь. Но Бог поможет. Что же теперь, ходить всем щёки подставлять? Нет; но если придётся, если будет ситуация, подставляй. (Андроник Пантак)
 
+5:39: **Подставь другую щёку**. Здесь Христос на самом деле не говорит ничего нового, а повторяет учение ветхого завета: "подставляет ланиту свою биющему его, пресыщается поношением, ибо не навек оставляет Господь." (Плач 3:30-31)
+
 5:40: **His tunic**. Rightfully his. When someone takes what’s rightfully yours, **resisting** such a person, **an evil person**, is a natural reaction of a selfish human nature. And when our supreme concern is getting and keeping what we think is rightfully ours, everything that gets in the way becomes expendable. Including the law. (MacArthur)
 
 5:40: **His tunic**. A **tunic** was worn as an undergarment, and the **cloak** was an outer garment that also served as a blanket at night. Most people owned only one coat and probably one or two tunics. It was the **cloak** that Mosaic law required be returned to its owner “before the sun sets, for that is his only covering; it is his cloak for his body” (Ex 22:26-27). (MacArthur)
