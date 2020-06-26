@@ -37,6 +37,24 @@
 
 7:6: People had said he was worthy (v 4), but he himself said he was **not worthy**.
 
+13:6: **Некто.. виноградник .. смоковница .. виноградарь**. Действующие лица: **виноградник** -- мир, земная жизнь; **смоковница** -- народ иудейский, производящий одни только горькие листья, а плодов не приносящий; всё человечество и каждый человек; **господин** -- Бог, который приходил и искал в Иудеях плоды веры и добрых дел, но не нашёл; **виноградарь** -- Сын Божий, Христос, явившейся во плоти для того, чтоб приложить попечение и очистить виноградник. ([Википедия](https://ru.wikipedia.org/wiki/%D0%9F%D1%80%D0%B8%D1%82%D1%87%D0%B0_%D0%BE_%D0%BD%D0%B5%D0%BF%D0%BB%D0%BE%D0%B4%D0%BD%D0%BE%D0%B9_%D1%81%D0%BC%D0%BE%D0%BA%D0%BE%D0%B2%D0%BD%D0%B8%D1%86%D0%B5_%D0%B2_%D0%B2%D0%B8%D0%BD%D0%BE%D0%B3%D1%80%D0%B0%D0%B4%D0%BD%D0%B8%D0%BA%D0%B5))
+
+13:6: **в винограднике своём**. Откуда она там появилась? Господин сам её там посадил. Надеясь на плод. А плода нет.
+
+13:7: **Третий год**. Бог трижды обращался к еврейскому народу: через Моисея, через пророков, и Сам Лично, и трижды не было плода. (Википедия)
+
+13:7: **Третий год**. Архиепископ Аверкий (Таушев) понимание притчи дополняет образом трехлетнего служения Христа. (Википедия)
+
+13:7: **Не нахожу**. Повод для срубания дерева не в том, что плода оказалось мало; причина в том, что плода не оказалось вообще. (Лунёв МЦЦ)
+
+13:7: **Сруби её**. Подход такой: если плода нет на смоковнице, то с деревом что-то не так. Виноградарь же предлагает: подожди, может быть, нужен подход.
+
+13:8: **окопаю ее и обложу навозом**. Здесь хорошо видно, что виноградарь -- Тот, Кто может что-то сделать для грешника, чтобы он принёс плод. Так, окапывание и удобрение здесь -- это возможность спасения души через веру в Иисуса Христа, который делает для дерева всё, что тому нужно, чтобы оно смогло принести плод. Плод дерево будет выращивать само.
+
+13:9: **В следующий год**. До следующего же года нужно дожидаться потому, что смоковницу в текущем году только еще будут удобрять (А. П. Лопухин)
+
+13:9: **Срубишь её**. Это говорит о том, что в какой-то момент Бог перестаёт окапывать и удобрять.
+
 14:18: John Stott wrote in his helpful little book Basic Christianity, “The Christian landscape is strewn with the wreckage of derelict half-built towers, the ruins of those who began to build and were unable to finish.  For thousands of people still ignore Christ’s warning, and undertake to follow Him without first pausing to reflect on the cost of doing so.  The result is the great scandal of Christendom today, so-called nominal Christianity.  In countries to which Christian civilization has spread, large numbers of people have covered themselves with a decent but thin veneer of Christianity.  They have allowed themselves to become somewhat involved, enough to be respectable, but not enough to be uncomfortable.  Their religion is a great, soft cushion.  It protects them from the hard unpleasantness of life while changing its place and shape to suit their convenience.  No wonder the cynics speak of hypocrites in the church and dismiss religion as escapism,” end quote. (MacArthur)
 
 14:27: Whoever does not carry his own cross [expressing a willingness to endure whatever may come] and follow after Me [believing in Me, conforming to My example in living and, if need be, suffering or perhaps dying because of faith in Me] cannot be My disciple. (AMP)
