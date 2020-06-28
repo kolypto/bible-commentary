@@ -3131,6 +3131,10 @@ The story turns around: Judah has to acquit the woman and accept his own failure
 
 39:2: **The Lord was with Joseph**. Although God never speaks directly to him (as he did to Abraham, Isaac, and Jacob), Joseph’s life in Egypt is governed by God’s providential care (Gen 50:20: "you meant evil against me, but God meant it for good, to bring it about that many people should be kept alive"). (ESV)
 
+39:2: **Был Господь с Иосифом**. Как он, еще юный, не привыкший к такому тяжкому образу жизни, воспитанный дома со всею отеческою любовию, переносил это жестокое рабство? Писание присовокупляет: «И был Господь с Иосифом: он был успешен в делах». Благодать свыше сопутствовала ему и все трудности делала для него легкими. Она устрояла все, что касалось его. (Свт. Иоанн Златоуст)
+
+39:2: **Был Господь с Иосифом**. Иудейские толковники понимают так, что, оторванный от отца и родной семьи, Иосиф постоянно имел Бога в мысли и сердце своем, почему и Бог, как Отец небесный, являл ему особое попечение (Лопухин А.П.)
+
 39:2: **The Lord was with Joseph, and he became a successful man**. Echoes the story of Jacob, who had become successful while being a servant for Laban.
 
 39:2: **became a successful man**. In spite of having been sold into slavery, Joseph prospers. This means that he did not only have work, but also good conditions and personal possessions.
@@ -3139,13 +3143,25 @@ The story turns around: Judah has to acquit the woman and accept his own failure
 
 39:3: **The Lord .. the Lord**. The repeated references to **the LORD** in these verses emphasize that Joseph’s success is due to God’s presence with him.  (ESV)
 
+39:4: **Снискал благоволение в очах его**. Не должно думать, чтобы в этих происшествиях было что-нибудь случайное, что-нибудь такое, что зависело только от причин человеческих: самих врагов и сами препятствия Бог заставляет служить Своим предначертаниям, чтобы показать нам, что никто не может воспрепятствовать исполнению Его воли. Итак, когда тебя преследуют, не отчаивайся, не ропщи, не ожидай конца искушения и будь уверен, что Бог и само гонение может обратить в твою пользу. Все, чего Он от нас требует в этом случае, есть непоколебимое терпение. (Свт. Филарет (Дроздов))
+
+39:4: **поставил его над домом своим**. Он облекает его полным доверием и властью в доме и делает надсмотрщиком над своими рабами. Надзиратели этого рода часто встречаются изображенными на египетских скульптурах. (Лопухин А.П.)
+
 39:5: **blessed .. for Joseph's sake**. Same story happened with Jacob: Laban's household was blessed for Jacob's sake (Gen 30:27: "the Lord has blessed me because of you").
 This second case demonstrates that God's blessing to a righteous person may yield fruit to those around him.
 
 39:5: **blessed the Egyptian's house**. By indicating that divine blessing comes through Joseph, the narrator picks up on one of the important elements of the promises made to the patriarchs (Gen 12:3: "I will bless those who bless you"; Gen 18:18: "all nations shall be blessed in him \[Abraham\]") (ESV)
 
+39:5: **благословил .. ради Иосифа**. «Всюду, куда приходят праведники, идет с ними шехина», замечает Мидраш по поводу слов священного писателя о благословении дома Потифара ради Иосифа. (Лопухин А.П.)
+
 39:6: **had no concern about anything**. This tells us about the character of Joseph: he was a responsible, reliable, and hard-working person, even when it came to managing something that's not his.
 Again, Joseph displays the same character that the new Jacob had: he worked for Laban while not having any livestock of his own.
+
+39:6: **Кроме хлеба, который ел**. Сие, как думает Абен–Езра, не было поручено Иосифу потому, что египтяне с евреями в пище не сообщаются (Быт 43:30: "ибо Египтяне не могут есть с Евреями, потому что это мерзость для Египтян"). (Свт. Филарет (Дроздов))
+
+
+TODO: optina
+
 
 39:8: **he refused**. Joseph’s refusal to lie with her contrasts sharply with the behavior of Reuben and Judah (Gen 35:22: "Reuben went and lay with Bilnah his father's concubine"; Gen 38:15–18: "Judah .. thought she was a prostitute")). His integrity does not permit him to betray his master by committing adultery. (ESV)
 
