@@ -2648,9 +2648,46 @@ A dirty window would prevent light from entering.
 
 #### Do Not Be Anxious
 
-6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
+6:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus continues with the topic of material possessions, now in the light of trusting God to provide.
 
 6:25: A threefold **do not be anxious**. We do not realize that worry is a manifestation of self-reliance. When we fret, we are not trusting in our Heavenly Father (John Strohman)
+
+6:25: **Therefore** refers back to 6:24, in which Jesus declares that a Christian's only Master is God. "Because God is your Master, **do not be anxious**". (MacArthur)
+
+6:25: **Do not be anxious**. Because worry is paralyzing: it's a thin stream of fear that can cut a channel so wide that other thoughts will be drained out. But because God owns everything, and has everything under control, we are not to worry. Everything that happens, happens under His control. And He is "the Lord who provides" (Gen 22:14). (MacArthur)
+
+6:25: **food, clothing** are the necessities of life that one absolutely must have to exist. (MacArthur)
+
+6:25: **Is not life more than food, and the body more than clothing?**. Jesus says that the fullness of life is more than merely taking care of the body. Yes it has become an obsession for some: they live *for* their bodies and its comfort. We know better, of course, but that is the way we often act. (MacArthur)
+
+6:26: **Heavenly Father**. The believe has no reason to worry, because God, who owns and controls everything, is his Heavenly Father. (MacArthur)
+
+6:26: **Your Heavenly Father feeds them**. Birds do not have intricate processes for acquiring food. And like every creature, **birds** have their life from God. But God does not say to them "I've done my part; from now on you're on your own". The Lord has provided them with an abundance of food resources and the instinct to find those resources for themselves and their offspring. (MacArthur)
+
+6:26: **Birds**. Anyone who has observed birds is impressed with their diligence and persistence in foraging for food. Many birds spend the greater part of their time and energy finding food for themselves, their mates, and their young. But they do not worry about where their next meal is going to come from. They gather food until they have enough, and then go about whatever other business they may have until time for the next meal. 
+In their own, limited way, they illustrate what we should know: that **the Heavenly Father feeds them**. (MacArthur)
+
+6:27: **Span of life**. This illustration has to do with life expectancy. We do a lot to live longer, yet God has bounded the life of every person. Exercise and good eating are beneficial when looked at in the right perspective. (MacArthur)
+
+6:28: **Lilies of the field**. They make no effort to grow and had no part in designing or coloring themselves. Yet every eye can see the amazing detail, shading, and coloring of a flower. But despite their beauty, flowers do not last long. When dry, they are used as fuel. (MacArthur)
+
+6:30: **God so clothes the grass**. If God bothers to array the grass of the field with beautiful but shortlived flowers, how **much more** is He concerned to clothe and care for His very own children who are destined for eternal life? (MacArthur)
+
+6:30: **O you of little faith**. To be anxious even about things which we need to survive is sinful and shows **little faith**. You believe that God can redeem you, save you from sin, break the shackles of satan, take you to heaven where He has prepared a place for you, and keep you for all eternity... and yet you do not trust Him to supply your daily needs? (MacArthur)
+
+6:32: **Gentiles seek after all these things**. Worry is inconsistent with our faith in God and is therefore unreasonable as well as sinful. Worry is characteristic of unbelief. (MacArthur)
+
+6:32: **Gentiles seek**. They are ignorant of God's supply. No heavenly Father cares for them, so there is reason to worry. (MacArthur)
+
+6:33: **Kingdom of God**. Not a territory, but a dominion or rule. God's kingdom is God's sovereign rule, and therefore, to **seek** His kingdom is to seek first His rule, His will, and His authority. (MacArthur)
+
+6:33: **seek .. His righteousness**. Instead of longing after the things of this world, we are to hunger and thirst for the things of the world to come, which are characterized above all else by God's perfect **righteousness** and holiness. This is practical longing, expressed in having our heavenly Father's own truth, love, and righteousness manifest in our lives, and to have "peace and joy in the Holy Spirit" (Rom 14:17). (MacArthur)
+
+6:34: **Tomorrow will care for itself**. It's nor the careless philosophy of the hedonist who lives only for his present enjoyment. It is the conviction of the child of God who knows that "tomorrow" is in his heavenly Father's hands. (MacArthur)
+
+6:34: **Sufficient for the day is its own trouble**. Concentrate on the meeting the temptations, trials, opportunities, and struggles we have today, relying on our Father to protect and provide as we have need. (MacArthur)
+
+6:34: **Tomorrow will care for itself**. God promises His grace for tomorrow, but He does not give us grace for tomorrow *now*. He only gives His grace a day at a time as is needed, not as it may be anticipated. (MacArthur)
 
 
 
@@ -2673,19 +2710,191 @@ A dirty window would prevent light from entering.
 
 ### Chapter 7
 
-7:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
-7:1: We are not to **judge**? Some think we are never to judge anything as being right or wrong. Could Jesus really say that? Just look a little further (vv.15-20) and see that Jesus instructs us to judge the *fruit* in order to be able to identify false prophets. Also see Jn 7:24 (do not judge by appearance, but judge with righteous judgment). There is an eternal difference between self-righteous condemnation of another as compared with reproving a person with the desire of him coming into repentance (John Strohman)
 
-7:1: The verse should not be understood by the Christian to mean he is never to discern, evaluate or criticize anyone or anything. Note that in v. 7 He tells people to discern who the *dogs* are (we are to judge who is a dog or a swine); in v. 15, to discern *false prophets by their fruit *(vv. 16, 20); i.e., by **judg**ing. We are to "judge those within the church" (1 Cor 5:12-13), and to correct a sinning brother (Mt 18:15-17; Lv 19:17).The Christian is never to judge another with the objective of exalting himself, but with a heart of love that desires the repentance of the wayward person. Finally, the correcting believer will fully examine his own frailty, which will result in compassion for the person he approaches (See Gal 6:1-3). (John Strohman)
 
-7:1: In our country of relativism 132 and political correctness, a person who makes any type of meaningful moral judgment is considered ignorant and intolerant. The relativist's view is that the highest form of morality is to maintain that there is no such thing as morality or judgment. They love to quote this verse. In their unregenerate minds, the verse means that one has no right to make a judgment on any ungodly or perverted behavior. (John Strohman)
 
-7:2: To analyze this section, one needs to start by putting vv.1-6 in its correct context. The passage is a continuation of the Sermon on the Mount, which is constantly demonstrating the distinction between false/hypocritical religion and a true love for God.  Pharisees (who were among the hearers) had set up a religion of their own by changing God's Word. They had no problem judging (i.e condemning) others because they judged themselves superior to others, who did not live up to their man-made religious standards.
 
-7:6: He is saying that we are not to continue to share the beautiful truths of God with those who treat them as garbage and blaspheme them. Also: Mt 10:14 ("shake off the dust"). (John Strohman)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### Judging others
+
+7:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus turns to human relations. Six verses (do not judge) focus on the negative aspect of a self-righteous, judgmental spirit, and the following six verses (ask, and it will be given) focuses on the positive aspect of a spirit that is humble, trusting, and loving. (MacArthur)
+
+7:1: **Judge**. The perspective of this passage is given in contrast to that of the scribes and Pharisees: they looked down on everyone who was not part of their system of self-made beliefs and standards. They were unforgiving, unkind, censorious, and totally lacking in compassion and grace. (MacArthur)
+
+7:1: **Judge not**. In our country of relativism and political correctness, a person who makes any type of meaningful moral judgment is considered ignorant and intolerant.  They love to quote this verse. In their unregenerate minds, the verse means that one has no right to make a judgment on any ungodly or perverted behavior. (John Strohman)
+
+7:1: **Judge not**. The verse should not be understood by the Christian to mean he is never to discern, evaluate or criticize anyone or anything. Note that in v. 7 He tells people to discern who the *dogs* are (we are to judge who is a dog or a swine); in v. 15, to discern *false prophets by their fruit* (vv. 16, 20); i.e., by **judging**. We are to "judge those within the church" (1 Cor 5:12-13), and to correct a sinning brother (Mt 18:15-17; Lv 19:17).
+The Christian is never to judge another with the objective of exalting himself, but with a heart of love that desires the repentance of the wayward person. Finally, the correcting believer will fully examine his own frailty, which will result in compassion for the person he approaches (See Gal 6:1-3). 
+(John Strohman)
+
+7:1: (<u>doctrine is controversial</u>) **Judge not**. This passage has erroneously been used to suggest that believers should never evaluate or criticize anyone for anything. Many, even Christians, tend to resist strong convictions about right and wrong and prefer to speak of all-inclusive love, compromise, ecumenism, and unity. Those who hold strong convictions are seen as violators of this command not to judge.
+Yet at no time in history spiritual and moral reformation was achieved apart from confrontation and conflict. God's prophets have always been bold, controversial, and have been resisted, often by God's own people. Because the power of sin is opposed to righteousness and will always resist. To the carnal person, absolute doctrine and high moral standards are inherently controversial.
+(MacArthur)
+
+7:1: (<u>discernment</u>) **Judge not**. In the sermon on the mount, Jesus teaches that His followers are to be discerning and perceptive in what they believe and in what they do, that they must make every effort to judge between truth and falsehood, between true righteousness and false righteousness. In short, between God's way and all other ways. 
+In 7:15, Jesus warns to "Beware of the false prophets". In other words, we are to judge who speaks for God and who does not. 
+In Mt 18:15-17, Jesus tells us to discern and "confront a sinning brother", with the purpose of him repenting of his actions.
+In 1 Cor 5:11, Paul instructs saints not even to associate with immoral people. 
+Obviously, such commands demand that we employ a certain kind of judgment before we can obey. And this discernment should happen by sound Christian doctrine.
+(MacArthur)
+
+7:1: (<u>Rebuke sin</u>) **Judge not**. Not to rebuke sin is a form of hatred (Lev 19:17: "You shall not hate your fellow countryman in your heart; you may surely reprove your neighbor"). Refusing to warn a person about his sin is just as unloving as refusing to warn him about a serious danger.
+(MacArthur)
+
+7:1: **Judge not**. Do not judge:
+1) Do not judge the person's motives. You don't know them.
+2) Do not judge a Christian's life or ministry, for he is "the servant of another" and "to his own master he stands or falls" (Rom 14:4).
+3) "Do not put an obstacle or a stumbling block in a brother's way" (Rom 14:13)
+(MacArthur)
+
+7:1: **lest you be judged**. Jesus remind the scribes and the Pharisees that they are not the final court. To judge another person's motives is to play God. (MacArthur)
+
+7:2: **by your standard .. it will be measured to you**. We are especially guilty if we do not practice what we ourselves teach and preach. "therefore you are without excuse .. who passes judgment .. and practice the same things" (Rom 2:1-2). God has no double standards. Such judgment is a boomerang and will come back upon the one who judges. (MacArthur)
+
+7:3: **A speck .. a log** is not something insignificant; it's actually a splinter, something sufficiently large to be dangerous. The contrast is therefore not between a very small sin and one that is large, but between one that is large and one that is gigantic. (MacArthur)
+
+7:3: **the speck in your brother's eye**. The very nature of self-righteousness is to justify self and condemn others. In doing so, people play God. (MacArthur)
+
+7:3: **see .. notice**. While **see** is a glance, a momentary judgment, the term **notice** conveys the idea of serious, continuous meditation: consider, behold, contemplate. "Will you not stop and think about your own sin? Until you have done that, how can you confront another with his shortcomings?". (MacArthur)
+
+7:3: **do not notice the log**. Almost by definition, self-righteousness is a sin of blindness, or of grossly distorted vision, because it looks directly at its own sin and still imagines it sees only righteousness. (MacArthur)
+
+7:5: **First take the log out of your own eye**. The person who is poor in spirit, humble, and who hungers and thirsts for God's righteousness, will be the person who first of all sees and mourns over his own sin (Mt 5:3-4). (MacArthur)
+
+7:5: **And then you will see clearly to take the speck**. Notice that Jesus again does not prohibit us to notice sins in other people's eyes. He says that first, we've got to work with our own sins, and then, only then, we will **see clearly** and be able to help our brother to take the sin out of his life.
+
+7:5: (<u>the right balance</u>) **First take the log out of your own eye .. then you will see clearly**. Jesus shows the right balance between humility and conviction, poverty of spirit and power in the Spirit.
+First of all, we confess our own sin: often, the sin of self-righteousness and of a condemning spirit towards others. And ask God for cleansing.
+When our own sin is cleansed, the log is taken out of our **own eye**, then we will see our brother's sin clearly and be able to help him. We will also *see clearly* that God is the only Judge, and others are needy sinners who are just like ourselves. We will see our **brother** as a brother, on our own level, and with our own frailties and needs.
+This is what David prays in Ps 51: "Create in me a clean heart .. then I will teach transgressors Thy ways, and sinners will be converted to Thee" (Ps 51:10-13).
+This is what Paul talks about in Gal 6:1: "Brothers, if anyone is caught in any transgression, you who are spiritual should restore him in a spirit of gentleness. Keep watch on yourself, lest you too be tempted.".
+All confrontation of sin in others must be done out of meekness, not pride. We cannot play the role of judge, passing sentence as if we were God. We cannot play the role of superior, as if we were exempt from the same standards we demand of others. We must not play the **hypocrite**, blaming others while we excuse ourselves.
+(MacArthur)
+
+7:6: **Do not give dogs what is holy**. He is saying that we are not to continue to share the beautiful truths of God with those who treat them as garbage and blaspheme them. Also: Mt 10:14 ("shake off the dust"). (John Strohman)
+
+7:6: **to the dogs, .. before pigs**. Jesus closes with a thunderbolt of an illustration that shatters any sentimental interpretation. We are commanded to determine who are **dogs** and **swine**! (MacArthur)
+
+7:6: **Dogs**. In biblical times, dogs were not pets, but working animals to herd sheep: largely half-wild mongrels that acted as scavengers. They were dirty, greedy, snarling, and often vicious and diseased. They were dangerous and despised. (MacArthur)
+
+7:6: **holy**. It would have been unthinkable for a Jew to have thrown to those **dogs** a piece of **holy** meat that had been consecrated as a sacrifice in the Temple. (MacArthur)
+
+7:6: **swine**. **Swine** were considered by Jews to be the epitome of uncleanness. A Jew would never have tried to domesticate a pig: wild animals who foraged for themselves, often in garbage dumps on the edge of town. Like the scavenging **dogs**, they were greedy, vicious, and filthy even by ordinary pig standards. If you came between them and their food, they would likely **turn and tear you to pieces** with their tusks and sharp hooves. (MacArthur)
+
+7:6: **Do not give to dogs what it holy**. Jesus' point is that certain truths and blessings of our faith are not to be shared with people who are totally antagonistic to the things of God. Such people are spiritual **dogs** and **swine**, who have no appreciation for that which is holy and righteous. They will take things of God as foolishness and as an insult, and **trample them under their feet**. (MacArthur)
+
+7:6: **what is holy .., your pearls**. Do not share what is dear to you with those who won't appreciate it and will only ridicule.
+
+7:6: **Do not throw your pearls .. lest they trample them underfoot and turn to attack you**. There will be times when the Gospel we present is absolutely rejected and ridiculed. In this case, we make the judgment to turn away and speak no more. "Shake off the dust of our feet" (Mt 10:14) and go somewhere else. We are to leave them to the Lord, trusting that somehow His Spirit can penetrate their hearts. 
+The text shows that in such a situation the believer does not condemn, but rather is able to recognize an already self-condemned person.
+(MacArthur)
+
+7:6: **dogs, swine**. Even when we determine that a person is too rebellious to hear the Gospel, we go on our way not in self-satisfied judgment, but in great disappointment and sorrow. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### Ask, and It Will Be Given
 
 7:7: Note how Jesus calls our attention to verbs that represent active endeavor of searching God: **ask, knock, seek**. Although "no one can come to [Jesus] unless the Father ... draws him" (Jn 6:44), Jesus emphasizes the persistence and perseverance that has to come from the human side as well.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### The Golden Rule
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### A Tree and its Fruit
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### I Never Knew You
+
 
 7:21: Jesus does not want us to be externally religious; He wants us to be in a relationship with Him: to have a heart-to-heart connection with Him. (said: Byron Johnson)
 
@@ -2696,6 +2905,27 @@ d.
 How does a man enter the kingdom of God? By doing *the will of the Father* who is in heaven. Lip profession is not enough, there's got to be obedience. 
 (MacArthur)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### Build Your House on the Rock
+
 7:24-27: The Lord reminds us that a standard of righteousness is required to enter the Kingdom of God. And unless your life is **built** on that standard, no matter how it looks like, when the **flood** comes, it's going to be washed away. 
 Here, in both v. 24 and v. 26, you have people who **hear** the **word** or God, both have built their **houses**. They listen, and they are involved in certain spiritual activities, they both belong to the visible body of believers. They both read Scripture and both attend meetings of the church, they carry a Bible, they say certain prayers. They are both busy building some edifice of spiritual activity, and it looks very much the same. They both even built their houses in the same location, because the same storm hits both houses! But there is a tremendous difference: the foundation, that's invisible. Once the edifice is up, you can't see the foundation anymore. And so it really becomes difficult to tell. Only an honest and careful soul-searching and self-examination can reveal the truth.
 (MacArthur)
@@ -2703,6 +2933,27 @@ Here, in both v. 24 and v. 26, you have people who **hear** the **word** or Go
 7:24: **rock** (Gk. *petra*) — rock bed. A man is wise to build on such a **rock**. And this **build**ing is done by a man who **hears these words** of Jesus, and also what? **does them**. So what is the rock? The **rock** is obedience to the word of God. These sayings of Christ become the rock bed foundation of the church. 
 See further note on Mt 16:18: "on this rock I will build my church". 
 See also in Acts 20:32: "I commend you to the word of [God's] grace, which is able to *build you up*". It is the word of God that is our foundation, and it is the word of God that provides the material for the building as well. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### The Authority of Jesus
 
 7:29: What is the difference? Perhaps, Jesus was explaining, and the Scribes merely commanded because "it is written"?
 
@@ -3209,7 +3460,6 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 24:45: **Господин**. Используется образ хозяина, который ушёл и, как кажется постояльцам, отсутствует. Однако при этом дом остаётся в его распоряжении, и он волен вернуться и установить свои порядки как только пожелает.
 
 24:45: **Поставил над**. Здесь стоит понимать позицию руководителя в широком смысле: управляющий хозяйством. То есть, делами, ситуациями, отношениями с людьми. Кто **верный** (кому? Богу) **и благоразумный**, тот поступает праведно, и распоряжается хозяйством по Его воле; а кто злой раб, тот распоряжается ресурсами недобросовестно. Очевидно о таком человеке, что Христос ему не царь.
-
 
 
 

@@ -3124,7 +3124,6 @@ The story turns around: Judah has to acquit the woman and accept his own failure
 
 
 
-
 ### Joseph and Potiphar's Wife
 
 39:2: **The Lord was with Joseph**. Implicit in this account is the idea that God’s presence with Joseph is linked to Joseph’s commitment to the Lord. (ESV)
@@ -3161,7 +3160,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 TODO: optina
-
+http://bible.optina.ru/old:gen:39:09
 
 39:8: **he refused**. Joseph’s refusal to lie with her contrasts sharply with the behavior of Reuben and Judah (Gen 35:22: "Reuben went and lay with Bilnah his father's concubine"; Gen 38:15–18: "Judah .. thought she was a prostitute")). His integrity does not permit him to betray his master by committing adultery. (ESV)
 
