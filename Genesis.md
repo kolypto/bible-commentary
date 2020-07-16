@@ -3158,10 +3158,6 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 39:6: **Кроме хлеба, который ел**. Сие, как думает Абен–Езра, не было поручено Иосифу потому, что египтяне с евреями в пище не сообщаются (Быт 43:30: "ибо Египтяне не могут есть с Евреями, потому что это мерзость для Египтян"). (Свт. Филарет (Дроздов))
 
-
-TODO: optina
-http://bible.optina.ru/old:gen:39:09
-
 39:8: **he refused**. Joseph’s refusal to lie with her contrasts sharply with the behavior of Reuben and Judah (Gen 35:22: "Reuben went and lay with Bilnah his father's concubine"; Gen 38:15–18: "Judah .. thought she was a prostitute")). His integrity does not permit him to betray his master by committing adultery. (ESV)
 
 39:9: **How can I do this great wickedness**. Joseph exercises authority without seeing this as an opportunity to betray or exploit others. (ESV)
@@ -3172,6 +3168,12 @@ http://bible.optina.ru/old:gen:39:09
 
 39:12: **caught him by his garment**. The episode may seem ridiculous, but it only looks so because the seductive specifics of a horny behavior are omitted.
 
+39:12: **его .. одежду**. Опять Иосиф оклеветывается из-за одежды. Прежде, братья, взяв его одежду, при помощи ея злодейственно клеветали на него, что он растерзан зверями; теперь женщина, взявши одежду, оклеветывает его в блудодеянии.  (Свт. Григорий Нисский)
+
+39:14: **кликнула домашних своих**. Мстит ли только неистовая женщина за себя или предваряет обличение себя от Иосифа? 
+\[(То есть, оклеветала ли она его только из мести, или же она сама боялась, что рассказ Иосифа мужу может навлечь беду на неё, и решила его опередить в целях самозащиты?)\]
+(Свт. Филарет (Дроздов))
+
 39:14-15: **He has brought among us a Hebrew to laugh at us**. She tries to maximize her case with 1) putting some blame on her husband (**he has brought**), 2) emphasizes Joseph's **Hebrew** origin to exploit the long-standing racial tension, 3) she portrays Joseph’s action as being directed against the entire household ("laugh at us"). (ESV)
 
 39:15: **this garment**. As before, Joseph's garment is used to deceive people (last time -- his father). (ESV)
@@ -3180,15 +3182,29 @@ http://bible.optina.ru/old:gen:39:09
 
 39:19: **put him in prison**. Potiphar could have killed Joseph, but he didn't. Was it because he thought that Joseph's transgression is forgivable? Or because he remembered the good service Joseph has done and repaid him with mercy?
 
+39:19: **В темницу**. Как прежде Господь избавил Иосифа от желавших убить его братьев, и устроил так, что он был брошен в ров... так и теперь рука Вышнего удержала чужеземца, и не допустила его тотчас устремиться на убийство юноши. 
+Когда вышняя десница являет свое промышление, тогда все делается легким и сносным, и люди жестокие оказываются кротчайшими. А помощь свыше приходит с щедростию тогда, когда и мы покажем много добродетели.
+(Свт. Иоанн Златоуст)
+
+39:19: **В темницу**. Потифар «воспылал гневом»; на кого — на Иосифа или на жену, не сказано. По иудейским толковникам, Потифар не поверил обвинению жены своей, потому что в противном случае он казнил бы человека, покусившегося осквернить его ложе; но он не хотел далее расследовать дело, избегая позора для себя и семьи своей. (Лопухин А.П.)
+
+39:19: **Отдал его в дом темничный**. Как жизнь раба недорого ценилась в древности, то род наказания Иосифа показывает, что господин его едва ли был убежден в действительности его преступления; но, вероятно, жертвовал им прихоти своей жены и чести своего дома. (Свт. Филарет (Дроздов))
+
+39:19: **В темницу**. не только временное благополучие не всегда бывает наградой добродетели, и несчастья не всегда бывают наказанием за грех, но и самые жестокие страдания и скорби, которые иногда, по неисповедимым судьбам Промысла Божия, претерпевают добродетельные, бывают для них путем к славе. (Свт. Филарет (Дроздов))
+
+39:20: **в темницу**. Заключен был Иосиф, может быть, 28 лет от роду, так как после 2-летнего заключения, при возвышении на пост первого министра фараона, он имел 30 лет. (Лопухин А.П.)
+
 39:20: **where the king's prisoners were confined**. While the reader is not immediately conscious of the significance of Joseph’s being imprisoned **where the king’s prisoners were confined**, this will prove significant for future developments. (ESV)
 
 39:21: **The Lord .. showed him steadfast love**. Notice how God's love didn't protect Joseph from getting into prison for a crime he did not commit. God has put Joseph into these circumstances for a purpose: to lift him up afterwards, and to grow Joseph's godly character up in the meanwhile. Even one month in prison is a huge opportunity for spiritual growth.
 
 39:21: **Gave him favor in the sight of the keeper**. God can not only arrange the circumstances, but also cause people to look favorably upon His people.
 
+39:22: **всех узников**. Таким образом, не только сам Иосиф не чувствовал темницы, но и другим узникам он облегчил тюремные страдания. (Свт. Амвросий Медиоланский)
+
 39:23: **Whatever he did, the Lord made it succeed**. This is a strong statement: every thing that Joseph started, was successful. What a blessing!
 
-
+39:23: **Господь давал успех**. Он среди самых скорбей не имел никакого чувства горести; а благопромыслительная премудрость Божия изменила все неприятное (в приятное). Как перл, хотя бы брошен был в тину, показывает свою красоту, так и добродетель, куда бы ты ее ни свергнул, проявляет свою силу – и в рабстве, и в темнице, и в бедствии, и в счастии. (Свт. Иоанн Златоуст)
 
 
 
