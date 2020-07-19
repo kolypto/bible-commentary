@@ -2596,6 +2596,15 @@ How much do you want to invest with God? How much are you willing to sacrifice f
 So the point is, God is not saying "give" because I need your money. He’s saying "give", because it’s a spiritual exercise that brings into your life the true blessing of God.
 (MacArthur)
 
+6:20: **сокровища на небесах**. Очевидно, что сокровища на небесах -- это то, что мы отдаём на пользу другим. При этом у нас может быть ощущение, что мы "отдали" и следовательно "потеряли", оно "ушло". Но должны довольствоваться тем, что сделали хорошее дело. На небесах что-то там зачлось.
+Мне видится, что Иисус не говорит, что оно "ушло" и у вас теперь материальный "минус". Он называет это **сокровищем** на небесах. В другом месте Иисус говорит, что всякий "просящий получает" (Мф 7:7). 
+Таким образом получается, что кроме того, что у нас в кармане и в банке, у нас есть возможность попросить Бога о чём угодно, что нам нужно; а в Его распоряжении все ресурсы целого мира.
+Таким образом получается, что когда мы отдаём -- мы не теряем, а ... простите мне это слово.. инвестируем. Потому что то, что мы отдали, Бог нам вернёт, когда нам будет нужно.
+Смотрите.
+Лк 6:38: "давайте, и дастся вам: мерою доброю, утрясенною, нагнетенною и переполненною отсыплют вам в лоно ваше; ибо, какою мерою мерите, такою же отмерится и вам"
+2 Кор 9:6: "кто сеет скупо, тот скупо и пожнет; а кто сеет щедро, тот щедро и пожнет"
+Получается, что когда Иисус говорит, **не собирайте себе**, но отдавайте.. Он говорит, что это своего рода вложение в банк, в небесный банк, в котором ваши богатства не пропадут. И более того, уже в этой жизни, Бог будет возвращать вам, с процентами!, то что вы вложили.
+
 6:21: **Where your treasure is, your heart will be also**. A person's most cherished possessions and his deepest motives are inseparable. They will either both be earthly, or both be heavenly. It is impossible to have one on earth and the other in heaven. (Jas 4:4: "friendship with the world is enmity with God"). (MacArthur)
 
 6:21: (<u>References</u>) **Your heart**. Col 3:5-6 defines greed as idolatry. 1 Tim 6:9-10 say that it is the *love* of money that is the root of all sorts of evil. Php 4:11-14: Paul learned to be content. 1 Tim 6:5-8: being content with what you have is the right attitude. 1 Tim 6:16-19: those who are rich should be generous.
@@ -2870,12 +2879,33 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 #### Ask, and It Will Be Given
 
-7:7: Note how Jesus calls our attention to verbs that represent active endeavor of searching God: **ask, knock, seek**. Although "no one can come to [Jesus] unless the Father ... draws him" (Jn 6:44), Jesus emphasizes the persistence and perseverance that has to come from the human side as well.
+7:xx: (<u>the flow of the Sermon on the Mount</u>) The first thing to ask God for is *wisdom*: then you will know how to help a sinning brother, how to discern falsehood and apostasy. Go to your Father, **ask, seek, and knock**. (MacArthur)
 
+7:7: **Ask, seek, knock**. Note how Jesus calls our attention to verbs that represent *active endeavor* of searching God: **ask, seek, knock**. Although "no one can come to [Jesus] unless the Father ... draws him" (Jn 6:44), Jesus emphasizes the persistence and perseverance that has to come from the human side as well.
 
+7:8: **Everyone who asks, receives**. The promise is only valid for believers. 
+(Throughout the Sermon on the Mount, Jesus' promises are addressed only to believers. A large mass of unbelievers were, no doubt, present, but Jesus always addresses them in the third person, as if none of them were the direct target of His words. He gives this sermon to His disciples, with the crowd listening in.) 
+(MacArthur)
 
+7:8: **Everyone who asks, receives**. The person has to:
+1) be a believer;
+2) live in obedience to the Father (1 Jn 3:22: "whatever we ask we receive from him, because we keep his commandments and do what pleases him"). Whatever of His will we know, we should be doing;
+3) our motive must be right (Jas 4:3: you do not receive because "you ask with wrong motives"). It is not faith but presumption to ask the Lord to provide more when we are not faithfully using what He has already given;
+4) be submissive to His will, not double-minded (Jas 1:7-8)
+5) persevere in continuance and constancy: **keep on asking, keep on seeking, keep on knocking**. Our sincere requests are not to be passive.
+(MacArthur)
 
+7:9: **What man**. Jesus gives several illustrations from human family relationships of what our heavenly Father's love is like. (MacArthur)
 
+7:9: **give him a stone**. No loving father would do that. This would be cruel: the stone would break a child's tooth. (MacArthur)
+
+7:10: **fish .. serpent**. The idea is not that the snake would be alive and poisonous, and therefore, dangerous. The suggestion is of a snake that is cooked to look like ordinary meat and, unlike the stone, meet the son's physical need. But such a meal would be unclean (Lev 11:12): snakes were not to be eaten by Jews. (MacArthur)
+
+7:9-10: **stone .. serpent**. A stone is not nutritious. A snake is unclean. The idea is that a loving father would not ignore the physical or the spiritual needs of his son. (MacArthur)
+
+7:11: **you who are evil**. A reference to man's fallen, **evil** nature. Human fathers, in general, are sinful by nature. (MacArthur)
+
+7:11: **much more**. **Our Father** has no limit on His treasure and no bdounds to the goodness He is willing to bestow on His children **who ask him**. The greatest human parental love cannot compare with God's. God will infinitely outdo them in measure and in benefit. (MacArthur)
 
 
 
@@ -2893,9 +2923,24 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 #### The Golden Rule
 
+7:12: (<u>the flow of the Sermon on the Mount</u>) Here is the conclusion to the main theme of the Sermon on the Mount, which is to give the standards for kingdom living. Here He concludes giving the standards related to human relationships begun in vv.1-6. (MacArthur)
+
+7:12: **do to them**. Not to be judgmental is not the same as loving them. The absence of hatred does not constitute love. There has to be a positive side. (MacArthur)
+
+7:12: **you wish**. How we treat others is not to be determined by how we *expect*, or *think they should* treat us, but how we **want** them to treat us. (MacArthur)
+
+7:12: **whatever you wish others do to you, do also for them**. Jewish rabbi Hillel said, "What is hateful to yourself, do not to someone else". Same taught by Jewish scholars in Alexandria, Confucius, ancient Greek king Nicocles, Greek philosopher Epictetus, the Stoics.. and in every case, the emphasis is negative, and it falls short of God's perfect standard. The rule is not golden, but basically selfish, motivated by self-preservation. (MacArthur)
 
 
 
+
+
+
+
+
+#### The Narrow Gate
+
+7:13: (<u>the flow of the Sermon on the Mount</u>) 
 
 
 
@@ -2913,6 +2958,8 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 #### A Tree and its Fruit
+
+7:xx: (<u>the flow of the Sermon on the Mount</u>) 
 
 
 
@@ -2934,6 +2981,8 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 #### I Never Knew You
+
+7:xx: (<u>the flow of the Sermon on the Mount</u>) 
 
 
 7:21: Jesus does not want us to be externally religious; He wants us to be in a relationship with Him: to have a heart-to-heart connection with Him. (said: Byron Johnson)
@@ -2966,6 +3015,8 @@ How does a man enter the kingdom of God? By doing *the will of the Father* who i
 
 #### Build Your House on the Rock
 
+7:xx: (<u>the flow of the Sermon on the Mount</u>) 
+
 7:24-27: The Lord reminds us that a standard of righteousness is required to enter the Kingdom of God. And unless your life is **built** on that standard, no matter how it looks like, when the **flood** comes, it's going to be washed away. 
 Here, in both v. 24 and v. 26, you have people who **hear** the **word** or God, both have built their **houses**. They listen, and they are involved in certain spiritual activities, they both belong to the visible body of believers. They both read Scripture and both attend meetings of the church, they carry a Bible, they say certain prayers. They are both busy building some edifice of spiritual activity, and it looks very much the same. They both even built their houses in the same location, because the same storm hits both houses! But there is a tremendous difference: the foundation, that's invisible. Once the edifice is up, you can't see the foundation anymore. And so it really becomes difficult to tell. Only an honest and careful soul-searching and self-examination can reveal the truth.
 (MacArthur)
@@ -2995,6 +3046,8 @@ See also in Acts 20:32: "I commend you to the word of [God's] grace, which is ab
 
 #### The Authority of Jesus
 
+7:xx: (<u>the flow of the Sermon on the Mount</u>) 
+
 7:29: What is the difference? Perhaps, Jesus was explaining, and the Scribes merely commanded because "it is written"?
 
 
@@ -3017,6 +3070,8 @@ See also in Acts 20:32: "I commend you to the word of [God's] grace, which is ab
 
 
 ### Chapter 8
+
+7:xx: (<u>the flow of the Sermon on the Mount</u>) 
 
 8:8: Вера не только открывает человеку, какой Бог; вера также открывает человеку, каков он сам. Сотник называет себя недостойным именно по этой причине: он верит
 
