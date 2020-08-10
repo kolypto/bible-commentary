@@ -3225,6 +3225,12 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Joseph Interprets Two Prisoners' Dreams
 
+40:1: **cupbearer, ... baker**. Both are responsible for dinners and had unique access to Pharaoh, and were trusted to keep him from being poisoned. (ESV) 
+
+40:1: **cupbearer, ... baker**. As we will see, the cupbearer was in the end innocent, and the baker, guilty of this **offence**.
+
+40:4: **начальник телохранителей**. Скорее всего, это не Потифар, потому что Иосиф был под гневом Потифара; а сей начальник телохранителей доверяет ему. Это либо другой начальник... либо Потифар не так уж и гневался на Иосифа: возможно, держать в темнице его заставляла только честь дома. (Свт. Филарет (Дроздов))
+
 
 
 
