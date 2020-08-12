@@ -3274,10 +3274,27 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Joseph Interprets Pharaoh's Dreams
 
+41:1: **after two whole years**. According to Pirqei deRebi Eliezer §39, Joseph was in prison for ten years, meaning that he was 20 years of age when he was denounced, having served Potiphar for three years altogether. (Quora)
 
+41:1: **after two whole years**. Joseph was 17 when he was sold (Gen 37:2). By now, Joseph is about 30 years of age (v. 46). Some of those 13 years he served in Potiphar's house. The rest of the time, he was in prison. ([GotQuestions](https://www.gotquestions.org/Joseph-in-prison.html))
 
+41:1: **по прошествию двух лет**. Господь, как искусный художник, зная, насколько времени золото должно оставаться в огне, и когда его нужно вынимать оттуда, попускает виночерпию забыть об Иосифе в продолжение двух лет, для того, чтобы настало время для сновидений фараона, и праведник сделался бы известным всему царству. (Свт. Иоанн Златоуст)
 
+41:2: **Из реки**. Река = Нил. Коровы вышли из Нила, потому что плодородие Египта зависело от Нила. В первом эпизоде Нил даровал жирненьких коров, во втором, Нил даровал голодных коров. (Свт. Филарет (Дроздов))
 
+41:2: **Вышли из реки семь коров**. Рогатый скот в жарких странах подолгу остается в воде. (Лопухин А.П.)
+
+41:5: **и снилось ему в другой раз**.  Сон второй посылается для уверения в божественности первого сна (Быт. 41:32: "А что сон повторился фараону дважды, это значит, что сие истинно слово Божие, и что вскоре Бог исполнит сие"). (Свт. Филарет (Дроздов))
+
+41:5: **и снилось ему в другой раз**.  По понятиям древности, повторение сна значило тождество их смысла, безусловную сбываемость их, имело возбудить внимание фараона и веру его в провиденциальное значение сна первого. (Лопухин А.П.)
+
+41:7: **проснулся фараон и понял, что это сон**. Живость образов обоих снов была столь велика, что лишь по окончательном пробуждении фараон понял, что виденное было сном. (Лопухин А.П.)
+
+41:8: **his spirit was troubled**. The dreams share a common pattern of abundance followed by scarcity. The repetition of this theme troubles Pharaoh. (ESV)
+
+41:8: **there was none who could interpret them**. How come no one "made up" some sort of explanation? Or was there a capital punishment for interpretations that did not come to pass?
+
+41:8: **Не было никого, кто бы истолковал.**. Истолковать сны было нетрудно, но для того, чтобы истолкователем сна был Иосиф, сокрыт был смысл сна от мудрецов фараоновых. (Прп. Ефрем Сирин)
 
 
 
