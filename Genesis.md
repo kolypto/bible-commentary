@@ -3296,14 +3296,49 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 41:8: **Не было никого, кто бы истолковал.**. Истолковать сны было нетрудно, но для того, чтобы истолкователем сна был Иосиф, сокрыт был смысл сна от мудрецов фараоновых. (Прп. Ефрем Сирин)
 
+41:9: **Грех мой воспоминаю я ныне**. Или грех неблагодарности пред Иосифом, или грех пред фараоном. (Свт. Филарет (Дроздов))
 
+41:13: **as he interpreted to us, so it came about**. This is the most important part: not that Joseph could tell what the dream meant, but that it came to pass the way he interpreted. This tells that both the dream and its interpretation came from God.
 
+41:14: **out of the pit**. The expression **out of the pit** graphically illustrates what it was like for Joseph to be incarcerated in prison. (ESV)
 
+41:14: **остригся**. Стрижка волос — черта специфически египетская, — египтяне отпускали волосы лишь в печали (Лопухин А.П.)
 
+41:16: **It is not in me; God will**. Joseph is careful not to take any credit for the interpretation, even though it came from his lips and through his mind.
 
+41:16: **God will give .. an answer**. God, not Joseph, is the one who will answer Pharaoh’s request. (ESV)
 
+41:16: **ответ во благо**. В тексте самаритянском, сирском и у семидесяти речь сия имеет вид отрицательный, а смысл тот же: без Бога не дастся фараону мирного ответа. (Свт. Филарет (Дроздов))
 
+41:19: **such as I had never seen in all the land of Egypt**. This is a new detail; Pharaoh must have thought the dream over and over.
 
+41:21: **но неприметно было**. Плодородие первых семи лет не в силах будет покрыть своим излишком скудость 7 последующих лет голода. (Лопухин А.П.)
+
+41:34: **one-fifth**. That is 20% tax. People would not be too happy about it.
+
+41:38: **In whom is the Spirit of God**. Pharaoh listen to the words of Joseph where he said that God gives interpretations. It is likely, though, that he perceived God of the Hebrews as one more entity in their pagan framework.
+
+41:38: **Дух Божий**. Фараон усматривает источник мудрости Иосифа в Боге, и немедленно решает поставить Иосифа во главу государства. (Лопухин А.П.)
+
+41:42: **ring, garments, gold**. This very morning Joseph was in the pit where he has spend a decade. Now, in just one day, he has the best comforts and is the second most powerful person in the country.
+
+41:42: **перстень**. Перстень у древних был знамением не только некоторого начальства, но иногда и верховной власти. Так, Александр пред смертью подал свой перстень Пердикке, и сие принято было за знак унаследования. Так, Артаксеркс дал перстень Мардохею (Есф. 8:2). (Свт. Филарет (Дроздов)).
+
+41:45: **called Joseph’s name Zaphenath-paneah**. The provision of an Egyptian name and a wife completes the process by which Pharaoh fully integrates Joseph into the royal court. (ESV)
+
+41:45: **имя: Цафнаф-панеах**. Значение нового имени Иосифа — «спаситель мира» (по Иерониму и версии Семидесяти толковников), или «открыватель тайн» (по Иосифу Флавию), «питатель жизни», или «дух, обтекающий мир»; с точностью не установлено; во всяком случае новое имя Иосифа выражало ту мысль фараона, что Иосиф есть посланный Богом и имеющий послужить спасению Египта человек. (Лопухин А.П.)
+
+41:45: **the daugher of the priest**. Joseph’s marriage to Asenath, the daughter of Potiphera priest of On, would have completed his assimilation into Egypt. By marrying into a prominent priestly family, Joseph would gain additional acceptance. (ESV)
+
+41:45: **Асенефу, дочь Потифера, жреца**. С египетского — служительница богини Нейт ( египетская богиня охоты и войны). Иосиф, при сходстве с египтянами внешнего быта его, всегда оставался верен вере отцов. (Лопухин А.П.)
+
+41:47: **приносила из зерна по горсти**. настоящие слова Моисея истолковать можно так, что в течение семи лет изобилия земля приносила от одного зерна такое множество стеблей и колосьев, которое казалось целым снопом. Сие не покажется невероятным тому, кто знает плодородие древнего Египта. (Свт. Филарет (Дроздов))
+
+41:41-52: **for God, .. for God**. In naming his sons, Joseph demonstrates great joy over the way his life turned out, and great thankfulness to God who has done that. 
+
+41:54: **Во всей земле Египетской был хлеб.** Иосиф наперед устроил так, что, когда должен был наступить сильный голод, египтяне не чувствовали нужды. (Свт. Иоанн Златоуст)
+
+41:56: **стал продавать**. Он предпочел продавать хлeб, а не раздавать его даром тем, кто нуждался, потому что, раздарив его небольшому числу, он лишил бы хлeба весьма многих. Он держался той щедрости, которая обогащает всех. 
 
 
 
