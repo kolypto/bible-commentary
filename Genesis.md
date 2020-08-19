@@ -1706,6 +1706,9 @@ The covenant seems to become a covenant between nations.
 
 27:20: **God granted me success**. This probably falls into the category "use the Lord's name falsely". What Jacob does is simply unacceptable.
 
+27:23: **Лия**. Иаков оказался в ситуации, когда работал семь лет чтобы жениться на любимой женщине, а в итоге оказался обманом женат на другой. При этом он в состоянии примака: когда у тебя ничего нет, и тебя кормит твой дядя. Каково это вообще мужчине жить в такой ситуации?
+А всё почему? Потому что они с мамой решили помочь Богу исполнить Его обетование, которое и так было дано. А правда: вдруг Бог не справится, и обетование не исполнится; ужас-то какой, только подумайте! (МЦЦ)
+
 27:24: **I am**. Jacob, having just received a blessing, lies again. Everything happens in the presence of the God, evidenced by frequent mentions of the Lord.
 
 27:26: **Come near**. Isaac heard the words, and felt the hairy skin, but was not completely convinced until he smelled the clothes.
@@ -1956,7 +1959,13 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:34: **because I have borne him three sons**. While Leah, the unloved wife, was giving birth to the third son already, Rachel, the tenderly loved one, was unable to conceive. It's easy to understand how much tension this fact has added to the family.
 
+29:34: **Левий**. Иаков по-прежнему не любит Лию. Рождение детей не исправило ситуацию. Однако как сказано? "Господь, видя, что она нелюбима". Он подарил ей детей, чтобы в них у неё было утешение. Она же воспринимает этот дар совсем иначе: она считает, что теперь её полюбит муж. (МЦЦ)
+
+29:35: **На этот раз**. Только с четвёртым сыном она наконец поблагодарила господа Господа. До сих пор она пребывала в горечи, теперь же она начинает понимать, в чём её счастье. (МЦЦ)
+
 30:1,2: **Envied her sister** ... **Jacob's anger was kindled**. There was plenty of bitterness in the family.
+
+30:1: **Рахиль позавидовала своей сестре**. Обе сестры пребывают в постоянном огорчении: Лия нелюбима мужем, Рахиль не имеет детей, и ни одна из них не имеет благодарности к Богу за то что у неё есть. Рахиль недовольна и огорчена из-за радости своей сестры. (МЦЦ)
 
 30:2: While recognizing God’s role in this situation, however, Jacob does not pray for Rachel, as his father Isaac had done for Rebekah. (ESV)
 
@@ -1965,13 +1974,22 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 30:3: **Bilhah; go in to her**. Many questions arise. What Bilnah felt about it? Was she even asked? What did Leah feel about such a decision? Was she even asked? 
 Perhaps, it was normal in the ancient Near East? Then we can't read our modern-day views into it.
 
+30:3: **Вот Валла**. Какое же это помутнение рассудка из-за зависти! Ты любишь своего мужа, ты ревнуешь его к своей сестре, и толкаешь его к вообще другой женщине. (МЦЦ)
+
 30:6: **she called his name**. Bilnah gave birth for Rachel, so Rachel gives the name to the baby.
 
 30:8: **Mighty wrestlings**. An apt description of the tension in the family.
 
 30:9: **Took her servant Zilpah**. No doubt, as an act of revenge. I wonder what Jacob was thinking about this mess.
 
+30:11: **Гад**. Значит "удача". Удача! Возможно, это упоминание языческого бога удачи (Ис 65:11-12), которого она знала из отцовского дома, где у них были языческие традиции. (МЦЦ)
+
+30:13: **Асир**. Асир это имя ещё одного языческого божества: богини Астарта (Ашера), покровительница женщин, счастья, плодовитости. Уже второй сын получает такое имя. Едва ли Рахиль восприняла веру своего мужа. (МЦЦ)
+
 30:14: **Mandrakes**. Because mandrakes contain deliriant hallucinogenic tropane alkaloids and the shape of their roots often resembles human figures, they have been associated with a variety of superstitious practices throughout history. They have long been used in magic rituals, today also in contemporary pagan traditions. ([Wiki](https://en.wikipedia.org/wiki/Mandrake))
+
+30:14: **Мандрагоры**. Мандрагоры: здесь обе девушки демонстрируют языческое мышление: попытки манипулировать реальностью с помощью волшебных средств. Похоже, это сказывается воспитание Лавана: установка, которая диктует поведение.
+Лия и Рахиль едва ли восприняли веру мужа. Они всегда охотятся за удачей: мандрагоры, идолы отца, вражда друг с другом, служанки отданные мужу, имена детей связанные с удачей. (МЦЦ)
 
 30:15: **Taken away my husband**. When such a small thing becomes an issue, this tells that there was constant hostility and old bitterness. Even a small spark brings everything up.
 
@@ -1985,6 +2003,8 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:15: **In exchange for your son's mandrakes**.  Unfortunately, no explanation is given as to why Rachel is so eager to have these mandrakes; the context suggests that she may have viewed the plant as increasing female fertility. This and other proposals, however, must be treated with caution. (ESV)
 
+30:15: **Пусть Иаков ляжет с тобой сегодня ночью**. Надо заметить, Иаков очень послушный муж. (МЦЦ)
+
 30:16: **You must come in to me, for I have hired you**. It's been a long while that Jacob slept with her. Leah was still unloved, and judging by the desperate actions, she clearly suffered from it.
 
 30:16: **for I have hired you**. Insane.
@@ -1993,11 +2013,19 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:18: **because I gave my servant to my husband**. She saw this as an act of sacrifice!
 
+30:18: **Бог воздал**. Оказывается, Лия страдала по поводу того, что она подложила мужу свою служанку. Кстати, Рахиль не сожалеет о том , что подложила служанку. (МЦЦ)
+
+30:20: **чтить**. В Лии что-то меняется. Она больше не мечтает уже о том ,что станет любимой, но она уже надеется хотя бы на то, что он будет её чтить. Кстати, Иакова воля была, чтобы похоронить его именно с ней. (МЦЦ)
+
+30:20: **шестерых сыновей**. Детей служанки она даже не считает. (МЦЦ)
+
 30:22: **God remembered Rachel**. She has been bitter so far. Even the names of her servant's sons ("judge", "wrestle") tells us about her feelings.
 
 30:22: **God remembered Rachel**. After many years of waiting, Rachel eventually bears Jacob a son.  (ESV)
 
 30:23: **My reproach**. Since throughout Genesis fertility is often associated with divine blessing, a woman’s inability to bear children could be interpreted as reflecting divine disapproval. Given the resentment that existed between the sisters, Leah may well have taunted Rachel over her inability to bear children. (ESV)
+
+30:23: **мой позор**. Рувиму уже лет сорок; это же сколько лет она потратила на то, чтобы считать себя несчастной?? Просто радуйся и живи; что мешает?? Зависть. (МЦЦ)
 
 30:24: **Joseph**. The only son from the favorite and most loved wife.
 
@@ -2723,6 +2751,9 @@ Notice how God's plan, predicted before Jacob's birth, was implemented by the me
 
 35:18: **her soul was departing**. This is one place in the OT where the word “soul” (Hb. nepesh) denotes what gives life to the body. (ESV)
 
+35:18: **Вениамин**. Рахиль хотела ещё одного сына, из зависти и ревности. Она всё ещё несчастна. И называет сына "сын горести". Но тут уже Иаков не выдерживает и вмешивается, чтобы парень не жил всю жизнь с таким именем. 
+Рахиль умерла несчастной, потому что сама испортила себе весь свой путь. (МЦЦ)
+
 35:19: **Rachel died**. She was his most loved wife. Perhaps, even the only wife he really loved.
 
 35:20: **Set up a pillar**, but did not give it a name.
@@ -2864,6 +2895,10 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 37:xx: This story serves the first readers by explaining how they came to be in Egypt, namely, through God’s mysterious use of evil and noble deeds to bring about his purpose (cf. Gen. 50:20). (ESV)
 
+37:2: **Братья**. Десять детей Иакова росли и видели, что отец не любил их мать. Как думаете, что они будут испытывать по отношению к двум любимчикам? (МЦЦ)
+
+37:2: **Братья**. В отличие от Авраама и Иакова, в случае двенадцати сыновей, Божье благословение передаётся не одному человеку; благословение распространяется на всех их, которые должны стать одним целым: Израилем. (МЦЦ)
+
 37:2: **Joseph** and Benjamin are the only sons of Rachel, the wife that Jacob loved the most. They were Jacob's favorites, as can be clearly seen from the story, and other brothers resented Joseph because he, as it seems, enjoyed favoritism way too much. This time, he **brought a bad report**: basically, told on his brothers.
 
 37:2: **A bad report**. The report was probably true: we'll see in v.11 that Jacob trusted Joseph (about his dreams not being made up), and that the brothers were able to do wicked things.
@@ -2950,6 +2985,9 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 ### Joseph Sold by His Brothers
 
+37:2: **Рувим, Симеон, Левий**. Рувим, Симеон и Левий: это как раз те три сына, которые уже показали себя не лучшим образом. Один спал с наложницей отца; другие устроили резню; трое тем самым показали, что авторитета отца для них не существует. И они теперь лишены наследства.
+В этой семье нет ни мира, ни доверия. И потому отец отправляет Иосифа проверить, что там происходит. (МЦЦ)
+
 37:12: **Pasture the flock .. near Shechem**. Joseph’s brothers have taken the family flocks northward from Hebron to find better pasture. (ESV)
 
 37:13: **Here I am.** In the OT the phrase indicates complete readiness. Joseph exhibits readiness to obey his father.
@@ -2986,6 +3024,9 @@ Fratricide is a repeated theme in Genesis and represents the presence of sin in 
 37:25: **Sat down to eat**. This underlines the callousness of the brothers, who have just thrown their brother into a pit, and are now having a pleasant time. (ESV)
 
 37:25: **сели они есть хлеб**. Рувим в этом время отсутствует.
+
+37:25: **караван**. Откуда там вообще взялся караван? Почему братья ушли из Сихема? Зачем было из проверять?
+Вполне возможно, что, лишённые наследства, трое братьев приторговывали скотом как раз с тем караваном. Отсюда и идея про продажу брата, и потому сделка так легко состоялась: братья уже знали водителей каравана. (МЦЦ)
 
 37:25: **стираксу, бальзам и ладан**. Все эти продукты в сыром виде везлись в Египет, где и приготовлялись из них пряности; позже Иаков (Быт. 43:11) послал этих продуктов в дар Иосифу. (Лопухин А.П.)
 
@@ -3035,8 +3076,8 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 
 37:35: **His sons rose to comfort him**. The very sons that caused him this suffering are now trying to comfort him. Every word they must have said was either a blunt lie, or a huge discomfort to those who had to invent all sorts of falsehoods.
 
-
-
+37:35: **утешить его**. Когда братья увидели горе отца... они стали жить с чувством вины. Представляете, каково это, долгие годы жить с чувством вины, которое никак не исправить, и о котором даже не рассказать?
+Потому когда стало ясно, что Иосиф жив, они испытали настоящее освобождение. (МЦЦ)
 
 
 
@@ -3457,6 +3498,9 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 ### Joseph Provides for His Brothers and Family
+
+45:1: Примирение Иосифа и братьев — это история превращения семьи Иакова в Израиль. Там , где было соперничество, вражда, хитрость и обман, теперь единство. 
+Зачем это всё было? Потому что в том виде, в каком была эта семья, они не смогли бы стать Израилем. В них нужно было многое поменять. Потому что Бог делает что-либо для того, чтобы мы обрели будущность и надежду (Иер 29:11-13) (МЦЦ)
 
 
 
