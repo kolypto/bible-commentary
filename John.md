@@ -40,6 +40,8 @@ Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. H
 
 3:16: See also note on Jn 14:15 which explains how faith means obedience.
 
+4:19: **I perceive that you are a prophet**. Женщина только что убедилась, что сидящий перед ней Человек знает сокрытое. Встретив такого человека, из всех вопросов которые она могла бы задать, ей больше всего хотелось знать, как и где правильно поклониться Богу. У неё было ищущее сердце.
+
 5:25: Spiritually **dead** — those currently dead in sin — **will** come to **life**. (See: "you were dead in trespasses and sins" (Eph 2:6); " let the dead bury their own dead" (Mt 8:22)).
 
 5:27: **Son of Man** is a reference to the "son of man" of Daniel, Who is Messiah. Jesus will judge because He is the Messiah. (Андроник)

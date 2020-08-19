@@ -153,6 +153,10 @@ Reading Genesis 1-11 (Primeval history), readers will see that it’s designed t
 
 3:6: The whole time Adam, **who was with her**, was around, and didn’t stop his wife. 
 
+3:6: **gave some to her husband**. Adam has seen that Eve was not dead. So that means, God really is withholding something from them! (MacArthur)
+
+3:7: **knew that they were naked**. when Adam and Eve disobeyed God, the first thing they experience is guilt and shame. Something they didn't know before. That is why they covered themselves. (MacArthur)
+
 3:9: Both “**man**” and “**you**” are singular in Hebrew. God thus confronts Adam first, holding him primarily responsible for what happened, as the one who is the representative (or “head”) of the husband-and-wife relationship, established before the fall (ESV)
 
 3:14: God addresses the **serpent **first (ESV)
@@ -168,6 +172,10 @@ Reading Genesis 1-11 (Primeval history), readers will see that it’s designed t
 3:15: Some interpreters have suggested that by saying “**he**” and “**his**,” the intended meaning is that one particular **offspring** is in view. (ESV)
 
 3:15: The serpent will still be able to hurt the seed, but the **bruising of the heel** is far less serious than the fatal injury the serpent suffers itself: **the bruising of the head**. (ESV)
+
+3:15: **He shall bruise your head**. right in the middle of the curse, God promises that the times will change, and someone will come, he will restore paradise, and crush the serpent's. And immediately after this, God provides a covering for their shame. This is a loving God speaking. (MacArthur)
+
+3:15: **Enmity, .. bruise your head, .. bruise his heel**. God speaks to satan here: “You thought that mankind will be your friends now, but I tell you: it isn’t going to be that way. The woman will not belong to you: she will be your enemy and you will be her enemy. And out of her loins are going to come those who belong to Me. They will be the enemies of those who belong to you, and in the end, out of her loins is going to come the One who will crush your head, and all you’ll be able to do is bruise His heel.” (MacArthur)
 
 3:16: Ветхозаветное проклятие — это не программирование реальности, а просто констатация факта: как оно будет устроено до второго пришествия. (Андроник Пантак)
 
@@ -189,17 +197,34 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 3:16: У тебя будет желание главенствовать над мужем, но нормально жить ты будешь только если он будет властвовать над тобою. (Андроник Пантак)
 
+3:16: **Your desire shall be to your husband**. Some have suggested that this means a sexual desire, but that's certainly not a punishment. Moreover, sex is something that God has given them before the Fall; how else could He say, "be fruitful and multiply" (Gen 1:28)?
+This means something else. This means that her desire – her desire is going to be something negative, something that reflects separation and alienation. Up to this point everything does.
+Let's look at the language. The word "**desire**" comes from an Arabic root meaning "to seek control". Literally, it reads "you shall seek to control over your husband". That is a sign of the curse.
+This desire shows up in various women in various ways. In some of them it’s a quiet, silent desire that smolders, with others it is a shouting desire that isn’t much of a secret to anybody. And the more godless women are, very often the more hostile they are toward men. Sometimes that hostility takes the attitude of coldness, indifference, apathy. Because she can’t achieve what she wants, she eventually becomes totally indifferent and apathetic toward the man. (MacArthur)
+
+3:17: **To Adam He said**. The curse is on the sphere where the person lives. 
+Man's sphere is represented by the field in which he works. 
+Woman's sphere is represented by the family, in which she has pain in labor, and conflict with her husband. 
+The curse strikes to the very heart of what the person is doing.
+(MacArthur)
+
 3:19: Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
 
 3:19: That the man **is dust** was not news to the man, but his the **returning to the dust** was. Death sounds normal and natural to us, but to Adam, it was the introduction of a new fearful concept into his world.
 
 3:19: The second part of man’s punishment was that the man’s body will return to the ground, i.e., it will die. Death has entered the world. (ESV)
 
+3:20: **Eve**, which means, life. Adam calls his wife “life” because she was the mother of all the living. Well, I got news for you, folks. At the time that he named her, she was the mother of nobody. She was the mother of nobody. 
+God has said that He will provide an atonement, He will provide the conqueror of Satan and sin who will restore paradise and rescue the sinner. On the basis of that promise, Adam gives name to his wife. 
+This tells me that Adam trusted God. God had only said one thing to him, just one thing, really, that he gripped about the future and that is that there would be a seed who would come. Adam became a believer, like Abraham. (MacArthur)
+
 3:21: There is an opinion that those **skins** might have been bodies, borrowed from an animal, and used as a vessel for human beings, who previously used to shine, like Jesus did (Origenes)
 
 3:21: As a gesture, **God’s clothing** of the rebellious couple suggests that God still cares for these, his creatures. (ESV)
 
 3:21: Because **God** provides **garments to clothe** Adam and Eve, thus requiring the death of an animal to cover their nakedness, many see a parallel here related to (1) the system of animal sacrifices to atone for sin later instituted by God through the leadership of Moses in Israel, and (2) the eventual sacrificial death of Christ as an atonement for sin. (ESV)
+
+3:21: **garments of skins**. God killed an animal in order to cover their shame. This is the first illustration of s substitutionary sacrifice: an innocent animal had to die in order to cover the sins of a guilty party. And God is the one who killed here. This is, of course, an illustration, and the prototype, for temple sacrifices, and for the ultimate sacrifice of Jesus for our sins. (MacArthur)
 
 3:23: **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, would remove the possibility of repentance, resulting in eternal separation from God?
 
@@ -290,6 +315,8 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 5:3: While this implies that **Seth** is made, like **Adam**, in the divine **image**, it also suggests that he images his father as well; Seth’s line, however, is certainly portrayed more positively than that of Cain. (ESV)
 
 5:4: One of the most striking aspects of the passage is the great age of the first people in Genesis. The traditional understanding is that the numbers should be taken at face value, often assuming that something changed in the cosmology of the earth or in the physiology of humans (or in both) after the flood, resulting in a rapid decline in longevity, finally stabilizing at a “normal” life span in the range of 70 years or 80 years (Ps. 90:10: “ The years of our life are seventy, or even by reason of strength eighty“). In any case, one clear implication of these genealogies is that these people actually lived (regardless of how long), and that they actually died. (ESV)
+
+5:5: **Lived 930 years**. You complain that you have to work a lot and you can only retire when you are 60? Give me a break! Adam lived in toil *for 900 years*! And that -- after living in the Garden, where everything was growing by itself! (MacArthur)
 
 5:23: The number **365** had no special significance to Hebrews.
 

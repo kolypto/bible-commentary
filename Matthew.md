@@ -3645,3 +3645,21 @@ What does it say about their religion?
 27:51: Geological evidence for the earthquake:”We have tabulated a varved chronology from a core from Ein Gedi on the western shore of the Dead Sea between deformed sediments due to a widespread earthquake in 31 BC and deformed sediments due to an early first-century earthquake. The early first-century seismic event has been tentatively assigned a date of 31 AD with an accuracy of ±5 years.” [https://christianity.stackexchange.com/q/14153/43703](https://www.google.com/url?q=https://christianity.stackexchange.com/q/14153/43703&amp;sa=D&amp;ust=1582399365459000)
 
 27:59: **Joseph took the body**. Коснувшись мёртвого тела, Иосиф стал нечист, и потому не мог продолжать отмечать пасху. Столкнувшись с выбором между милостью к человеку и религиозной традицией, Иосиф сознательно выбирает милость. (Андроник Пантак)
+
+
+
+
+
+
+
+### Chapter 28
+
+28:2: **Angel .. rolled back the stone**. The angel did not move the stone to let the Lord out; the angel moved the stone to let the women in! The angel moved the stone so that the world could come in and see that Jesus was gone! (MacArthur)
+
+28:9: **Jesus met them**. Do you know why the women were the first to see the risen Christ? 
+Because they were there. 
+I mean, if you're not there, you're not going to see it. 
+You know what it says to me? Profound, yet simple: it's nice if you're there when the Lord does wonderful things! 
+(MacArthur)
+
+

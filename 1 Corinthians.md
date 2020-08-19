@@ -182,9 +182,12 @@ That’s the crescendo of love. Love bears all hurts and wounds, all sins and di
 Love goes on believing the best about somebody, the very best about them. It’s never cynical and it’s never suspicious, in spite of the way it’s been wounded. And when love’s believing is betrayed, then love turns to hoping because God is still God and He still rules and He can do anything. And even when hope grows thin and all hope seems lost, love endures. It endures the deep hurt that seems so final with a triumphant confidence that the God who gives His children peace is still on the throne. You see, love is never overwhelmed. It cares too much to give up. It will die caring. It will die being spit on and say, “Forgive them.” That’s love.
 (MacArthur)
 
+15:29: **baptized on behalf of the dead**. A friend of mine who did a dissertation in graduate school on the views of that verse, and he covered forty of them; there may be a hundred. (MacArthur)
+
+15:29: **baptized on behalf of the dead**. Mormon leaders teach that the spirits of those who have died are suspended somewhere and do not enter heaven until another Mormon is baptized for them by proxy, which then gets them out of wherever they are into heaven. This view claims that Paul is teaching that a Christian who has been baptized allows himself to be baptized again, and maybe again and again and again for persons who have died without baptism. Now, obviously, Scripture doesn’t teach that. In fact, your own baptism didn’t save you. (MacArthur)
+
 16:14: Paul has just given four military commands; here’s a fifth: **be loving**. This is such an important one because it balances everything else off. Let all your things be done in love. That’s the beautiful softening principle.
 What Paul leads us to is unretreating courage and unfailing **love**. And they have to come side by side. Too much love and not enough standing, and you’re going to wash away in sentimentalism. Too much standing and not enough love, and you’re going to be sort of an ugly theologian. Got to be both. Got to have love and sound doctrine. We see these things again and again through the New Testament. They’ve got to go together. Let everything you do be done in love. And by love we simply mean self-sacrificing service to the one in need, that’s all. Self-sacrificing service to the one in need. Not emotion. Not a feeling, but an act of love, an act of service. Jesus said, “Love one another as I have loved you.” The way he just loved them was to wash their feet and that’s how we love, by washing feet. That is meeting the need of a person who has a need.
 We’ve got two things he says then, “You want to straighten your church out? Sound doctrine and love.”  
 (MacArthur)
 
-<p class="c2 c10"></p>
