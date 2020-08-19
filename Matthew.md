@@ -3642,6 +3642,11 @@ What does it say about their religion?
 
 ### Chapter 27
 
+27:45: **Darkness**. The black darkness lasted for three hours straight.
+What has started as a mockery and spectacle, has now become a tragedy. God has made His presence known in the darkness and the earthquake, and nobody spoke for three hours, terrified. (MacArthur)
+
+27:45: **From the sixth hour**. It's 3:00: time for the sacrifice of the Passover lambs, which was done between 3:00 and 5:00. And it was absolute chaos. There would be tens of thousands of animals ready to be sacrificed by the full contingency of the priests who are in horror because the curtain has been torn from the top to the bottom: the curtain that separates the Holy of Holies, the presence of God, which is so fearful that only one person could go in once a year, the High Priest on the Day of Atonement. The chaos at the temple would have been indescribable.  They wouldn’t know what to do. (MacArthur)
+
 27:51: Geological evidence for the earthquake:”We have tabulated a varved chronology from a core from Ein Gedi on the western shore of the Dead Sea between deformed sediments due to a widespread earthquake in 31 BC and deformed sediments due to an early first-century earthquake. The early first-century seismic event has been tentatively assigned a date of 31 AD with an accuracy of ±5 years.” [https://christianity.stackexchange.com/q/14153/43703](https://www.google.com/url?q=https://christianity.stackexchange.com/q/14153/43703&amp;sa=D&amp;ust=1582399365459000)
 
 27:59: **Joseph took the body**. Коснувшись мёртвого тела, Иосиф стал нечист, и потому не мог продолжать отмечать пасху. Столкнувшись с выбором между милостью к человеку и религиозной традицией, Иосиф сознательно выбирает милость. (Андроник Пантак)
