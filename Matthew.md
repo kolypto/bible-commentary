@@ -2940,10 +2940,32 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 #### The Narrow Gate
 
-7:13: (<u>the flow of the Sermon on the Mount</u>) 
+7:13: (<u>the flow of the Sermon on the Mount</u>) Here is the appeal to which Jesus has been moving through the whole sermon. He gives the call to decide now about becoming a citizen of God's kingdom and inheriting eternal life, or remaining a citizen of this fallen world and receiving damnation. The way to life is on God's terms alone; the way to damnation is on any terms a person wants, because every way but God's leads to the same fate. (MacArthur)
 
+7:13: **enter by the narrow gate**. The inevitable decision that every person must make, the crossroads where he must decide on the **gate** he will enter and the **way** he will go. (MacArthur)
 
+7:13: **Enter** is an imperative: it demands a definite and specific action. The command is not to admire or to ponder the **gate**, but to **enter** it. (MacArthur)
 
+7:13: **Enter by the narrow gate**. There are only two gates: the narrow and the wide. There are only two ways, the narrow and the broad. Two destinations: life, and destruction. Two groups: the few, and the many. 
+Two kinds of trees: the good and the bad, which produce two kinds of fruit: the good and the bad. Two kinds of people who profess faith: the sincere and the false. (MacArthur)
+
+7:13: **narrow**. Narrow gate means that those who enter do so stripped of all they possess, rather than adding Jesus to their accumulated treasures and/or religious credentials. (MacArthur)
+
+7:13: **narrow**. We proclaim the narrow way because it is God's only way for men to find salvation and eternal life. We proclaim a narrow gospel because Jesus said, "I am the door; if anyone enters through Me, he shall be saved" (Jn 10:9). We proclaim a narrow gospel because "there is salvation in no one else; for there is no other name under heaven that has been given among men, by which we must be saved" (Acts 4:12) and "there is one God and one mediator between God and men, the man Christ Jesus" (1 Tim 2:5). (MacArthur)
+
+7:13: **wide gate**. The gate of pride, of self-righteousness, and self-satisfaction, is the **wide gate** of the world, not the narrow gate of God. (MacArthur)
+
+7:13: **the way is broad**. There are few rules, few restrictions, and few requirements. All you need is to be religious, and you are readily accepted in that large and diverse group. Sin is tolerated, truth is moderated, and humility is ignored. God's Word is praised but not studied, and His standards are admired but not followed. (MacArthur)
+
+7:13: **leads to destruction**. God has always allowed men to choose Him or not, has always bent every effort and spared no cost in wooing His creatures back to Himself, and pleaded with them to decide for Him or face the consequences. (MacArthur)
+
+7:14: **The gate .. that leads to life**. There are not many roads to heaven, but one. There are not many good religions, but only one. (MacArthur)
+
+7:14: **the gate is narrow and the way is hard**. Narrow (Gk. *stenos*) comes from a root that means "to groan", as from being under pressure, and is used figuratively to represent a restriction or constriction. (MacArthur)
+
+7:14: **those who find it are few**. The fact that few find it implies that it is to be sought diligently. No one has ever wandered through the narrow gate by accident. (MacArthur)
+
+7:14: **the way is hard**. When we choose to follow Christ, we rely on His power rather than our own and are willing to forsake our own way for His. It can cost persecution, ridicule, and tribulation. (MacArthur)
 
 
 
