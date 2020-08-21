@@ -2874,9 +2874,6 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 
-
-
-
 #### Ask, and It Will Be Given
 
 7:xx: (<u>the flow of the Sermon on the Mount</u>) The first thing to ask God for is *wisdom*: then you will know how to help a sinning brother, how to discern falsehood and apostasy. Go to your Father, **ask, seek, and knock**. (MacArthur)
@@ -2921,6 +2918,11 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 
+
+
+
+
+
 #### The Golden Rule
 
 7:12: (<u>the flow of the Sermon on the Mount</u>) Here is the conclusion to the main theme of the Sermon on the Mount, which is to give the standards for kingdom living. Here He concludes giving the standards related to human relationships begun in vv.1-6. (MacArthur)
@@ -2930,6 +2932,18 @@ The text shows that in such a situation the believer does not condemn, but rathe
 7:12: **you wish**. How we treat others is not to be determined by how we *expect*, or *think they should* treat us, but how we **want** them to treat us. (MacArthur)
 
 7:12: **whatever you wish others do to you, do also for them**. Jewish rabbi Hillel said, "What is hateful to yourself, do not to someone else". Same taught by Jewish scholars in Alexandria, Confucius, ancient Greek king Nicocles, Greek philosopher Epictetus, the Stoics.. and in every case, the emphasis is negative, and it falls short of God's perfect standard. The rule is not golden, but basically selfish, motivated by self-preservation. (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -2966,6 +2980,13 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 7:14: **those who find it are few**. The fact that few find it implies that it is to be sought diligently. No one has ever wandered through the narrow gate by accident. (MacArthur)
 
 7:14: **the way is hard**. When we choose to follow Christ, we rely on His power rather than our own and are willing to forsake our own way for His. It can cost persecution, ridicule, and tribulation. (MacArthur)
+
+
+
+
+
+
+
 
 
 
@@ -3672,6 +3693,19 @@ What has started as a mockery and spectacle, has now become a tragedy. God has m
 27:51: Geological evidence for the earthquake:”We have tabulated a varved chronology from a core from Ein Gedi on the western shore of the Dead Sea between deformed sediments due to a widespread earthquake in 31 BC and deformed sediments due to an early first-century earthquake. The early first-century seismic event has been tentatively assigned a date of 31 AD with an accuracy of ±5 years.” [https://christianity.stackexchange.com/q/14153/43703](https://www.google.com/url?q=https://christianity.stackexchange.com/q/14153/43703&amp;sa=D&amp;ust=1582399365459000)
 
 27:59: **Joseph took the body**. Коснувшись мёртвого тела, Иосиф стал нечист, и потому не мог продолжать отмечать пасху. Столкнувшись с выбором между милостью к человеку и религиозной традицией, Иосиф сознательно выбирает милость. (Андроник Пантак)
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

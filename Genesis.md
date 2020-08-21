@@ -3095,6 +3095,9 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 
 
 
+
+
+
 ### Judah and Tamar
 
 38:1: **Went down from his brothers**. A sense of foreboding is conveyed through Judah’s separation from the rest of his family, his friendship with **Hirah**, a native of the Canaanite city of Adullam (about 19 km southwest of Bethlehem), and his marriage to an unnamed Canaanite woman, the daughter of Shua. In Genesis, marriages to Canaanites are never applauded. (ESV)
@@ -3291,6 +3294,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
+
+
 ### Joseph Interprets Two Prisoners' Dreams
 
 40:1: **cupbearer, ... baker**. Both are responsible for dinners and had unique access to Pharaoh, and were trusted to keep him from being poisoned. (ESV) 
@@ -3328,6 +3333,14 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 40:20: **Pharaoh’s birthday** may refer to his actual birthday or to the anniversary of his accession, when amnesties were more often granted. (ESV)
 
 40:23: **не вспомнил .. об Иосифе**. Талмудисты в этом обстоятельстве видели божественное наказание Иосифу за его грех человеконадеяния, вместо надежды на одного Бога, и ссылались при этом на Пс. 39:5 ("Блажен муж, ему же есть имя Господне упование его"). Но подлинный высший прагматизм истории Иосифа, бесспорно, лучше понимает святой Иоанн Златоуст, говоря: «Иосифу нужно было (2 года) ожидать благоприятного времени, чтобы выйти из темницы со славой. (Лопухин А.П.)
+
+
+
+
+
+
+
+
 
 
 
@@ -3407,6 +3420,20 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 41:54: **Во всей земле Египетской был хлеб.** Иосиф наперед устроил так, что, когда должен был наступить сильный голод, египтяне не чувствовали нужды. (Свт. Иоанн Златоуст)
 
 41:56: **стал продавать**. Он предпочел продавать хлeб, а не раздавать его даром тем, кто нуждался, потому что, раздарив его небольшому числу, он лишил бы хлeба весьма многих. Он держался той щедрости, которая обогащает всех. Если бы он раздал даром, то поля могли бы оставаться необрабатываемыми, так как пользующийся чужим (обычно) не радит о своем. (Свт. Амвросий Медиоланский)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
