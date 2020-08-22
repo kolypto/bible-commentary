@@ -3002,8 +3002,17 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 #### A Tree and its Fruit
 
-7:xx: (<u>the flow of the Sermon on the Mount</u>) 
+7:xx: (<u>the flow of the Sermon on the Mount</u>) After giving the invitation to "enter by the narrow gate", Jesus warns that not everyone who claims to have entered actually has done so. The narrow way would be difficult and demanding, but the broad way is easy and permissive. (MacArthur)
 
+7:15: **Beware** is not a call simply to notice or sense something, but to be on guard against it because it is so harmful. (MacArthur)
+
+7:15: **False prophets**. Unlike heretics (openly reject) and apostates (turned away from faith), **false prophets** give the appearance of orthodoxy: one who speaks favourably of Christ and the Bible, likes to be with Christians. He gives considerable evidence of genuine belief, but he is a living lie. "And no wonder, for even satan disguises himself as an angel of light" (2 Cor 11:14). Such people can creep into Christian circles unnoticed. They are often pleasant and positive. They appear to be sincere and can easily mislead others. (MacArthur)
+
+7:15: **Sheep's clothing**. False prophets are dangerous because of their deception: we do not see the enemy for what he is, and our defenses are down. The *dogs and swine* of v. 6 are much more easily recognized because of their open sinfulness and rejection of God. (MacArthur)
+
+7:15: **Wolves**. In Palestine, wolves are the most common natural enemy of sheep, who were utterly defenceless against them. They roamed the hills and valleys, looking for a sheep that strayed away from the flock or lagged behind, and tore it to pieces. (MacArthur)
+
+7:15: **Ravenous wolves**. Jesus warns that some who have entered the wide gate are are confirmed and established in false religion and are extremely dangerous, even to the most mature Christians.
 
 
 
