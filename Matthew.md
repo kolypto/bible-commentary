@@ -3014,8 +3014,15 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 7:15: **Ravenous wolves**. Jesus warns that some who have entered the wide gate are are confirmed and established in false religion and are extremely dangerous, even to the most mature Christians.
 
+7:15: **You will know them** is the assurance that a person will inevitably be revealed by the life they live. (MacArthur)
 
+7:17: **Good tree bears good fruit**. A fruit tree may be beautiful, decorative, and offer a pleasant shade in the summer, but its primary purpose is to bear fruit. It is therefore judged by what it produces, not by how it looks. (MacArthur)
 
+7:17: **Good fruit**. Three tests to apply in order to know.
+*Character*. His inner motives, standards, loyalties, attitudes, ambitions, will eventually show through how he acts. True believer will be growing in faith, moral excellence, knowledge, self-control, perseverance, godliness, brotherly kindness, and love. (2 Pet 1:5-8: "if these qualities are yours and are increasing")
+*Creed*. Superficially, he may seem biblical and orthodox, but careful examination will reveal false ideas, or omittance of important truths. The creed of a false prophet will be vague. No demanding truths will be absolute clear-cut, and every principle will be easy and attractive.
+*Converts*. False prophets will attract people who have the same superficial and self-centered orientation as they do. They will be self-oriented and group-oriented, but never God-oriented.
+(MacArthur)
 
 
 

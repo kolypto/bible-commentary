@@ -5,6 +5,8 @@
 
 1:13: Notice, **He sealed us**. Verse 13, “In Him you also after listening to the message of the truth, the gospel of your salvation having also believed, you were sealed in Him with the Holy Spirit of promise who is given as a pledge or a guarantee of our inheritance, with a view looking forward to the redemption of God’s own possession,” that’s us, “to the praise of His glory.”  He sealed us.  Sealing something in ancient times was a sign of ownership, a sign of security, a sign of authenticity and a sign of a completed transaction.  When we were saved, He sealed us.  How?  Gave us His Spirit.  The Holy Spirit dwelling in a believer is a sign that God owns that believer, a sign that that believer is secure, a sign that that believer is authentic, a sign that that believer has received the completed transaction.  He secures us, authenticates us, completes us, and owns us, we are His own possession.  Verse 14 says: and the indwelling Spirit is the guarantee that someday we’ll experience the fullness of what that means.  Marvelous.  We wait for the full redemption, Romans 8 says, but we’re sealed until that day. (MacArthur)
 
+2:10: **Good works**. No person is saved *by* good works, but every believer is saved *for* good works. (MacArthur)
+
 5:22: The prerequisites start in v. 19: have a joyful spirit; v. 20: be thankful, even for the trials (because they come from God and have a perfecting work); v.21: have an attitude of mutual submission, in which you consider others better than yourselves. These are the spiritual prerequisites for a successful marriage. (MacArthur)
 
 5:22: Sarah called her husband "**Lord**" (1 Pet 3:6). (MacArthur)
