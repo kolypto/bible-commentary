@@ -3002,7 +3002,7 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 #### A Tree and its Fruit
 
-7:xx: (<u>the flow of the Sermon on the Mount</u>) After giving the invitation to "enter by the narrow gate", Jesus warns that not everyone who claims to have entered actually has done so. The narrow way would be difficult and demanding, but the broad way is easy and permissive. (MacArthur)
+7:15: (<u>the flow of the Sermon on the Mount</u>) After giving the invitation to "enter by the narrow gate", Jesus warns that not everyone who claims to have entered actually has done so. The narrow way would be difficult and demanding, but the broad way is easy and permissive. (MacArthur)
 
 7:15: **Beware** is not a call simply to notice or sense something, but to be on guard against it because it is so harmful. (MacArthur)
 
@@ -3024,6 +3024,7 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 *Converts*. False prophets will attract people who have the same superficial and self-centered orientation as they do. They will be self-oriented and group-oriented, but never God-oriented.
 (MacArthur)
 
+7:19: **thrown into the fire**. False prophets have chosen the broad path and their end is destruction. (MacArthur)
 
 
 
@@ -3041,20 +3042,17 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 #### I Never Knew You
 
-7:xx: (<u>the flow of the Sermon on the Mount</u>) 
+7:21: (<u>the flow of the Sermon on the Mount</u>) Now Jesus gives the final reason why so few enter the narrow gate of salvation: self-deception. Sinful man is biased in his own favor and, because of pride, tends to reject the true gospel. (MacArthur)
 
+7:21-27: **Everyone who says ...; everyone who hears**. Two categories of self-deception: mere verbal profession (those who say but do not do), and mere intellectual knowledge (those who hear but do not do). (MacArthur)
 
-7:21: Jesus does not want us to be externally religious; He wants us to be in a relationship with Him: to have a heart-to-heart connection with Him. (said: Byron Johnson)
+7:21: **the one who does the will of my Father** Jesus does not want us to be externally religious; He wants us to be in a relationship with Him: to have a heart-to-heart connection with Him. (said: Byron Johnson)
 
-7:21: **Lord, Lord**. Mt: This verse is essentially saying that some people who think they will go to heaven would actually end up in hell.
-in this verse there is a condition for entering the kingdom of God. 
-These words, **Lord, Lord**, express their surprise: many people would go to hell eternally disappointed because they thought that their religiosity was enough. They depend on their morals, their good deeds, their church membership, their religious feelings, their baptism.
-d. 
-How does a man enter the kingdom of God? By doing *the will of the Father* who is in heaven. Lip profession is not enough, there's got to be obedience. 
-(MacArthur)
+7:21: **one who does the will of my Father**. If a person habitually and unrepentantly practices any sin without remorse or repentance, such persons cannot be Christian, no matter what sort of experience they claim to have had or what sort of testimony they now make. (MacArthur)
 
+7:21: **one who does the will of my Father**. Unless a person is interested in decreasing sin and increasing righteousness, he is deceiving himself, being more concerned with by-products of the faith rather than the fruit itself. (MacArthur)
 
-
+7:21: **Not everyone .. will enter the kingdom**. This verse is essentially saying that some people who think they will go to heaven would actually end up in hell. These words, **Lord, Lord**, express their surprise: many people would go to hell eternally disappointed because they thought that their religiosity was enough. (MacArthur)
 
 
 
