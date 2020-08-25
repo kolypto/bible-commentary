@@ -3044,17 +3044,37 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 7:21: (<u>the flow of the Sermon on the Mount</u>) Now Jesus gives the final reason why so few enter the narrow gate of salvation: self-deception. Sinful man is biased in his own favor and, because of pride, tends to reject the true gospel. (MacArthur)
 
+7:21: **Not everyone .. will enter the kingdom**. This verse is essentially saying that some people who think they will go to heaven would actually end up in hell. These words, **Lord, Lord**, express their surprise: many people would go to hell eternally disappointed because they thought that their religiosity was enough. (MacArthur)
+
 7:21-27: **Everyone who says ...; everyone who hears**. Two categories of self-deception: mere verbal profession (those who say but do not do), and mere intellectual knowledge (those who hear but do not do). (MacArthur)
 
-7:21: **the one who does the will of my Father** Jesus does not want us to be externally religious; He wants us to be in a relationship with Him: to have a heart-to-heart connection with Him. (said: Byron Johnson)
+7:21: **Lord, Lord**. Suggests more than human respect, as their following comments make clear. These people acknowledged Jesus as **Lord** in a supernatural way, calling him God. (MacArthur)
 
-7:21: **one who does the will of my Father**. If a person habitually and unrepentantly practices any sin without remorse or repentance, such persons cannot be Christian, no matter what sort of experience they claim to have had or what sort of testimony they now make. (MacArthur)
+7:21: **Lord, Lord**. It is noteworthy that in the parable of the ten virgins (Mt 25:1-13) some are shut out of the kingdom as crying out **Lord, Lord**, to which He also replies, "I do not know you". (MacArthur)
 
 7:21: **one who does the will of my Father**. Unless a person is interested in decreasing sin and increasing righteousness, he is deceiving himself, being more concerned with by-products of the faith rather than the fruit itself. (MacArthur)
 
-7:21: **Not everyone .. will enter the kingdom**. This verse is essentially saying that some people who think they will go to heaven would actually end up in hell. These words, **Lord, Lord**, express their surprise: many people would go to hell eternally disappointed because they thought that their religiosity was enough. (MacArthur)
+7:21: **one who does the will of my Father**. If a person habitually and unrepentantly practices any sin without remorse or repentance, such persons cannot be Christian, no matter what sort of experience they claim to have had or what sort of testimony they now make. (MacArthur)
 
+7:22: **on that day**. The day of final divine judgment. (MacArthur)
 
+7:22: **many**. The same **many** who enterd the wide gate are now at the end of the broad way facing the Judge. (MacArthur)
+
+7:22: **prophecy in your name, cast out demons in your name, do many mighty works in your name**. It is possible that some kind of miracles are performed even by those who were not genuine believers.
+Explanations:
+1. They were allowed to do amazing works by God's power. God put words into Balaam's mouth, even though that prophet was false and wicked (Num 23:5). King Saul, after he became apostate, had the "Spirit of God come upon him mightily, so that he prophesied" (1 Sam 10:10). The wicked high priest Caiaphas unwittingly, and unintentionally, "prophesied that Jesus was going to die for the nation" (John 11:51).
+2. Those amazing acts were accomplished by satan's power. "false prophets will show great signs and wonders" (Mt 24:24). Jewish exorcists made their living casting out demons (Acts 19:13-14). Mk 9:38-40 tells of someone outside the apostles casting out demons. Today there are miracle workers, healers, and exorcists, who claim to work for Jesus Christ but are satanic deceivers. 
+3. Some of the claims may simply be false.
+No doubt, all three will be represented. In any case, the people who did them did not belong to Jesus and did not truly recognize Him as **Lord**, despite their profession.
+(MacArthur)
+
+7:23: **I never knew you**. "To know" was a Hebrew idiom that represented intimate relationships. Jesus never knew them as His disciples, and they have never known Him as their Lord. (MacArthur)
+
+7:23: **I never knew you**. All their words and all their works will be declared empty and worthless. They may have had God's name in their mouths, but rebellion was in their hearts. (MacArthur)
+
+7:23: **practice lawlessness**. Indicates a continuous, regular action, and identifies the unforgiven sin and unrighteous life patterns of those claimers of salvation. Good trees can not bear bad fruit. (MacArthur)
+
+7:23: **practice lawlessness**. Jesus knows that even His most faithful disciples will fail, stumble, and fall into sin. Otherwise, He would not have told us to pray, "Forgive us our debts" (Mt 6:12). No Christian is sinless, but the fact that we continually confess our sins, seek the Lord's forgiveness, and long for righteousness (Mt 5:6) is evidence that we belong to Him. God's will may not be the *perfection* of the true believer's life, but it is the *direction* of it. (MacArthur)
 
 
 
