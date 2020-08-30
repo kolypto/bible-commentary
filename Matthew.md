@@ -3092,18 +3092,29 @@ No doubt, all three will be represented. In any case, the people who did them di
 
 #### Build Your House on the Rock
 
-7:xx: (<u>the flow of the Sermon on the Mount</u>) 
+7:24: (<u>the flow of the Sermon on the Mount</u>) Jesus has spoken about two groups of people: those who have a true profession of faith, and those who do not (v. 21). Being obedient (**doing** the will of God) was the key difference. Jesus continues with another example that demonstrates this distinction.
 
-7:24-27: The Lord reminds us that a standard of righteousness is required to enter the Kingdom of God. And unless your life is **built** on that standard, no matter how it looks like, when the **flood** comes, it's going to be washed away. 
-Here, in both v. 24 and v. 26, you have people who **hear** the **word** or God, both have built their **houses**. They listen, and they are involved in certain spiritual activities, they both belong to the visible body of believers. They both read Scripture and both attend meetings of the church, they carry a Bible, they say certain prayers. They are both busy building some edifice of spiritual activity, and it looks very much the same. They both even built their houses in the same location, because the same storm hits both houses! But there is a tremendous difference: the foundation, that's invisible. Once the edifice is up, you can't see the foundation anymore. And so it really becomes difficult to tell. Only an honest and careful soul-searching and self-examination can reveal the truth.
+7:24: **does them**. The man has built his house on **the rock**. What is the rock? It is obedience to the word of God: **and does them** makes all the difference. (MacArthur)
+
+7:24: **built his house on the rock**. The Lord reminds us that a standard of righteousness is required to enter the Kingdom of God. And unless your life is **built** on that standard, no matter how it looks like, when the **flood** comes, it's going to be washed away. (MacArthur)
+
+7:24: **rock** (Gk. *petra*) is the same **rock** on which, Jesus said, "I will build my Church" (Mt 16:16): that is, on the confession of Peter, the bedrock of God's Word and His divine revelation. (MacArthur)
+
+7:24-27: **rock, sand**. The outward circumstances of their lives were essentially the same. They both read Scripture and both attend meetings of the church, they say certain prayers, they are both busy building some edifice of spiritual activity, and it looks very much the same. They both even built their houses in the same location, because the same storm hits both houses! But there is a tremendous difference: the foundation, that's invisible. Once the edifice is up, you can't see the foundation anymore. And so it really becomes difficult to tell. Only an honest and careful soul-searching and self-examination can reveal the truth: one has built his house on the divine specifications; the other uses his own. (MacArthur)
+
+7:26: **hears these words**. This person hears God's Word and recognizes it as such, but wrongly believes that simply knowing and recognizing it is enough to please God and guarantee him a place in His kingdom. Like those who say "Lord, Lord" and have empty words, this builder has an empty heart. (MacArthur)
+
+7:26: **build his house on the sand**. The **foolish man** does not intentionally build a house he thinks is going to fall. Both builders have confidence in their houses. (MacArthur)
+
+7:26: **sand**. The sand is composed of human opinions, attitudes, and wills, which are always shifting and always unstable. (MacArthur)
+
+7:26: **built on sand**. Why has the man chosen this location? Because it was easier. He simply liked the spot and did not survey the ground. He wanted a quick and easy solution. He looks for what is pleasing rather for what is right. And he looks to Christianity for instant rewards. He cares more about spiritual "highs" but nothing about spiritual "depths". (MacArthur)
+
+7:27: **the rain, the floods, and the winds** represent God's final judgment. (MacArthur)
+
+7:27: **great was the fall of it**. It was utterly demolished, leaving its builder with absolutely nothing. 
+This is the destiny of all who build on the **sand** of man's ideas, man's philosophies, and man's religions. It is not that such people will have little left, but *nothing* left. Their way is not an inferior way to God, but no way to God at all. Always and inevitably it leads to destruction; its absolute destiny is to **fall**.
 (MacArthur)
-
-7:24: **rock** (Gk. *petra*) — rock bed. A man is wise to build on such a **rock**. And this **build**ing is done by a man who **hears these words** of Jesus, and also what? **does them**. So what is the rock? The **rock** is obedience to the word of God. These sayings of Christ become the rock bed foundation of the church. 
-See further note on Mt 16:18: "on this rock I will build my church". 
-See also in Acts 20:32: "I commend you to the word of [God's] grace, which is able to *build you up*". It is the word of God that is our foundation, and it is the word of God that provides the material for the building as well. (MacArthur)
-
-
-
 
 
 
@@ -3123,7 +3134,7 @@ See also in Acts 20:32: "I commend you to the word of [God's] grace, which is ab
 
 #### The Authority of Jesus
 
-7:xx: (<u>the flow of the Sermon on the Mount</u>) 
+7:28: (<u>the flow of the Sermon on the Mount</u>) 
 
 7:29: What is the difference? Perhaps, Jesus was explaining, and the Scribes merely commanded because "it is written"?
 
