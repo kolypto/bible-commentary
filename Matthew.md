@@ -3134,9 +3134,17 @@ This is the destiny of all who build on the **sand** of man's ideas, man's philo
 
 #### The Authority of Jesus
 
-7:28: (<u>the flow of the Sermon on the Mount</u>) 
+7:28: (<u>the flow of the Sermon on the Mount</u>) The response to the sermon. 
 
-7:29: What is the difference? Perhaps, Jesus was explaining, and the Scribes merely commanded because "it is written"?
+7:28: **The multitudes were amazed**. Any conversions that may have taken place are not reported. (MacArthur)
+
+7:28: **Amazed**: astounded by the power of what Jesus said: they have never heard such comprehensive, insightful words of wisdom, depth, insight, and profundity. (MacArthur)
+
+7:28: **The multitudes were amazed**. What they needed was not amazement, but belief; not astonishment, but obedience. Jesus did not tell them all of those things for their amazement, or simply for their information, but for their salvation. (MacArthur)
+
+7:29: **As one having authority**. Authority is a key word in Matthew's presentation of Jesus' kingship. (MacArthur)
+
+7:29: **As one having authority**. The **scribes** quoted others to lend authority to their teachings, but Jesus quoted only God's Word and spoke as the final **authority** on truth. He spoke eternal truth simply, directly with love, in contrast to the bitter hatred of the Pharisees. This astounded the crowd. (MacArthur)
 
 
 
