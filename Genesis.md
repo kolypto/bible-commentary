@@ -3463,7 +3463,93 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Joseph's Brothers Go to Egypt
 
+42:1: **Why do you look at one another?**. Probably, this phrase is the last part of a conversation that started with "what shall we eat?".
 
+42:1: **Что вы смотрите друг на друга?** То есть для чего вы остаетесь в бесполезном недоумении и бездействии? (Свт. Филарет (Дроздов))
+
+42:4: **Feared that harm might happen to him**. Benjamin, the youngest, was 22 years old at the time. Joseph was 30. Other sons were between 40 and 56 years old.
+
+42:4: **Вениамина .. не послал**. Вениамина — этого единственного, после Иосифа, сына любимой Рахили — Иаков не отпускает из боязни какой-либо опасности для него в пути, извне или даже со стороны самих братьев. (Лопухин А.П.)
+
+42:5: **among the others**. There were many.
+
+42:6: **Начальник**. По–еврейски "שליט" шаллит. Еврейское имя имеет один корень с арабским именем Султан и показывает полновластного обладателя. (Свт. Филарет (Дроздов))
+
+42:6: **Он продавал хлеб**. Хлеб продавался, без сомнения, в разных местах и разными начальниками; только под главным управлением Иосифа. Но почему же братья Иосифовы принуждены были доходить до самой столицы и самого Иосифа? Потому, конечно, что он себе одному предоставил рассматривать требования иностранцев, дабы удовлетворять их только по мере крайней их нужды из своих избытков. (Свт. Филарет (Дроздов))
+
+42:7: **Spoke .. to them**. Through an interpreter (v. 23). This matter must have already been settled for Joseph by his servants.
+
+42:7: **Говорил с ними**. следуя этикету, и говорил с ними через переводчика. (Лопухин А.П.)
+
+42:7: **Spoke roughly**. It is possible that Joseph's initial reaction, roughness, was sincere unfriendliness. He was unprepared.
+
+42:9: **Remembered the dreams**. What a striking moment it must have been. Imagine some sort of Deja Vu moment, but divinely inspired, and crystal clear.
+
+42:9: **Remembered the dreams**. Struck by such a memory of divine inspiration, Joseph would immediately recognize that this whole situation is God's providence. This perhaps was a heavenly hint to act in a certain way. Not to be vengeful, at least.
+
+42:9: **Тут вспомнил Иосиф сны**. То есть почувствовал внутренне, что они теперь сбываются, и признал в сем дело Божие. (Свт. Филарет (Дроздов))
+
+42:9: **The nakedness of the land**. An idiom that alludes to the locations where Egypt would be most vulnerable to attack. (ESV)
+
+42:9: **Вы соглядатаи**. Признав теперь свои прежние искушения благодеянием Промысла, он получил в то же время тайное внушение поставить в кратковременное искушение своих братьев для их исправления. (Свт. Филарет (Дроздов))
+
+42:9: **Вы пришли смотреть наготу земли сей.** Подозрение благовидное, ибо самая опасная граница Египта была со стороны Палестины; и необходимое в Иосифе для Египтян, ибо внезапное благоволение к неизвестным пришельцам, его самого могло бы привести в подозрение у Египтян. (Свт. Филарет (Дроздов))
+
+42:9: **Соглядатаи**. Братья Иосифа пришли целым караваном; наконец, обычай высылать соглядатаев прежде занятия той или иной земли отмечен не раз и в библейской древности.  (Лопухин А.П.)
+
+42:11: **мы все дети одного человека**.  подразумевается, не рискнул бы послать всех своих сыновей лазутчиками и подвергнуть их через то опасности (Лопухин А.П.)
+
+42:13: **двенадцать братьев; мы сыновья одного человека**. То есть «мы не посланники какого‑либо царства или народа; мы принадлежим к одному малочисленному племени. Как же можем мы быть опасны для Египта?» (Свт. Филарет (Дроздов))
+
+42:13: **One is no more**. This is the lie they had to get used to through the years. It is notable, however, that they did not use to say "we are eleven", but carried their guilt with them with every confession.
+
+42:13: **А одного не стало**. Выражение обоюдное, происшедшее, как кажется, от смущенной совести. Сыны Иакова не хотят признаться, что брат пострадал от них, и не смеют солгать, что он умер. (Свт. Филарет (Дроздов))
+
+42:15: **By the life of Pharaoh**. Emotional outburst.
+
+42:16: **Let him bring your brother**. Because the dream has not yet been fulfilled: there were 11 stars bowing, not ten. And they bowed twice in two different dreams, not once.
+
+42:16: **your words may be tested**. Having 10 potential spies remain in the land also makes invasion less likely.
+
+42:17: **In custody**. Joseph demonstrates his authority over them. (ESV)
+
+42:18: **On the third day**. A man would find a peace of mind in the course of three days. 
+
+42:18: **For I fear God**. Joseph did not know yet whether they had remorse or not. Perhaps, his heart felt like acting differently, but because of **God**, he did what he did.
+
+42:18: **останетесь живы, ибо я боюсь Бога**. Видя иноплеменного властителя, из страха Божия удерживающегося от жестокости против пришельцев неизвестных и почитаемых соглядатаями, с какими угрызениями долженствовали они вспомнить: боялись ли Бога тогда, когда ожесточились против своего брата, почитая его соглядатаем своих поступков! (Свт. Филарет (Дроздов))
+
+42:19: **Let one remain**. His initial idea was "let one go and the rest remain" (v. 16). He is stressed.
+
+42:19: **один брат из вас пусть содержится в доме**. Иосиф смягчает свое определение, вероятно, для того, чтобы не причинить тяжкой печали отцу своему. (Свт. Филарет (Дроздов))
+
+42:21: **We are guilty**. The brothers did not forget or let go what they did to Joseph. They had been feeling guilt for all these 13 years. This guilt lets the immediately recognize what some might call "karma" or "boomerang".
+
+42:21: **точно мы наказываемся за грех**. посмотри, как теперь восстает неподкупный судия – совесть, хотя и никто их не обличает и не приводит на суд, и как они обвиняют сами себя. (Свт. Иоанн Златоуст)
+
+42:21: **Наказываемся за грех**. Поскольку Иосиф знал, что без глубокого раскаяния не простится братьям грех убийства, то и раз, и два, и три он подвергает их целительным терзаниям, словно духовному огню. Он не ставил цели отомстить за себя, но хотел помочь им исправиться и освободиться от столь тяжкого греха. И прежде чем они исповедали свой грех и взаимными упреками раскрыли совершенное ими преступление, Иосиф не дал им узнать себя и не целовал их поцелуем мира. (Свт. Кесарий Арелатский)
+
+42:21: **За то постигла нас скорбь сия**. Братья Иосифа счастливы тем, что и в греховном состоянии сохранили уверение о премудром и праведном Провидении. Сие уверение становится теперь источником их покаяния, очищения и спасения. Счастлив, кто умеет по их примеру изъяснять свои несчастия. (Свт. Филарет (Дроздов))
+
+42:23: **Joseph understood them**. Joseph had not seen them for 13 years and did not know how they felt about what they did to him. This was the moment Joseph learned that they had remorse.
+
+42:24: **Wept**. And forgave.
+
+42:24: **Bound .. Simeon**. Joseph has chosen "one of them" to stay in Egypt by binding him.
+
+42:24: **Simeon**. The second oldest son. Reuben was the oldest, but he was against the selling of Joseph.
+
+42:24: **Семёна**. Иосиф не касается Рувима, как менее виновного; на Симеона же слагает всю тяжесть бедствия, конечно, как на виновного более прочих. Будучи старшим после первенца, Симеон мог бы, соединясь с сим, удержать и прочих от преступления; он сего не сделал. Судя по его свойствам, какие открываются из его поступка с Сихемлянами и из решительного отзыва самого Иакова (Быт. 49:5-7), можно догадываться, не он ли был первою причиною несчастия Иосифова. (Свт. Филарет (Дроздов))
+
+42:25: **Replace the money**. Joseph understood that his own family was not doing well, so he couldn't take the money.
+
+42:25: **А серебро их возвратить**. Может быть, Иосиф опасался, чтобы недостаток денег не затруднил второго путешествия братьев своих в Египет. (Свт. Филарет (Дроздов))
+
+42:28: **Their hearts failed them**. The brothers interpret it as something that **God has done** with the intention of bringing further harm to them. (ESV)
+
+42:28: **God has done**. Running through this section of the story is the idea that those who perpetrate evil cannot evade punishment forever. (ESV)
+
+42:28: **Hearts failed them .. trembling**. Such a stress is punishment enough. And it won't be one moment; they'd live in this situation for days and days.
 
 
 
