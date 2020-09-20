@@ -3397,6 +3397,27 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 41:34: **one-fifth**. That is 20% tax. People would not be too happy about it.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### Joseph Rises to Power
+
 41:38: **In whom is the Spirit of God**. Pharaoh listen to the words of Joseph where he said that God gives interpretations. It is likely, though, that he perceived God of the Hebrews as one more entity in their pagan framework.
 
 41:38: **Дух Божий**. Фараон усматривает источник мудрости Иосифа в Боге, и немедленно решает поставить Иосифа во главу государства. (Лопухин А.П.)
@@ -3420,27 +3441,6 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 41:54: **Во всей земле Египетской был хлеб.** Иосиф наперед устроил так, что, когда должен был наступить сильный голод, египтяне не чувствовали нужды. (Свт. Иоанн Златоуст)
 
 41:56: **стал продавать**. Он предпочел продавать хлeб, а не раздавать его даром тем, кто нуждался, потому что, раздарив его небольшому числу, он лишил бы хлeба весьма многих. Он держался той щедрости, которая обогащает всех. Если бы он раздал даром, то поля могли бы оставаться необрабатываемыми, так как пользующийся чужим (обычно) не радит о своем. (Свт. Амвросий Медиоланский)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-### Joseph Rises to Power
 
 
 

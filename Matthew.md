@@ -3040,6 +3040,11 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 
 
+
+
+
+
+
 #### I Never Knew You
 
 7:21: (<u>the flow of the Sermon on the Mount</u>) Now Jesus gives the final reason why so few enter the narrow gate of salvation: self-deception. Sinful man is biased in his own favor and, because of pride, tends to reject the true gospel. (MacArthur)
@@ -3090,6 +3095,11 @@ No doubt, all three will be represented. In any case, the people who did them di
 
 
 
+
+
+
+
+
 #### Build Your House on the Rock
 
 7:24: (<u>the flow of the Sermon on the Mount</u>) Jesus has spoken about two groups of people: those who have a true profession of faith, and those who do not (v. 21). Being obedient (**doing** the will of God) was the key difference. Jesus continues with another example that demonstrates this distinction.
@@ -3115,6 +3125,9 @@ No doubt, all three will be represented. In any case, the people who did them di
 7:27: **great was the fall of it**. It was utterly demolished, leaving its builder with absolutely nothing. 
 This is the destiny of all who build on the **sand** of man's ideas, man's philosophies, and man's religions. It is not that such people will have little left, but *nothing* left. Their way is not an inferior way to God, but no way to God at all. Always and inevitably it leads to destruction; its absolute destiny is to **fall**.
 (MacArthur)
+
+
+
 
 
 
