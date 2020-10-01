@@ -3649,10 +3649,30 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Joseph Tests His Brothers
 
+44:2: **Положи чашу мою**.  Иосиф приказывает домоправителю положить в мешок своего меньшего брата свою серебряную чашу — для того, чтобы иметь повод требовать от братьев оставления Вениамина в качестве раба (ст. 10) и затем испытать степень привязанности братьев к единоутробному брату Иосифа. (Лопухин А.П.)
+
+44:2: **Put my cup**. I wonder how such a command looked like in the eyes of other Egyptians. Didn't it stain Joseph's reputation?
+
+44:5: **practices divinatin**. Since these remarks are set in the context of an elaborate ruse, it is impossible to know whether they should be taken as reflecting something that Joseph actually did. Joseph clearly intends that his brothers should believe that he has powers of supernatural discernment. (ESV)
+
+44:13: **разодрали одежды свои**. Мидраш замечает, что это было им возмездие за то, что они некогда заставили отца своего разодрать одежды (Быт. 37:34). (Лопухин А.П.)
+
+44:15: **A man like me can practice divination**. Joseph probably explains his knowledge of their family (their ages, etc) with supernatural means. He did not dare to like saying "God showed me this", and he didn't directly say that he practices divination. He just said that potentially, he could. It's all about making an impression.
+
+44:15-16: **a man like me can practice divination**. Now that he has created the impression that he can discover knowledge with divine help, his brothers may feel that they can no longer conceal their past actions. For this reason, Judah remarks, **God has found out the guilt of your servants** (v. 16). In all probability Judah has in mind the brothers’ treatment of Joseph, for he knows that they are innocent of taking the silver cup. (ESV)
 
 
+44:16: **что нам сказать?**. Улики очень ясны, и чтобы более не раздражить владыку Египта своим оправданием и жалобою на коварство, обращается к его милосердию. (Свт. Филарет (Дроздов))
 
+44:16: **чем оправдываться? Бог нашёл неправду [нашу]**. «Положение наше столь затруднительно, что мы не находим достаточного средства отвратить от себя подозрение; итак, умалчивая о справедливости или несправедливости настоящего обвинения нас в татьбе, признаем, что, конечно, Бог судил наказать нас за некий тайный грех, и потому готовы предаться своей судьбе».. (Свт. Филарет (Дроздов))
 
+44:17: **К вашему отцу**. Иосиф настаивает на оставлении в рабстве одного Вениамина, а прочим братьям предоставляет идти свободными и невредимыми к отцу: здесь самый решительный пункт их искуса. Представлялся благовидный повод отделаться от любимца. Но в эту напряженную минуту с новою энергиею выступает на защиту Вениамина Иуда. (Лопухин А.П.)
+
+44:33: **remain instead of the boy**. Note that Judah does not hesitate to fulfil his promise despite thinking that Benjamin is a thief.
+
+44:33: **Let your servant remain instead of the boy**. The selfless attitude of Judah stands in sharp contrast to what he previously displayed when arguing that Joseph should be sold into slavery. (ESV)
+
+44:44: **Итак, пусть я раб твой**. Эти слова тронули Иосифа и достаточно уже показали ему и почтение братьев его к отцу и любовь к брату. (Свт. Иоанн Златоуст)
 
 
 
