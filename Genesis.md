@@ -3688,6 +3688,11 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
+
+
+
+
+
 ### Joseph Provides for His Brothers and Family
 
 45:1: **открылся братьям своим**. Примирение Иосифа и братьев — это история превращения семьи Иакова в Израиль. Там , где было соперничество, вражда, хитрость и обман, теперь единство. 
@@ -3759,6 +3764,18 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph Brings His Family to Egypt
 
 46:1: **took his journey**. Israel moved out not because God has told him to, but following his own decision. He still offered sacrifices to God to show his thankfulness.
@@ -3791,6 +3808,19 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 46:4: **в Египет**. Это переселение имело ввиду, во-первых, обособление избранной семьи от хананеян, смешение с которыми, уже начавшееся (Быт. 38:2: "И увидел там Иуда дочь одного Хананеянина, которому имя: Шуа; и взял ее и вошел к ней"), могло быть весьма пагубно для религиозной миссии потомства Авраамова; с другой — в Египте с его пренебрежением к азиатам достигалась эта изолированность избранного народа, а высокое состояние египетской культуры могло плодотворно влиять на этого носителя истинного богопочтения. (Лопухин А.П.)
 
+46:10: **Сыны**. Список не полностью сходится с 1 Пар 4:24. Часть родов могли оскудеть и потому быть опущены; могло меняться произношение имён; у людей бывали вторые имена (напр. Иаков-Израиль, Исав-Едом, Гедеон-Иероваал); а так же евреи часто смешивали сынов и внуков по известной неопределённости их языка. (Свт. Филарет (Дроздов))
+
+46:15: **thirty three**. The numbers do no add up, and there are difficulties whether *Dinah* and *Ohad* should be removed (since Ohad does not appear in the parallel lists of Num. 26:12-13 and 1 Chron 4:24, and Dinah is the only daughter mentioned). These observations indicate that the 33 mentioned is not intended as a total of the list just given. (ESV)
+
+45:21: **Sons of Benjamin**. Some of the people mentioned here as sons are actually his grandsons (see Num 26:38-40: Ard and Naaman), who could have only been after their migration to Egypt, not before. This means that this genealogy is not supposed to add up to 70 or be chronologically correct: the author just used the opportunity to list all their names. 
+
+
+
+
+
+
+
+
 
 
 
@@ -3804,6 +3834,22 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 ### Jacob and Joseph Reunited
+
+46:29: **Fell on his neck**. They have not seen each other for some 14 (?) years.
+
+46:30: **Die**. Why does Jacob speak about death all the time? Is it just because he is old? Do all old people speak about death that often?
+
+46:28: **Judah .. ahead**. Once again, **Judah** takes the lead. Judah’s role as the leader of his brothers anticipates the blessing that his father will bestow on him (Gen 49:8–12) (ESV)
+
+46:34: **Keepers of livestock**. Joseph ensures that they live separated from the Egyptians. The goal is not to conceal and integrate; the goal is to expose and separate. Joseph ensures that Pharaoh confirms his choice of Goshen.
+
+46:33: **Скотоводами были от юности нашей**. Иосиф настойчиво советует им объявить фараону, что они природные номады, — как бы предупреждая их от искушения увлечения благами египетской культурной жизни. Указание на занятие отцов перед египетским фараоном имело особенную силу, так как при кастовости древнеегипетской жизни всякое занятие здесь было родовым, переходило от отца к сыну. Пастушеская же каста была низшая из семи. Ненависть была отчасти обусловлена тем, что номады Азии приносили в жертву тех животных, которых египтяне боготворили. Сами же египтяне более всего почитали земледелие. (Лопухин А.П.)
+
+46:33: **from our youth**. This information may also have been designed to reassure Pharaoh that Joseph’s family would not endanger national security. (ESV)
+
+46:34: **чтобы вас поселили в земле Гесем.**. чтобы через это они отделены были от поклоняющихся овцам и тельцам. (Прп. Ефрем Сирин)
+
+46:34: **Мерзость для Египтян всякий пастух овец**. В Египте, кроме немногих мест, закалывать овец не позволялось, как свидетельствуют Геродот, Страбон, Плутарх, и Диодор. (Свт. Филарет (Дроздов))
 
 
 
