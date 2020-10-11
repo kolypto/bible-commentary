@@ -3872,10 +3872,43 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Jacob's Family Settles in Goshen
 
+47:1: **с мелким и крупным скотом своим**.  следовательно, достаточно состоятельны и не могут быть особенно обременительны для страны. (Лопухин А.П.)
+
+47:6: **поставь их смотрителями над моим скотом**. искусством некоторых из братьев Иосифа, опытных скотоводов, он предполагает воспользоваться для улучшения скотоводства в его владениях. (Лопухин А.П.)
+
+47:6: **моим скотом**. Египетские, как и вообще восточные цари составляли для себя часть доходов, содержа стада на землях, принадлежащих короне. (Свт. Филарет (Дроздов))
+
+47:7: **blessed Pharaoh**. Interesting: doesn't the greater bless the lesser? But Jacob serves God who is greatest, and can therefore bless earthly kings. Still, it may have been quite daring.
+
+47:7: **Jacob blessed Pharaoh**. Can be interpreted as merely words of greeting and saying farewell. However, in Genesis, the special line of Abraham is viewed as mediating God’s blessing to others. (ESV)
+
+47:8: **Сколько лет дней жизни твоей?** Может быть, потому вопрошает, что, по образу Иакова, старость его казалась глубокою. (Свт. Филарет (Дроздов))
+
+47:8: **How many are the days of the years of your life?** Pharaoh’s inquiry about Jacob’s age may have been motivated by the belief that longevity was a sign of divine favor. (ESV)
+
+47:9: **few**. While Jacob is now 130 years old, Abraham and Isaac lived to be 175 and 180, respectively. (ESV)
+
+47:9: **evil have been the days of my life**. He left his father's house. Laban tricked him. There was conflict in his house. He lost his beloved wife. His children massacred a city. He used to think that his son Joseph is dead. It seems that the other parts of his life did not bring him joy because of that.
+
+47:9: **sojourning**. Implies that they had no permanent abode. (ESV)
+
+47:9: **кратки и несчастны**. жалоба Иакова на краткость и бедствия жизни может показаться малодушною и несообразною с свойственным сему патриарху доверием к Провидению. Но недоумение сие уничтожится, если речь Иакова к Фараону разрешится так: «Ты, по моему образу, почитаешь старость мою глубокою, но она не так многолетна, как жизнь моих предков. Причиною престарелого вида моего не столько лета, сколько несчастия и печали». (Свт. Филарет (Дроздов))
+
+47:9: **кратки и несчастны**. Так, Иаков богоборец, друг Божий, жил на земле меньше отцов своих, и при всей краткости своей жизни он провел ее в самой глубокой горести. Не смущайтесь же, люди праведные, если временное пришельствие ваше на земле исполнено горестей и разных несчастий. Всеблагий Господь не забывает, но помнит вас. Легкое страдание ваше, по апостолу, производит в безмерном преизбытке вечную славу вам (2Кор. 4:17). У Господа нашего такой закон, что блаженствовать можем мы не иначе, как потерпевши много горя: многими скорбями подобает… (Деян. 14:22) за грехи. (Прав. Иоанн Кронштадтский)
+
+47:10: **Jacob blessed Pharaoh**. For the second time.
 
 
 
 
+
+
+
+
+
+
+
+### Joseph and the Famine
 
 
 
