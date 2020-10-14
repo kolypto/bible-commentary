@@ -3900,6 +3900,9 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 47:10: **Jacob blessed Pharaoh**. For the second time.
 
+### Joseph and the Famine
+
+
 47:15: **пришли к Иосифу**. . Удивительно, что народ не захотел в крайности насильственным образом овладеть хранилищами хлеба. Или они были укреплены, или народ еще не был заражен язвою своеволия, свирепствующею в новейшие времена; или в Иосифе очень ясно все видели руку Божию и потому не дерзали восставать на него. (Свт. Филарет (Дроздов))
 
 47:16: **пригоняйте скот ваш**. Как раз братья Иосифа недавно были поставлены начальниками над скотоводами.
@@ -3945,7 +3948,6 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-### Joseph and the Famine
 
 
 
@@ -3963,19 +3965,29 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Jacob Blesses Ephraim and Manasseh
 
+48:1: **is ill**. Joseph merely comes with his **two sons** to visit his **father** who is **ill**. There is no hint at this stage of the important developments that are about to take place. (ESV)
 
+48:3: **благословил меня**. Имеет намерение взять себе и тем по необходимости приобщить к своему пришельствующему племени двух сынов Иосифа, которые многого могли бы надеяться в Египте от фараона; Иаков представляет на сие высокое полномочие от Бога всемогущего и обетованием его убеждает Иосифа отвергнуть прельщение видимых выгод. (Свт. Филарет (Дроздов))
 
+48:4: **I will give this land to your offspring**. When declaring Joseph's sons as his own, Israel has this promise of God in mind. This is how Ephraim and Manasseh, though not born of Israel, are counted as tribes and have their portion of land allocated.
 
+48:4: **an everlasting possession**. What year is it today? Does Israel own the land? Yes; God's promise still holds, even though there was a long pause because Israel did not receive the Messiah.
 
+48:5: **now your two sons .. are mine**. Joseph through his descendants receives one-sixth of the territory. This double portion of the inheritance confirms that Joseph was designated the “firstborn” in place of Reuben.
+See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son of Israel .. ; though Judah became strong among his brothers and a chief came from him, yet the birthright belonged to Joseph)".
+(ESV)
 
+48:5: **now your two sons .. are mine**. It may seem like Jacob is trying to bring more people under the immediate blessing, but, as will become clear from the rest of this chapter, he is not doing this apart from God's will. His actions are prophetic.
 
+48:5: **ныне два сына твои .. мои**. Кажется, что Иаков желает Иосифу дать сугубое наследие, как первенцу от своей первой и единственной, по свободному избранию, супруги. Но дабы не огорчить его братьев, Иаков поступает иначе: вместо того чтобы при наследовании земли обетованной получить им одну долю под именем Иосифа, каждый из них, наравне с естественными сынами Иакова, получит по целой доле. (Свт. Филарет (Дроздов))
 
+48:5: **Ефрем**. Царство в потомстве Иакова им отдано было Иуде, а священство — Левию (Быт. 49:8-9), но особым благословением его над Ефремом (Быт 49:14, 20) было предсказано ему, что и из его рода произойдут цари. (Лопухин А.П.)
 
+48:6: **которые родятся после них, .. под именем братьев своих будут именоваться в их уделе**. Уже не составят отдельного колена, а будут причислены к коленам Ефрема и Манассии. А других детей у него, по всей видимости, не было. (Лопухин А.П.)
 
+48:7: **умерла у меня Рахиль**. Трудно угадать, к чему здесь Иаков упоминает о смерти Рахили. (Свт. Филарет (Дроздов))
 
-
-
-
+48:7: **умерла у меня Рахиль**. Ради памяти Рахили, для прославления ее имени, Иаков, через усыновление внуков, как бы преумножает число сынов любимой жены. (Лопухин А.П.)
 
 
 
