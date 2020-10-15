@@ -3989,13 +3989,56 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 
 48:7: **умерла у меня Рахиль**. Ради памяти Рахили, для прославления ее имени, Иаков, через усыновление внуков, как бы преумножает число сынов любимой жены. (Лопухин А.П.)
 
+48:9: **God has given me**. Even though they were born of a daughter of an Egyptian priest. We see in the Bible that people from pagan nations would join God's people. Some of them are even ancestors of Jesus (e.g. Ruth).
 
+48:12: **поклонился**. Поклонялись Иакову, вероятно, все трое, так как невероятно чтоб Ефрем и Манассия оставались совершенно пассивными. Так читается в текстах самаритянском, греческом и сирском. (Лопухин А.П.)
 
+48:14: **crossing his hands**. It may well be that Jacob really mistaken Ephraim for Manasseh, and only after the fact God gave him the confidence that what seems to be a mistake actually is not.
 
+48:15: **Благословил**. По всем канонам, отец должен был бы на старости лет благословить своих детей. Особенно старшего, перворожденного. Но раз уж тот "провинился", то кого-то следующего. А здесь Израиль поступает совсем необычно: вместо сынов, он благословляет внуков!
+
+48:15: **И благословил Иосифа**. То есть в лице двух сынов Иосифа Иаков благословил его со всем его потомством. (Свт. Филарет (Дроздов))
+
+48:15: **God who has been my shepherd**. "I shall not want.". Ps 23.
+
+48:16: **the angel who has redeemed me from all evil**. "I will fear no evil, for you are with me." Ps 23. He followed two verses from the psalm.
+
+48:16: **in them**. Not in any of the other children, not even but **in them**. This is the transfer of firstborn-hood and God's blessings.
+
+48:16: **Abraham and Isaac**. Note that Jacob does not mention any other names beyond that, e.g. Terah, because God's blessing only started with Abraham. It is that special blessing that is in view here.
+
+48:18: **Не так, родитель мой**. Иосиф и сам пророк, как Иаков, но вот случай, который показует, что пророк не всегда может быть пророком, когда пожелает. (Свт. Филарет (Дроздов))
+
+48:19: **I know, my son, I know**. Prophetic words. At this moment, Jacob must have had a revelation to speak and act this way.
+
+48:19: **I know**. Jacob is emphatic that Ephraim should be blessed as the firstborn ahead of Manasseh. Subsequent history reveals that the Ephraimites become one of the leading tribes, with Joshua guiding the people into the Promised Land. But the Ephraimites are later rejected by God in favor of Judah (see Ps 78:67-68: "He rejected the tent of Joseph; he did not choose the tribe of Ephraim, but he chose the tribe of Judah.") (ESV)
+
+48:19: **his younger brother shall be greater than he**. Recurring theme in Genesis: the older shall serve the younger
+
+48:19: **shall be greater**. **Ephraim** numbered 40 500, whereas Manasseh numbered 32 200 (Num 1:33,35 and Num 2:19,21).
+
+48:19: **Эфраим**. По рассечении царства Израильского на два колено Эфраимово было главою в царстве десяти колен (3 Цар. 12:25). Всегда отличалось оно наипаче воинскою силою (Суд. 8:2; Суд. 12:1; Пс. 77:9). (Свт. Филарет (Дроздов))
+
+48:19: **Манассия**. Манассиино колено долгое время не уступало Ефремову ни в количестве своих членов, ни в могуществе, и одно оно из всех колен могло разделиться на 2 половины, западно-иорданскую и восточно-иорданскую, из которых каждая была очень могущественна.
+Только уже после Ефремово колено приобрело гегемонию в средней (по географическому положению) группе колен Израилевых. Из него вышел славный вождь Израиля Иисус Навин, а из Манассиина — Гедеон. 
+(Лопухин А.П.)
+
+48:20: **Благословил их**. Иаков сделал невозможными после его смерти споры между сыновьями его о непринадлежности к семье обетования сынов Иосифа, как рожденных им от дочери жреца египетского. (Лопухин А.П.)
+
+48:20: **тобою будет благословлять Израиль**. Благословение сделается образцом в Израиле для благословений отцами детей. (Лопухин А.П.)
+
+48:22: **mountain slope that I took**. A reference to the massacre at Shechem.
+
+48:22: **один участок, который я взял из рук Аморреев мечом моим и луком моим**. Нельзя видеть здесь указание на Сихемскую резню, потому что она была строго осуждена Иаковом в свое время (Быт. 34:30), и будет вновь осуждена им на смертном одре (Быт. 49:5–6). (Лопухин А.П.)
+
+48:22: **мечом моим**. Сихемскую резню устроил не он. Более того, из той земли они немедленно ушли. Она теперь не может принадлежать ни ему, ни его сыновьям. И Сихемская резня была не с Эморреями. Значит, речь идёт о каком-то другом участке.
+
+48:22: **участок**.  По–еврейски שחם шехем. Семьдесят толковников думали, что это Сихем. В самом деле, речь идет о земле, принадлежавшей Иакову недалеко от Сихема. (Свт. Филарет (Дроздов))
 
 
 ### Jacob Blesses His Sons
 
+49:1: **I may tell you what shall happen to you**. Even though Jacob speaks of a prophecy, verse 28 makes it clear that it's also a blessing: a blessing suitable to each.
 
 
 
