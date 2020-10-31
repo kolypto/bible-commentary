@@ -4116,6 +4116,8 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 
 49:8: **поклонятся тебе**. Если во всей полноте развилось это могущество Иудина колена при Давиде, то уже и в пустыне оно было во главе всех колен (Чис. 2:3), и первое же начало завоевание Ханаана (Суд. 1:1–8). Гербом своим на военном знамени Иудино колено имело изображение льва. (Лопухин А.П.)
 
+49:8: **Judah**. Following the death of Joshua, the Israelites "asked the Lord" which tribe should be first to go to occupy its allotted territory, and the tribe of Judah was identified as the first tribe. (Wiki)
+
 49:9: **юный лев**. Иуды, крепостию уподобится юному, возрастающему льву. (Свт. Филарет (Дроздов))
 
 49:9: **преклонился он**. То есть ты уподобляешься льву не разъяренному и терзающему, но насыщенному и спокойному в победоносном величии. (Свт. Филарет (Дроздов))
@@ -4151,6 +4153,8 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 
 49:11: **моет в вине одежду свою и в крови гроздов одеяние свое**. Под одеждою, я думаю, разумеется тело, которое для совершения спасения удостоил носить (Христос). Потом, чтобы в точности показать, что он назвал «вином», Иаков присовокупляет: «и в крови гроздия одеяние свое». Смотри, как он наименованием крови означил заклание, и крест, и все строение таин. (Свт. Иоанн Златоуст)
 
+49:13: **Zebulun** means "dwelling". ([Wikipedia](https://en.wikipedia.org/wiki/Tribe_of_Zebulun))
+
 49:13: **Zebulun** is listed here before Issachar, although Issachar was born before Zebulun. (ESV)
 
 49:13: **Zebulun**. Zebulun's territory never actually extend to the Mediterranean. (ESV)
@@ -4159,11 +4163,63 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 
 49:13: **До Сидона**. о Тире не упомянуто: он возник значительно позже, ок. 1200 г. до Р. Хр., — доказательство древности пророчества. (Лопухин А.П.)
 
-49:14: **Strong donkey**. The blessing empasizes the **strength** of his descendants, but also indicates that they will be forced to work for others, like **donkeys** do. (ESV).
+49:14: **Issachar .. a strong donkey**. The blessing empasizes the **strength** of his descendants, but also indicates that they will be forced to work for others, like **donkeys** do. (ESV).
 
 49:14: **Осёл** есть символ труда (Свт. Филарет (Дроздов))
 
 49:14: **Осёл крепкий**. Сравнение, ничего обидного не заключающее: восточный осел красивее европейского; но все же характеризующее излишнюю привязанность колена Иссахара к земледелию и скотоводству, полную апатию его к военной и политической деятельности, его предпочтение рабства войне. (Лопухин А.П.)
+
+49:16: **Dan** means "judge" ([Wikipedia](https://en.wikipedia.org/wiki/Tribe_of_Dan))
+
+49:16: **Dan**. The most celebrated Danite was Samson, a Danite judge. ([Wikipedia](https://en.wikipedia.org/wiki/Tribe_of_Dan))
+
+49:16: **Dan**. Jacob put Leah's children together (Reuben, Simeon, Levi, Judah; then Issachar, Zebulun), and only then turns to the children of his concubines (Dan, Gad, Asher, Naphtali), even though Issachar and Zebulun were younger.
+Dan is the first child mentioned born of a concubine. 
+
+49:17: **serpent**. A negative attribute that was later reflected in their assault on the unsuspecting inhabitants of Laish (Judges 18). (ESV)
+
+49:17: **Дан будет змеем и аспидом**. Врагов своих колено Даново будет побеждать не столько в открытой борьбе (как Иудино, олицетворяемое в образе льва), сколько тайными засадами и вообще хитростью — свойствами, отличающими в животном царстве змей. (Лопухин А.П.)
+
+49:17: **змеем и аспидом**. Неупоминание колена Дана в Откровении (144 000, Откр. 7:4-8) дали основание для предположения многих святых отцов и учителей Церкви, что из колена Данова произойдет антихрист. (Лопухин А.П.)
+
+49:17: **змеем на дороге**. Сим подобием изображается хитрость потомков Дановых. Примером оной служат деяния Самсона, похищение идолов из дома Михи и завоевание Лаиса (Суд. гл. 14-18). (Свт. Филарет (Дроздов))
+
+49:18: **I wait for your salvation, O Lord!**. A brief prayer that highlights his concern for his descendants. Without divine deliverance they will not survive. (ESV)
+
+49:18: **Как одно из племен Израилевых**. То есть хотя он сын рабыни, однако племя его будет равно с прочими племенами. (Свт. Филарет (Дроздов))
+
+49:19: **he shall raid**. Of necessity the Gadites will become skillful warriors who use stealth to fend off the invaders. (ESV)
+
+49:19: **будет теснить его**. По занятии земли обетованной на Гада нападали сопредельные Аммонитяне и другие народы Аравийские, но и Гад напал на них с происшедшим от него судиею Иеффаем  (Свт. Филарет (Дроздов))
+
+49:20: **Asher**. Jacob briefly indicates that Asher’s descendants will enjoy a prosperous future. Their territory along the coastal plain of Acco provides fertile land and harbors for trade. (ESV)
+
+49:21: **Naphtali**. Compared to a graceful **doe**, the tribe of Naphtali will flourish, nourished by the rich natural resources of upper Galilee. (ESV)
+
+49:22: **отрасль** Иосиф — отрасль и проч. То есть Иосиф, сын матери, вначале неплодной, но коей потомство будет плодородно, подобен отрасли при источнике, возрастающей в древо, которое, наконец, простирает свои ветви над оградою сада. (Свт. Филарет (Дроздов))
+
+49:23: **стреляли и враждовали на него**. Говоря сие, Иаков видит в прошедшем нападения братьев на Иосифа, а в будущем — военный дух потомков его, особенно племени Эфраимова, которое стало весьма сильным. (Свт. Филарет (Дроздов))
+
+49:24: **by the hands of the Mighty One of Jacob**. Joseph was attached (v. 23), but **remained unmoved** because of his reliance on, and support from, God.
+
+49:24: **Mighty One of Jacob**. The references to God (using a variety of divine titles), along with the emphasis on blessing, give this pronouncement an added dimension. (ESV)
+
+49:24: **Пастырь**. Иаков изображает и его стрельцом, укрепляемым от Бога, и потом пастырем, который питает, камнем, который укрепляет весь дом Израилев. (Свт. Филарет (Дроздов))
+
+49:25: **Благословениями небес свыше**. То есть благотворным дождем. 
+**Благословениями бездны**, то есть землю, орошаемою водами и потому плодоносною.
+**Благословениями сосцов и утробы**, то есть обилием млека и плодородием скота.
+(Свт. Филарет (Дроздов))
+
+49:25: **blessings**. Jacob prays that Joseph’s descendants will experience blessing upon blessing, blessings that exceed those shown to Abraham and Isaac (ESV)
+
+49:27: **Benjamin is a ravenous wolf**. Descendants of Benjamin will be aggressive warriors. (ESV)
+
+49:27: **Хищный волк**. Воинственность и некоторая дикость нрава. В самом деле, колено его противостояло некогда одно всем прочим (Суд. 20). А во времена Саула, без сомнения, было первым и в войне, и в добыче. (Свт. Филарет (Дроздов))
+
+49:27: **Вениамин**. Павел был из колена Вениаминова. **Утром**, то есть в молодости, он преследовал церковь, зато вечером, в старости, стал проповедником Евангелия. (Блж. Иероним Стридонский)
+
+49:27: **Вениамин**. Евреи объясняют это следующим образом. Алтарь, на котором закалывались жертвы и основание которого поливалось жертвенной кровью, находился в уделе колена Вениамина. Таким образом, это пророчество, утверждают они, означает, что священники утром закалывают жертвы, а к вечеру делят то, что по Закону было собрано для них народом. В данном случае евреи полагают, что кровожадный, прожорливый волк – это образ алтаря, а раздел добычи – образ священников, которые, служа алтарю, живут за счёт алтаря. (Блж. Иероним Стридонский)
 
 ### Jacob's Death and Burial
 
