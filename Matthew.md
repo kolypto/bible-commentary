@@ -1753,6 +1753,8 @@ Crowley was executed one year later upon a court’s decision. He was 19.
 
 5:22: **Fool** (Gk. *moros*) means stupid, dull, and the term from which we get *moron*. Used of an obstinate, godless person, lacking a grip of reality. The prohibition is not about showing a person his foolishness (lack of understanding), but against slanderously calling a person **a fool** out of anger and hatred. Such an expression of malicious animosity is tantamount to murder and makes us **guilty enough to go into the fiery hell**. (MacArthur)
 
+5:22: **you fool .. liable to the hell of fire**. That's just a word! Is the punishment too harsh? Well, Jesus is not speaking here of the case where you're just calling a person names. This "fool" is a very loaded word that implies hatred of a person, demeaning, dehumanizing the person, declaring him completely worthless. Such attitude can never come from a godly heart. (MacArthur)
+
 5:22: (three attitudes) **Angry. **Anger is a selfish state of unforgiveness. **Raca**.** **Insulting a person created in God’s image. **You fool.** A condemning character. All of the above is evil and dangerous. 
 To be **angry** is the basic evil behind murder. To **slander** a person is even more serious because it gives expression to that anger. To **condemn** a person’s character is more slanderous still: same as cursing and murdering him. (MacArthur)
 
@@ -3588,6 +3590,8 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 21:9: “**Hosanna!**" was something the Jews would have shouted during this feast anyway, since this is a line from the Hallel (Ps 118:25). (*Hallel* are Ps 113-118: Psalms of praise, recited by observant Jews on every Jewish holidays)
 
 21:12: The Pharisees were extremely wealthy. Under the leadership of Annas, they ran the **Temple** franchise: the **money exchanging** and the sale of sacrificial **animals**, and charged exorbitantly for those services. It was therefore the Sadducees' business that Jesus damaged (Mt 21:12-13). (MacArthur)
+
+21:21: **что ни попросите в молитве с верою, получите**. С верою во что? В то, что получите? Не только. В первую очередь должна быть вера в Бога: это доверие и послушание. А потом только уже вера в то, что получите. (Мк 11:24: "всё, чего ни будете просить в молитве, верьте, что получите").
 
 21:29: первый сказал "**не хочу**": это эмоция. Второй сказал "**да государь**": с таким праведным тоном сказал, зная, какие правильные слова должны прозвучать. Но сказал он это лицемерно.
 
