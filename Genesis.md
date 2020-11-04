@@ -4221,15 +4221,18 @@ Dan is the first child mentioned born of a concubine.
 
 49:27: **Вениамин**. Евреи объясняют это следующим образом. Алтарь, на котором закалывались жертвы и основание которого поливалось жертвенной кровью, находился в уделе колена Вениамина. Таким образом, это пророчество, утверждают они, означает, что священники утром закалывают жертвы, а к вечеру делят то, что по Закону было собрано для них народом. В данном случае евреи полагают, что кровожадный, прожорливый волк – это образ алтаря, а раздел добычи – образ священников, которые, служа алтарю, живут за счёт алтаря. (Блж. Иероним Стридонский)
 
+
+
+
 ### Jacob's Death and Burial
 
+49:28: **each with the blessing suitable to him**. Judah and Joseph are clearly distinguished from all the others in terms of their leadership role within the nation. Beyond Genesis, the tribes of Ephraim and Judah are consistently portrayed as taking the lead, with the latter eventually providing the Davidic dynasty. (ESV)
 
+49:29: **bury me with my fathers**. Jacob’s desire to be buried in Hebron reflects his belief that, as God has consistently promised, the future for his descendants will be in Canaan and not Egypt. (ESV)
 
+49:33: **gathered to his people**. This idiom, commonly used in connection with dying, seems to reflect a belief in being reunited with others in the afterlife. (ESV)
 
-
-
-
-
+49:33: **и положил ноги свои на постель, и скончался**. Посмотри и на кончину праведника, как она была чудесна. Сделав распоряжение относительно своих детей, он положил ноги свои на одр, как бы с удовольствием встречал свою смерть. (Свт. Иоанн Златоуст)
 
 
 
