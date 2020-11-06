@@ -162,6 +162,8 @@ Yet Jesus said that, despite **the tax-collector’s** treachery and sin, he wou
 
 18:23: This man apparently asked sincerely, bu twas unwilling to pay the cost: he wanted to keep the wealth of this life more than he wanted to gain the wealth of eternal life, and he went away **very sad**. He was seeking the kingdom, but he was not seeking it *first*. (MacArthur)
 
+22:3: **Вошёл же сатана в Иуду**. Не думайте что причастие само по себе что-то может дать человеку. Посмотрите что с Иудой случилось, как Иоанн Златоуст пишет: Иуда причастился, но вошёл в него не Христос, а сатана. (Осипов)
+
 23:9: Herod remains the only person in the Bible to whom Jesus gave absolutely **no answer**.
 
 23:40: **The other rebuked him**. The other Gospel tells us that this very thief has started out speaking in the very same way (Mt 22:44: "And the robbers .. also reviled him in the same way."), but now he has a change of heart. (MacArthur)
