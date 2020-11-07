@@ -162,7 +162,7 @@ Yet Jesus said that, despite **the tax-collector’s** treachery and sin, he wou
 
 18:23: This man apparently asked sincerely, bu twas unwilling to pay the cost: he wanted to keep the wealth of this life more than he wanted to gain the wealth of eternal life, and he went away **very sad**. He was seeking the kingdom, but he was not seeking it *first*. (MacArthur)
 
-22:3: **Вошёл же сатана в Иуду**. Не думайте что причастие само по себе что-то может дать человеку. Посмотрите что с Иудой случилось, как Иоанн Златоуст пишет: Иуда причастился, но вошёл в него не Христос, а сатана. (Осипов)
+22:3: **Вошёл же сатана в Иуду**. Не думайте что причастие само по себе что-то может дать человеку. Посмотрите что с Иудой случилось, как Иоанн Златоуст пишет: Иуда причастился, но вошёл в него не Христос, а сатана. А всё почему? Потому что причастие он принял недостойно, и после причастия так и оставался: иудой. (Осипов)
 
 23:9: Herod remains the only person in the Bible to whom Jesus gave absolutely **no answer**.
 
