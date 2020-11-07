@@ -4234,13 +4234,15 @@ Dan is the first child mentioned born of a concubine.
 
 49:33: **и положил ноги свои на постель, и скончался**. Посмотри и на кончину праведника, как она была чудесна. Сделав распоряжение относительно своих детей, он положил ноги свои на одр, как бы с удовольствием встречал свою смерть. (Свт. Иоанн Златоуст)
 
+50:2: **embalm**. To delay the normal process of putrefaction and so enable Jacob’s corpse to be transported to Hebron. (ESV)
 
+50:2: **physicians**.  Since embalming was normally a religious practice involving priests, Joseph may have deliberately chosen to use physicians in order to distinguish his father’s beliefs from those of the Egyptian priests. (ESV)
 
+50:2: **Бальзамировать**. По описанию Геродота, бальзамирование состояло в извлечении мозга чрез ноздри и внутренностей чрева чрез отверстие в левом боку, в наполнении очищенной внутренности благовонными веществами, в осолении всего тела погружением в селитру и, наконец, в обвитии оного и в покрытии смолистым веществом. (Свт. Филарет (Дроздов))
 
+50:3: **seventy days**. Jacob is being shown very high honor: the **seventy days** of mourning reflects Egyptian royal practice according to some ancient sources. (ESV)
 
-
-
-
+50:3: **оплакивали**. Обряд оплакивания состоял в возложении праха на главу и лице, в хождении по улицам с биением в обнаженную грудь, в удалении от бань, вина, мяса, красивых одежд и всякого вида неги. (Свт. Филарет (Дроздов))
 
 
 
