@@ -3900,6 +3900,25 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 47:10: **Jacob blessed Pharaoh**. For the second time.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Joseph and the Famine
 
 
@@ -3941,8 +3960,6 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 47:31: **bed**. Septuagint has "the head of his staff” because the Hebrew word is the same (sans vowels). This reading is important because this is how an apostle quotes it in Heb 11:21.
 
 47:31: **постели**. В 48 главе говорится, что Иаков прикован был к смертному одру (Лопухин А.П.)
-
-
 
 
 
@@ -4034,6 +4051,24 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 48:22: **мечом моим**. Сихемскую резню устроил не он. Более того, из той земли они немедленно ушли. Она теперь не может принадлежать ни ему, ни его сыновьям. И Сихемская резня была не с Эморреями. Значит, речь идёт о каком-то другом участке.
 
 48:22: **участок**.  По–еврейски שחם шехем. Семьдесят толковников думали, что это Сихем. В самом деле, речь идет о земле, принадлежавшей Иакову недалеко от Сихема. (Свт. Филарет (Дроздов))
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### Jacob Blesses His Sons
@@ -4224,6 +4259,22 @@ Dan is the first child mentioned born of a concubine.
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Jacob's Death and Burial
 
 49:28: **each with the blessing suitable to him**. Judah and Joseph are clearly distinguished from all the others in terms of their leadership role within the nation. Beyond Genesis, the tribes of Ephraim and Judah are consistently portrayed as taking the lead, with the latter eventually providing the Davidic dynasty. (ESV)
@@ -4247,7 +4298,39 @@ Dan is the first child mentioned born of a concubine.
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### God's Good Purposes
+
+50:15: **their father was dead ... Joseph will hate us**. Similar to how Esau was furious with Jacob and vowed to kill him as soon as their father has died (Gen 27:41)
+
+50:15: **возненавидит нас**. Они опасались, что под благорасположением, которое оказывал им Иосиф при жизни отца, могла скрываться тайная вражда. (Лопухин А.П.)
+
+50:16: **Послали сказать Иосифу**. Братья сперва употребили посредника, дабы видеть, не произведет ли в Иосифе гнева самое опасение, ими изъявляемое. (Свт. Филарет (Дроздов))
+
+50:19: **Я боюсь Бога**. отя отец ваш и умер, но жив Бог отца вашего. Ради Него не сделаю вам никакого оскорбления. (Прп. Ефрем Сирин)
+
+50:19: **Разве я вместо Бога?**. Зло человеческое бессильно остановить благотворное действие путей Промысла Божья. И теперь Иосиф -- только орудие Промысла, и может ли он идти вразрез с Его действиями и мстить? (Лопухин А.П.)
+
+50:20: **God meant it for good**. If the only purpose was to provide food for the people, God could have chosen any other way. Joseph doesn't say, but likely recognizes, that there were other reasons as well; for instance, to build up their characters.
+
+50:20: **You meant evil, but God meant it for good**. God transformed their evil into good, and as a result, many people have been kept alive. (ESV)
+
+50:20: **вы умышляли против меня зло; но Бог обратил это в добро**. Премудрость Божия умеет действия страстей человеческих самые преступные и постыдные направлять к тому, чтобы возвысить достоинство Святых, подобно тому, как искусный живописец употребляет самые темные краски для того, чтобы придать более виду и блеска чертам наиболее важным в картинах. (Свт. Филарет (Дроздов))
 
 
 
@@ -4269,3 +4352,15 @@ Dan is the first child mentioned born of a concubine.
 
 
 ### The Death of Joseph
+
+50:23: **counted as Joseph's own**. It may be that Joseph did not have any more children himself, after Israel has "adopted" his two sons.
+
+50:25: **carry up my bones**. Moses fulfills this instruction in Ex 13:19,  and Joseph’s remains are eventually buried at Shechem (Josh 24:32). (ESV)
+
+50:25: **Бог посетит вас, и вынесите кости мои**. Сказал это, чтобы Израильтяне вполне были уверены, что непременно возвратятся в Ханан. Если бы праведник не был крепко и вполне убежден, что все мы возвратимся, то не завещал бы о костях своих. (Свт. Иоанн Златоуст)
+
+50:25: **вынесите кости мои**. «Верою Иосиф, при кончине, напоминал об исходе сынов Израилевых и завещал о костях своих.» (Евр. 11:22)
+
+50:26: **умер Иосиф**. С его смертью, евреи лишились могущественной опоры, что впоследствии привело к горькой жизни в рабстве. (Лопухин А.П.)
+
+50:26: **ста десяти лет**. Семнадцати лет он прибыл в Египет; тридцати лет явился к фараону и истолковал сны; в продолжение восьмидесяти лет держал власть над всем Египтом. Видишь, как награды превышают труды и как многообразны воздаяния? Для этого понимания и указаны его лета. (Свт. Иоанн Златоуст)
