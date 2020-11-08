@@ -79,6 +79,45 @@ This is how faith functions: one accepts the situation, does whatever little thi
 
 6:44: **Unless the father draws him**. Now, the sum of the doctrine of eternal security comes down to this.  Is the death of Christ a work that *potentially* saves *willing* sinners, or is it a work that *actually* provides salvation for *unwilling* sinners who by God’s sovereign grace *will be made willing*? The only possible answer is that God provided a sacrifice in His Son, a true payment in full for the sins of *all who would ever believe*, and all who would ever believe will believe because the Father will **draw them**, and He will grant them repentance, and faith, and regeneration. (MacArthur)
 
+6:44: **No one cam come to Me unless the Father .. draw him**. This is the doctrine of election. Did I come to Jesus because I was irresistibly  drawn by God and had nothing to do with it, or did I come to Christ because my heart said I want to come to Christ? And the answer is, "yes, it is so" 😁
+This is a paradox, but it shouldn't be a problem. John Murray says, "there is an apparent paradox in every biblical doctrine". For instance:
+1. Who wrote Romans? It it all from Paul? Did God write it instead of Paul? Did they take turns writing it: one verse from Paul, then one verse from God? No; it was all from the mind of Paul, and, at the same time, it was all from God. It can't be in our human thinking. It's paradoxical. But it is.
+2. Was Jesus God or man? Half God, half man? What's half a god then? A nothing. But he was 100% God, and 100% man. It can't be. But if you try to find a truth in the middle that accommodates both, in the end you destroy both.
+3. Who lives your Christian life? Do you? Or is it Christ in you doing everything while you just flop? See how Paul says: "I am crucified with Christ, nonetheless, *I live, yet not I*, but Christ lives in me" (Gal 2:20). It’s the same paradox.
+See whenever you try to reduce the truth of God down to the human brain, you’re going to have some stuff left over.  God understands how it all goes together. We don’t. And He doesn't have to limit His actions only to things that we can understand. 
+In the end, that’s a matter of faith, isn’t it?
+(MacArthur)
+
+6:44: (перевод) **Никто не может прийти ко Мне, если не привлечет его Отец, пославший Меня; и Я воскрешу его в последний день.** Иоанна 6:44
+Смотрите как получается: с одной стороны, мы приходим к Богу добровольно. С другой стороны, если Бог не позовёт нас, то мы вообще не пошли бы к Нему. Так кто же действует первый? 
+
+Пришёл ли я Ко Христу потому что Бог тянул меня с непреодолимой силой, и я ничего не мог поделать? Или пришёл ли я ко Христу потому что моё сердце того пожелало? 
+Ответ на это очень простой. 
+"Да, это так". 
+😁
+
+Нам кажется, что либо одно, либо другое, и это такой парадокс. Так оно и есть. Джон Мюррей, американский богослов, даже так сказал: "парадокс есть в каждой Библейской доктрине". 
+
+Например, послание апостола Павла к Римлянам. Его писал Павел. В то же время, нам известно, что всё Писание богодухновенно. Тогда кто же его написал? Всё это от Павла, и Бог тут не при чём? Или всё это диктовал Бог, а Павел только записывал? Или они вообще писали по очереди? Что-то не сходится. Потому что в послании вы видим Божью истину в каждом слове, и одновременно, видим личность Павла. Там и его словарный запас, и его мысль, и его жизнь. 
+Автор -- Павел. И одновременно, автор -- Бог.
+По нашему, человеческому, разумению, это невозможно! Это парадокс. Да, так и есть.
+
+Ещё пример. Был ли Иисус Богом, или человеком? 
+Может, Он был полубогом, и получеловеком? А скажите-ка мне тогда.. что такое половина Бога? Это ничто. А Иисус был на 100% Бог. И одновременно на 100% человек. 
+Это невозможно. Но дело в том, что если вы попытаетесь как-либо примирить эти две правды и найти что-то среднее... вы уничтожаете их обе. 
+
+И ещё вопрос. Вот вы христианин. Кто живёт вашу христианскую жизнь? 
+Вы живёте, а Бог тут только наблюдает? 
+Или же её живёт Христос, который в вас, а вы просто наблюдаете? 
+А Павел как об этом пишет? "Уже не я живу, но живёт во мне Христос".
+Такой же парадокс. 
+
+В итоге получается, что если попытаться "впихнуть" Божью мудрость в малую коробочку человеческого сознания, то всё равно останутся лишние детали. Потому что Бог знает, как оно всё вместе работает; а мы -- нет.
+
+И Он не обязан ограничивать себя, делая только то, что мы способны понять.
+В итоге, это вопрос веры. Мы, будучи неспособны понять всё целиком.. верим ли Ему?
+
+
 6:66: “**From that time many of his disciples went back**,” back where?  Just back, back to their former life, “and walked no more with him.”  Why?  Too much, too much was expected, too much was required.  They weren’t interested in total commitment.  They bailed out.  Free food?  That’s great.  Healing?  Super.  Commitment?  Not interested.  Verse 67, “Jesus said to the 12.”  Listen, after everybody leaves, guess who’s still there?  12 guys.  What I’m trying to show you is: these are not just sort of tagalongs; these 12 are the ones who counted the cost, stuck it out, paid the price when the rest bailed out.  And He said to them, “Will you also go away?”  And you don’t understand that in English you have to see the Greek.  The Greek is a class of condition that should expect a no answer.  In other words Jesus said this, and if you were looking at it in the Greek, “You won’t also go away, will you?”  Peter speaks for the group and says, “Where would we go?  You have the words of eternal life.  And we believe and are sure that you are the Christ, the Son of the living God.”  Then, Jesus points out that even among them, one of them’s a devil.  But the point was this: the crowd was on the surface in the physical; Peter says, we’ve gone past that, we’re looking at a spiritual truth, we see You as the Messiah, the Son of the living God.  You got it, Peter.  (MacArthur)
 
 7:37: **Living water**. The word “**living**” is a verb; literally, a *water that lives*.

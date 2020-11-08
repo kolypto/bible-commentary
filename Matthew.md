@@ -3508,6 +3508,11 @@ Whatever it is that I have spent my life accumulating, even if I gain the world
 
 18:17: **Как язычник и мытарь** — а это как? Отпусти его, и пусть сам разбирается. (Авксентий)
 
+18:18: **whatever you bind on earth shall be bound in heaven**. **Binding** and **loosing** is a rabbinical concept: it would be permitting and forbidding, in our terms. Jesus simply says here that when you act in agreement with what God has revealed in the Bible, heaven is acting on your behalf. 
+In the context of Mt 18:15, "if a brother sins against you", this means that people would try to reason you out of it: "don't tell the whole church! that's unloving!". But if you're acting in accordance with the Bible heaven has already done it anyway and you're only acting in accord with heaven. 
+But we have no right to go beyond the pages of holy scriptures and bind things or that is permit things or forbid things. 
+(MacArthur)
+
 16:19: **you** is plular; in a parallel passage in Mt 16:19, **you** is singular.
 
 18:10: **У меня много людей в этом городе**, готовых к жатве. Не тех, кто уже уверовал и поддержит Павла; а тех, кому надлежит уверовать, и пока это не состоится, всё будет спокойно.        
