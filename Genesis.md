@@ -3,6 +3,13 @@
 Introduction:
 Reading Genesis 1-11 (Primeval history), readers will see that it’s designed to refute ancient delusions: God is almighty (not limited, like their human-like gods); the sun and the moon are not gods in their own right but are created by God; this God does not need feeding by man but He supplies man with food; it is human sin, not divine annoyance that prompts the flood. (ESV)
 
+Introduction:
+In this book of beginnings, God revealed Himself and a worldview to Israel which contrasted, at times sharply, with the worldview of Israel’s neighbors. (MacArthur)
+
+Parallel to Revelation:
+One special theme that sets this book apart: it corresponds closely with the final book. In the Book of Revelation, the paradise which was lost in Genesis will be regained. God rids His creation of the curse that started in Gen 3, "and there shall be no more curse" (Rev 22:3). In the final chapter of God’s Word, believers will find themselves back in the Garden of Eden, the eternal paradise of God, eating from the Tree of Life (Rev. 22:1–14). (MacArthur)
+
+Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin. 14:6; Ezra 6:18; Neh. 13:1; Dan. 9:11, 13; Mal. 4:4) and the NT (Matt. 8:4; Mark 12:26; Luke 16:29; 24:27, 44; John 5:46; 7:22; Acts 15:1; Rom. 10:19; 1 Cor. 9:9; 2 Cor. 3:15) ascribe this composition to Moses](https://www.esv.org/Exodus+17:14;Numbers+33:2;Joshua+8:31;1+Kings+2:3;2+Kings+14:6;Ezra+6:18;Nehemiah+13:1;Daniel+9:11;Daniel+9:13;Malachi+4:4;Matthew+8:4;Mark+12:26;Luke+16:29;Luke+24:27;Luke+24:44;John+5:46;John+7:22;Acts+15:1;Romans+10:19;1+Corinthians+9:9;2+Corinthians+3:15/)
 
 
 
@@ -25,6 +32,8 @@ Reading Genesis 1-11 (Primeval history), readers will see that it’s designed t
 ### The Creation of the World
 
 1: After declaring that God is the Creator of all things (v. 1), the focus of the rest of Genesis 1 is mainly on God bringing things into existence by His word and ordering the created things, rather than on how the earth was initially created. (ESV)
+
+1:1: **In the beginning**. Implies the reality of God’s eternal or “before time” existence and announce the spectacular transition to time and space. (MacArthur)
 
 1:1: **God**. Although the Hebrew word for “**God**” (*Elohim*) is plural in form (possibly to express majesty), the verb “create” is singular, indicating that God is thought of as one being. (ESV)
 
