@@ -1,3 +1,7 @@
+Толкование на четвероевангелия Аверкия Таушева: 
+http://www.sinergia-lib.ru/index.php?section_id=996
+
+
 ## Luke
 
 1:28: The literal translation of "**favored one**" is "one endued with grace". The Bible knows nothing of Mary's own grace except that which she received from the Lord. She was never a source of grace. (MacArthur)

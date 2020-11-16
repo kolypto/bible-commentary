@@ -8,3 +8,12 @@ The first four books present Jesus from distinct perspectives. Matthew presents 
 * От Марка. Иисус есть слуга. Здесь Он чаще молится, и "немедленно" готов послужить
 * От Матфея. Иисус есть Царь.
 (Оганес Маргарян, МЦЦ)
+
+
+
+
+
+
+Руководство к изучению Священного Писания Нового Завета
+Четвероевангелие
+https://azbyka.ru/otechnik/Averkij_Taushev/rukovodstvo-k-izucheniyu-svjashennogo-pisanija-novogo-zaveta-chetveroevangelie/

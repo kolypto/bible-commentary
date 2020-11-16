@@ -81,9 +81,29 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 
 1:2: **над бездною, .. над водою**. Здесь два родственных по смыслу еврейского слова (tehom и maim), означающих массу воды, образующую целую «бездну»; этим самым делается указание на расплавленное жидкообразное состояние первозданного, хаотического вещества. (Лопухин А.П.)
 
-1:3: The absolute power of God is conveyed by the fact that he merely speaks and things are created(ESV)
+1:3: **God said**. The absolute power of God is conveyed by the fact that he merely speaks and things are created. (ESV)
 
-1:3: Everything that God brings into being is **good**. This becomes an important refrain throughout the chapter (see vv. 10, 12, 18, 21, 25, 31). (ESV)
+1:3: **God said**. God effortlessly spoke light into existence, which dispelled the darkness of v. 2 (MacArthur)
+
+1:3: **сказал Бог**. Сказать, по свойству еврейского языка, иногда означает *помыслить*, *вознамериться*. Итак, глаголание Божие есть решительное изволение Божие. 
+В слове сказал можно также находить таинство ипостасного Слова, которое здесь, подобно как и Дух Святый, поставляется Творцом мира. 
+(Свт. Филарет (Дроздов))
+
+1:3: **И сказал Бог: да будет свет.**. Итак, Творец света - Бог, местопребывание и причина тьмы - мир. Но благой Творец так сотворил словом свет, чтобы явить сам мир, вложив в него светоч, и сделать его прекрасным на вид. (Свт. Амвросий Медиоланский)
+
+1:3: **Сказал Бог**. Не следует думать, что сказал Он голосом, выпущенным из легких, языком или зубами. Слова сии сказаны неизречённым образом. Слово Божие, которым создано все, не имеет ни начала, ни конца; рожденное безначально, Оно совечно Отцу.
+Впрочем, это непостижимо.
+(Блж. Августин)
+
+1:3: **И стал свет**. Первоначальный свет разлит был всюду, а не заключен был в одном известном месте. по внезапном исчезновении его наступало владычество ночи, а с появлением оканчивалось ее владычество. Так свет производил и три последующие дня. (Прп. Ефрем Сирин)
+
+1:4: **light was good**. Everything that God brings into being is **good**. This becomes an important refrain throughout the chapter (see vv. 10, 12, 18, 21, 25, 31). (ESV)
+
+1:4: **good**. The light was good for the purposes it was intended to serve. (MacArthur)
+
+1:4: **тьма**. Кто же создал тьму? Бог, или дьявол, противник света? Ни тот, ни другой. Потому что тьма — это лишь тень, отсутствие света. (~Прп. Антоний Великий)
+
+1:5: **God called**. Separating and naming were acts of dominion and served as a pattern for man, who would also name a portion of God's creation over which God gave him dominion. (MacArthur)
 
 1:7: This little phrase, **and it was so**, is here to indicate that it was so, and remained so throughout the life of the universe. That's a was of saying something was fixed, and it goes against the idea of progressive creationism that God has started some evolutionary process. He fixed it, it was firm, it was established. (MacArthur)
 
