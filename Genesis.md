@@ -107,6 +107,12 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 
 1:4: **тьма**. Кто же создал тьму? Бог, или дьявол, противник света? Ни тот, ни другой. Потому что тьма — это лишь тень, отсутствие света. (~Прп. Антоний Великий)
 
+1:4: **увидел Бог свет, что он хорош**. Увидел? Неужели до появления света Бог не знал, что он добро? Знал, но это снисхождение к человеческому пониманию: как художник, окончивший произведение, окидывает его взглядом. (~Свт. Иоанн Златоуст)
+
+1:4: **отделил Бог свет от тьмы**. Что значит, "разлучил"? Каждому назначил свое место и определил соответственное время. (Свт. Иоанн Златоуст)
+
+1:4: **отделил Бог свет от тьмы**. Значит, что светящаяся материя, которая окружала собой всю землю, сгустилась и сместилась в одну сторону, и наша земля стала выходить из светящегося тумана. Таким образом свет был отделён от тьмы, и произошло различие между днём и ночью. (Еп. Виссарион (Нечаев))
+
 1:5: **God called**. Separating and naming were acts of dominion and served as a pattern for man, who would also name a portion of God's creation over which God gave him dominion. (MacArthur)
 
 1:7: This little phrase, **and it was so**, is here to indicate that it was so, and remained so throughout the life of the universe. That's a was of saying something was fixed, and it goes against the idea of progressive creationism that God has started some evolutionary process. He fixed it, it was firm, it was established. (MacArthur)
