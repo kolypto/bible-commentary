@@ -120,17 +120,30 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 На вопрос, почему же геологические эпохи творения получили в библейском космогоническом видении название обычного «дня», ответить сравнительно нетрудно: потому, что «день» был самой удобной, самой простой и легко доступной сознанию первобытного человека хронологической меркой. Следовательно, чтобы внедрить в сознание первого человека идею о последовательном порядке творения мира и раздельности его процессов, целесообразнее всего было воспользоваться уже знакомым ему образом дня как цельного и законченного периода времени.
 (Лопухин А.П.)
 
-1:7: This little phrase, **and it was so**, is here to indicate that it was so, and remained so throughout the life of the universe. That's a was of saying something was fixed, and it goes against the idea of progressive creationism that God has started some evolutionary process. He fixed it, it was firm, it was established. (MacArthur)
+1:6: **firmament**. The Hebrew word speaks of something spread out. The imagery is that of a vast expanse, a protective layer that overlays the earth and divides the waters below from the waters above. (MacArthur)
 
-1:7: If the solar system was brought about by an accidental collision, then the appearance of organic life on this planet was also an accident, and the whole evolution of Man was an accident too. If so, then all our present thoughts are mere accidents -- the accidental by-product of the movement of atoms. And this holds for the thoughts of the materialists and astronomers as well as for anyone else’s. But if their thoughts -- i.e., of Materialism and Astronomy -- are merely accidental by-products, why should we believe them to be true? I see no reason for believing that one accident should be able to give me a correct account of all the other accidents. (C. S. Lewis)
+1:7: **воду**. Какую воду? Не разумеет ли здесь писатель ту самую воду, над которою носился Дух Святой? (Блж. Августин)
 
-1:7: Each particular thought is valueless if it is the result of irrational causes. Obviously, then, the whole process of human thought, what we call Reason, is equally valueless if it is the result of irrational causes. Hence every theory of the universe which makes the human mind a result of irrational causes is inadmissible, for it would be a proof that there are no such things as proofs. Which is nonsense. (C. S. Lewis)
+1:7: **отделил воду, которая под твердью, от воды, которая над твердью**. Другие планеты наверняка уже существовали, но не были полностью отделены одна от другой: пространство между ними не было пустым, но было наполнено испарениями вод и других веществ. При таком состоянии солнечной системы ещё не могло быть небесного свода, который разывается **твердь**. Во второй день Бог очищает межпланетное пространство от испарений, которые сосредотачиваются около планет и переходят из парообразного состояния в жидкое. Вместе с тем образовался голубой небесный свод. (Еп. Виссарион (Нечаев))
 
-1:9: God has made the planet in one day, fully mature, and with an appearance of age (MacArthur)
+1:7: **вода, которая над твердью**. Наивному уму первобытного еврея небесная атмосфера рисовалась в виде какого-то твёрдого купола, разделявшего собой атмосферические воды от земных вод; по временам эта твердая оболочка разверзалась, и тогда небесные воды через это отверстие изливались на землю. 
+И Библия, говорящая языком сынов человеческих и приспособляющаяся к слабости ума и слуха нашего (святой Иоанн Златоуст, Феодорит и др.)., не считает нужным вносить какие-либо научные поправки в это наивное мировоззрение. (Лопухин А.П.)
 
-1:10: What does it mean that **it was good**? It means that it was ready for habitation. (MacArthur)
+1:7: **Above the firmament**. Could be a canopy of water vapor which acted to make the earth like a hothouse, provided uniform temperature, inhibited mass air movements, caused mist to fall, and filtered out ultraviolet rays, and thereby extending life. (MacArthur)
 
-1:12: No evolution is remotely possible because there was no death, which only came with Adam's sin. The necessary prerequisite for having evolutionary processes is death, which makes natural selection possible. But there was no death, it doesn't even come before Gen 3. It was all **good**. (MacArthur)
+1:7: **And it was so**. This little phrase, **and it was so**, is here to indicate that it was so, and remained so throughout the life of the universe. That's a way of saying something was fixed, and it goes against the idea of progressive creationism that God has started some evolutionary process. He fixed it, it was firm, it was established. (MacArthur)
+
+1:7: (<u>What if the universe is an accident?</u>) **God made**.  If the solar system was brought about by an accidental collision, then the appearance of organic life on this planet was also an accident, and the whole evolution of Man was an accident too. If so, then all our present thoughts are mere accidents -- the accidental by-product of the movement of atoms. And this holds for the thoughts of the materialists and astronomers as well as for anyone else’s. But if their thoughts -- i.e., of Materialism and Astronomy -- are merely accidental by-products, why should we believe them to be true? I see no reason for believing that one accident should be able to give me a correct account of all the other accidents. (C. S. Lewis)
+
+1:7: (<u>What if the universe is an accident?</u>) **God made**. Each particular thought is valueless if it is the result of irrational causes. Obviously, then, the whole process of human thought, what we call Reason, is equally valueless if it is the result of irrational causes. Hence every theory of the universe which makes the human mind a result of irrational causes is inadmissible, for it would be a proof that there are no such things as proofs. Which is nonsense. (C. S. Lewis)
+
+1:8: **увидел Бог, что это хорошо**. Одобрение красоты у Бога не таково, как у нас. Для Него прекрасно то, что совершено по закону искусства и направлено к благопотребному концу. (Свт. Василий Великий)
+
+1:9: **God said .. and it was so**. God has made the planet in one day, fully mature, and with an appearance of age (MacArthur)
+
+1:10: **it was good**. What does it mean that **it was good**? It means that it was ready for habitation. (MacArthur)
+
+1:12: (<u>evolution?</u>) **vegetation, plants .. animals. And it was good**. No evolution is remotely possible because there was no death, which only came with Adam's sin. The necessary prerequisite for having evolutionary processes is death, which makes natural selection possible. But there was no death, it doesn't even come before Gen 3. It was all **good**. (MacArthur)
 
 1:14: How could God have created a world with light without celestial bodies to radiate it? "The only difference is this, that the light was before dispersed, but now proceeds from lucid bodies; which in serving this purpose, obey the command of God." (Calvin). God attached the light that He had created to luminaries. (MacArthur)
 
