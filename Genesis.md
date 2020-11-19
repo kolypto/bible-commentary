@@ -139,6 +139,8 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 
 1:8: **увидел Бог, что это хорошо**. Одобрение красоты у Бога не таково, как у нас. Для Него прекрасно то, что совершено по закону искусства и направлено к благопотребному концу. (Свт. Василий Великий)
 
+1:9: **dry land**. This was caused by a tremendous, cataclysmic upheaval of the earth's surface. (MacArthur)
+
 1:9: **God said .. and it was so**. God has made the planet in one day, fully mature, and with an appearance of age (MacArthur)
 
 1:10: **it was good**. What does it mean that **it was good**? It means that it was ready for habitation. (MacArthur)
