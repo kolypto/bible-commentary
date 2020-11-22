@@ -145,9 +145,21 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 
 1:10: **it was good**. What does it mean that **it was good**? It means that it was ready for habitation. (MacArthur)
 
+1:11: **fruit, in which is their seed**. God created fully mature vegetation capable of reproduction, with seed already in it. (MacArthur)
 
+1:11: **seed, each according to its kind**. Got sets in motion a process whereby the vegetable kingdom could reproduce through seeds which would maintain each one's unique characteristics. It indicates that evolution, which proposes reproduction across species lines, is a false explanation of origins. (MacArthur)
+
+1:11: **да произрастит земля зелень**. Поскольку некоторые думают, что причина произрастающего из земли в солнце, которое притяжением теплоты извлекает на поверхность земли таящуюся в глубине силу, то земля украшается прежде солнца, чтобы заблуждающие перестали поклоняться солнцу, и признавать, будто оно дает причину жизни. (Свт. Василий Великий)
 
 1:12: (<u>evolution?</u>) **vegetation, plants .. animals. And it was good**. No evolution is remotely possible because there was no death, which only came with Adam's sin. The necessary prerequisite for having evolutionary processes is death, which makes natural selection possible. But there was no death, it doesn't even come before Gen 3. It was all **good**. (MacArthur)
+
+1:12: **Произвела земля зелень, траву, .. и дерево**. Хотя в момент создания травам было одно мгновение от роду, по виду их казалось, что им уже месяцы. Так же и деревья: хотя, когда проросли, и существовали один только день, по совершенству и по плодам, обременявшим их ветви, они казались порождением многих лет. 
+(Как отметил MacArthur на v. 9: "fully mature, and with an appearance of age")
+(Прп. Ефрем Сирин)
+
+1:13: **Evening, morning**. This verse proves that there already was light to shine on the plants. This probably means that photosynthesis was already occurring.
+
+1:13: **День третий**. Называемый нами вторником. (Свт. Димитрий Ростовский)
 
 1:14: **Lights**. How could God have created a world with light without celestial bodies to radiate it? "The only difference is this, that the light was before dispersed, but now proceeds from lucid bodies; which in serving this purpose, obey the command of God." (Calvin). God attached the light that He had created to luminaries. (MacArthur)
 
