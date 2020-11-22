@@ -145,19 +145,21 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 
 1:10: **it was good**. What does it mean that **it was good**? It means that it was ready for habitation. (MacArthur)
 
+
+
 1:12: (<u>evolution?</u>) **vegetation, plants .. animals. And it was good**. No evolution is remotely possible because there was no death, which only came with Adam's sin. The necessary prerequisite for having evolutionary processes is death, which makes natural selection possible. But there was no death, it doesn't even come before Gen 3. It was all **good**. (MacArthur)
 
-1:14: How could God have created a world with light without celestial bodies to radiate it? "The only difference is this, that the light was before dispersed, but now proceeds from lucid bodies; which in serving this purpose, obey the command of God." (Calvin). God attached the light that He had created to luminaries. (MacArthur)
+1:14: **Lights**. How could God have created a world with light without celestial bodies to radiate it? "The only difference is this, that the light was before dispersed, but now proceeds from lucid bodies; which in serving this purpose, obey the command of God." (Calvin). God attached the light that He had created to luminaries. (MacArthur)
 
-1:14: **Seasons. **The Hebrew word “seasons” doesn’t mean winter, summer, spring, and fall; it means “an assembling of the people” or “a gathering of the congregation”. In other words, the stellar bodies were literally to be used by God to establish certain gatherings of the people. And if you study the Old Testament, you will find out that all of the festivals, and all of the feasts, and all of the holidays of Israel were identified by where the heavenly bodies were at a certain time. They were all in relation, for example, of the vernal equinox or the full moon. (MacArthur)
+1:14: **Seasons.** The Hebrew word “seasons” doesn’t mean winter, summer, spring, and fall; it means “an assembling of the people” or “a gathering of the congregation”. In other words, the stellar bodies were literally to be used by God to establish certain gatherings of the people. And if you study the Old Testament, you will find out that all of the festivals, and all of the feasts, and all of the holidays of Israel were identified by where the heavenly bodies were at a certain time. They were all in relation, for example, of the vernal equinox or the full moon. (MacArthur)
 
-1:16: By referring to them as **the greater light** and **lesser light** (v. 16), the text avoids using terms that were also proper names for pagan deities linked to the sun and the moon. (ESV)
+1:16: **Two great lights**. By referring to them as **the greater light** and **lesser light** (v. 16), the text avoids using terms that were also proper names for pagan deities linked to the sun and the moon. (ESV)
 
-1:25: At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
+1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
 
-1:26: The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
+1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
 
-1:26: Previous God had used to say “let there be”, as if an impersonal form. But now the language changes, and He says “let us make”. Now, when God introduces Himself personally, as a Trinity, He uses the plural language. (MacArthur)
+1:26: **Let us make**. Previously God had used to say “let there be”, as if an impersonal form. But now the language changes, and He says “let us make”. Now, when God introduces Himself personally, as a Trinity, He uses the plural language. (MacArthur)
 
 1:26: “**us**” may refer to the heavenly court (sons of God, or angels), but a significant objection is that man is not made in the **image** of angels. God is speaking to Himself, since God alone does the making. This would be the first hint of the Trinity in the Bible. (ESV)
 
