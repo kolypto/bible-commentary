@@ -163,9 +163,21 @@ Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin.
 
 1:14: **Lights**. How could God have created a world with light without celestial bodies to radiate it? "The only difference is this, that the light was before dispersed, but now proceeds from lucid bodies; which in serving this purpose, obey the command of God." (Calvin). God attached the light that He had created to luminaries. (MacArthur)
 
+1:14: **to separate the day from the night**. If the their function is to separate the day from the night... what separated the evening from the morning in the previous verses?
+
+1:14: **Lights**. For three days, there had been light (v. 4) in the day as though there were a sun, and lesser light at night as though there were the moon and stars. God could have left it that way, but He did not. 
+What had been a disembodied blanket of diffused supernatural light was superseded by a universe full of light-bearing bodies. The alternation between day and night continued, but now heavenly bodies provided it. 
+(MacArthur)
+
+1:14: **да будут светила**. Только на четвёртый день. После этого никто не посмеет сказать, будто без содействия солнца не могут созревать произрастения земли. (Свт. Иоанн Златоуст)
+
 1:14: **Seasons.** The Hebrew word “seasons” doesn’t mean winter, summer, spring, and fall; it means “an assembling of the people” or “a gathering of the congregation”. In other words, the stellar bodies were literally to be used by God to establish certain gatherings of the people. And if you study the Old Testament, you will find out that all of the festivals, and all of the feasts, and all of the holidays of Israel were identified by where the heavenly bodies were at a certain time. They were all in relation, for example, of the vernal equinox or the full moon. (MacArthur)
 
+1:16: **and the stars**. The immense universe the God created is mentioned here only in a brief phrase, almost as if it were an afterthought. (ESV)
+
 1:16: **Two great lights**. By referring to them as **the greater light** and **lesser light** (v. 16), the text avoids using terms that were also proper names for pagan deities linked to the sun and the moon. (ESV)
+
+1:16: **Two great lights**. Israel had originally come from Mesopotamia, where the celestial bodies were worshiped, and more recently from Egypt, where the sun was worshiped as a primary deity. God was revealing to them that all which Israel's neighbors had falsely worshiped were the products of His creation. (MacArthur)
 
 1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
 
