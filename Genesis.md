@@ -179,6 +179,8 @@ What had been a disembodied blanket of diffused supernatural light was supersede
 
 1:16: **Two great lights**. Israel had originally come from Mesopotamia, where the celestial bodies were worshiped, and more recently from Egypt, where the sun was worshiped as a primary deity. God was revealing to them that all which Israel's neighbors had falsely worshiped were the products of His creation. (MacArthur)
 
+1:16: **и звёзды**. Может показаться странным, что звёзды созданы после планеты Земля. Однако что мешало Богу, сотворяя Землю как бы в середине времени, вдруг отложить в прошлое всю историю вселенной? Словно ленту протянуть формирование звёзд в прошлое? Ведь Бог вне времени; сотворение прошлого для Него столь же нормально, как сотворение будущего.
+
 1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
 
 1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
