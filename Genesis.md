@@ -181,6 +181,23 @@ What had been a disembodied blanket of diffused supernatural light was supersede
 
 1:16: **и звёзды**. Может показаться странным, что звёзды созданы после планеты Земля. Однако что мешало Богу, сотворяя Землю как бы в середине времени, вдруг отложить в прошлое всю историю вселенной? Словно ленту протянуть формирование звёзд в прошлое? Ведь Бог вне времени; сотворение прошлого для Него столь же нормально, как сотворение будущего.
 
+1:20: **great sea creatures**. Canaanite literature portrays a great dragon as the enemy of the main fertility god Baal. 
+Genesis depicts God as creating large sea creatures, but they are not in rebellion against him. He is sovereign and is not in any kind of battle to create the universe. (ESV)
+
+1:20: **да произведет вода пресмыкающихся**. Раз Бог повелевает водам произвести живых существ, это значит, что воды сами собою, без непосред­ственного действия Божеского всемогущества, не могли дать жизнь обитающим в них существам. (Еп. Виссарион (Нечаев))
+
+1:21: **всякую душу животных**. Слово кратко, речение одно, а роды животных многочисленны и разнообразны. Таково слово Божие. (Свт. Иоанн Златоуст)
+
+1:21: **по роду их**. Виды были созданы сразу, с разделением на известные теперь породы. Они не появились вследствие постепенного, с течением длинных периодов времени, видоизменения первоначаль­ных немногих разностей. (Еп. Виссарион (Нечаев))
+
+1:21: **рыб больших**. Выразительное указание на то, что существовали вымершие ныне виды исполинских размеров: динозавры. (Лопухин А.П.)
+
+1:22: **blessed**. This is the first occurrence of the word **bless** in Scripture. God's admonition to "be fruitful and multiply" was the substance of the blessing. (MacArthur)
+
+1:22: **благословил**. Благословение есть изъявление *благоволения*, но в повествовании о Боге, без сомнения, знаменует и *благотворение*. (может когда-то потом я смогу понять что тут сказано?) (Свт. Филарет (Дроздов))
+
+1:22: **плодитесь и размножайтесь**. Все твари получают способность к размножению "по роду своему", то есть каждый из видов животных - к воспроизведению себе подобных. (Лопухин А.П.)
+
 1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
 
 1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
