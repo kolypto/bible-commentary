@@ -198,15 +198,49 @@ Genesis depicts God as creating large sea creatures, but they are not in rebelli
 
 1:22: **плодитесь и размножайтесь**. Все твари получают способность к размножению "по роду своему", то есть каждый из видов животных - к воспроизведению себе подобных. (Лопухин А.П.)
 
+1:25: **сотворим человека**. Человек создан в тот же день, в который все животные. Здесь есть некоторая связь, и некоторое различие, между одушевлёнными существами. (Блж. Августин)
+
 1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
 
-1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
+
+1:26: **God**. The very name of God, Elohim (v. 1), is a plural form of El. (MacArthur)
 
 1:26: **Let us make**. Previously God had used to say “let there be”, as if an impersonal form. But now the language changes, and He says “let us make”. Now, when God introduces Himself personally, as a Trinity, He uses the plural language. (MacArthur)
 
-1:26: “**us**” may refer to the heavenly court (sons of God, or angels), but a significant objection is that man is not made in the **image** of angels. God is speaking to Himself, since God alone does the making. This would be the first hint of the Trinity in the Bible. (ESV)
+1:26: **Us**. This plurality suggests both communion and consultation among the members of the Trinity, perfect agreement and clear purpose. (MacArthur)
 
-1:27: Traditionally, the **image** has been seen as the capacities that set man apart from the other animals—ways in which humans resemble God, such as in the characteristics of reason, morality, language, a capacity for relationships governed by love and commitment, and creativity in all forms of art. (ESV)
+1:26: **Us**. “**Us**” may refer to the heavenly court (sons of God, or angels), but a significant objection is that man is not made in the **image** of angels. God is speaking to Himself, since God alone does the making. This would be the first hint of the Trinity in the Bible. (ESV)
+
+1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
+
+1:26: **In Our image, after Our likeness**. It establishes a personal relationship between God and man that does not exist with any other aspect of creation. 
+It suggests that God was, in essence, the pattern for man: a person that only functions in the context of relationships. Man's capacity for intimate, personal relationships, was designed to be fulfilled with God/ (MacArthur)
+
+1:26: **image**. Traditionally, the **image** has been seen as the capacities that set man apart from the other animals—ways in which humans resemble God, such as in the characteristics of reason, morality, language, a capacity for relationships governed by love and commitment, and creativity in all forms of art. (ESV)
+
+1:26: **по образу Нашему и по подобию**. Подобию ли телесному, как будто у Бога есть тело, руки, ноги? Бог не имеет очертаний, не ограничен величиной и формой, не связан временем; Он познаётся в могуществе.
+По какому же тогда образу? По образу разума. 
+(Свт. Василий Великий)
+
+1:26: **образ ... и подобие**. Образ Божий душа принимает от Бога во время своего создания, а подобие Божие в ней созидается в крещении. Образ Божий ты имеешь, а подобен Ему, а подобие, когда уподобляешься в добродетели.
+Да будет нам известно и то, что образ Божий есть и в душе неверного человека, но подобие имеется только в добродетельном христианине. И когда христианин совершает смертный грех, он лишается только подобия Божия, а не образа; и если он осуждается на вечные мучения, то и тогда при нем остается навеки образ Божий, но подобия уже в нем не имеется.
+(Свт. Димитрий Ростовский)
+
+
+1:26: **образ .. и подобие**. Сказано: по образу, потому что Бог сотворил душу бессмертной и свободной, а по подобию - относится к добродетели.
+Ибо Господь говорит: "будьте милосерды, как и Отец ваш милосерд" (Лук. 6:36), и в другом месте: "будьте святы, потому что Я свят" (1Петр. 1:16). Также и Апостол говорит: "прощайте друг друга, как и Бог во Христе простил вас" (Еф. 4:32). Вот что значит по подобию. 
+(Прп. Авва Дорофей)
+
+1:26: **образ .. и подобие**. Очевидно, что образ и подобие, сопряженные вместе, составляют полноту сходства; напротив того, утратою или искажением подобия нарушается все достоинство образа. 
+Человек был отпечатком Божества не только по существу своему, но и по нравственным качествам — по премудрости, по благости, по святой чистоте, по постоянству в добре. Зло или недостаток не могли иметь никакого места в человеке: несмотря на свою ограниченность, он имел полноту сходства с Богом.
+(Свт. Игнатий Брянчанинов)
+
+1:26: **образ .. и подобие**. Говоря, что **сотворил Бог человека по образу Своему**, но умалчивая о подобии, Моисей хочет сказать не что иное, как то, что достоинство *образа* Божиего человек воспринял при сотворении, но совершенство *подобия* Божиего обретет только в конце. Иначе говоря, он сам, собственными усилиями в подражании Богу должен стяжать себе это совершенство. И хотя возможность совершенства была изначально дана ему в достоинстве *образа*, он сам, своими делами должен в конце добиться совершенного *подобия*.
+(Ориген)
+
+1:26: **и да владычествует**. Человек не создан слабым, падающим жертвой страстей, желаний, скорбей. В образе Божием заключён разум, владыка страстей. Сама природа человека несёт в себе Божественное слово: "да владычествует". Как же ты можешь станоситься рабом греха? (Свт. Василий Великий)
+
+1:26: **да владычествует**. У человека была и честь, и власть. Когда же вошёл грех, отнята была эта власть. Почему? Когда змей заговорил с женою, она не ужаснулась и не удалилась, но разговаривала и не страшилась. А когда пал человек, сам стал бояться зверей. (Свт. Иоанн Златоуст)
 
 1:28: To “**subdue**” (Hb. kabash) elsewhere means to bring a people or a land into subjection so that it will yield service to the one subduing it (Num. 32:22, 29). Here the idea is that the man and woman are to make the earth’s resources beneficial for themselves and for human beings in general. This command provides a foundation for wise scientific and technological development. (ESV)
 
