@@ -248,7 +248,27 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 1:27: **сотворил**. Снова единственное число. (Свт. Василий Великий)
 
-1:28: To “**subdue**” (Hb. kabash) elsewhere means to bring a people or a land into subjection so that it will yield service to the one subduing it (Num. 32:22, 29). Here the idea is that the man and woman are to make the earth’s resources beneficial for themselves and for human beings in general. This command provides a foundation for wise scientific and technological development. (ESV)
+1:28: **Blessed**. The second blessing involved reproduction and dominion. Man would fill the earth and oversee its operation, being the representative of God ("dominion") and representation of God ("image", "likeness"). (MacArthur)
+
+1:28: **earth .. subdue**. To “**subdue**” (Hb. kabash) elsewhere means to bring a people or a land into subjection so that it will yield service to the one subduing it (Num. 32:22, 29). Here the idea is that the man and woman are to make the earth’s resources beneficial for themselves and for human beings in general. This command provides a foundation for wise scientific and technological development. (ESV)
+
+1:28: **размножайтесь**. Лишь после преступления, когда смерть вошла в мир, "дам познал Еву, жену свою, и она зачала, и родила" (Быт. 4:1).
+До грехопадения же **размножайтесь** не означает непременно размножения через брачное соединение. Ибо Бог мог размножить род человеческий и другим способом, если бы люди до конца сохранили заповедь ненарушенною.
+\[ Ведь раньше, в райском саду, не существовало людей века сего. \]
+(Прп. Иоанн Дамаскин)
+
+1:28: **размножайтесь**. Хотя и делается замечание, что они вступили в соитие и начали рождать уже после изгнания из рая, я все-таки не вижу основания, которое бы могло удерживать нас от мысли, что еще в раю у них был брак честен и ложе непорочно (Евр 13:4).
+Если бы они жили верно и праведно и послушно и свято служили Богу, от семени их, по изволению Божиему, могло бы рождаться потомство без всякого страстного волнения похоти и без всякой трудности и болезни чадорождения. Причем дети не сменяли бы умирающих родителей.
+Все это могло бы произойти, если бы преступлением заповеди они не заслужили наказания смерти.
+(Блж. Августин)
+
+1:28: **Благословил .. плодитесь и размножайтесь**. Это благословение сохранилось посреди всеобщего проклятия, ибо глубоко насаждено в природе человечес­кой. (Еп. Виссарион (Нечаев))
+
+1:28: **владычествуйте**. …Иногда задают вопрос: разве владычествует человек? многие совершают ту ошибку, что рассматривают человека уже после грехопадения, ибо в этой жизни человек осужден быть смертным и утратил то совершенство. 
+Хотя человек и осуждён, он ещё сохраняет власть, и ни один не способен укротить его; сам же он укрощает многих.
+(Блж. Августин)
+
+1:28: **владычествуйте**. Следствие того высокого положения, которое человек, будучи образом Бога на земле, должен был занять в мире. (Лопухин А.П.)
 
 1:29-30: God gave them **plants** **for food**, not flesh. There was no killing for food before sin entered the world in Gen 3:21, where God makes clothes from animal skins, and until Gen 9:3, where He allows Noah to eat every moving thing. (ESV)
 
