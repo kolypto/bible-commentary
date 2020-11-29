@@ -9,7 +9,7 @@ In this book of beginnings, God revealed Himself and a worldview to Israel which
 Parallel to Revelation:
 One special theme that sets this book apart: it corresponds closely with the final book. In the Book of Revelation, the paradise which was lost in Genesis will be regained. God rids His creation of the curse that started in Gen 3, "and there shall be no more curse" (Rev 22:3). In the final chapter of God’s Word, believers will find themselves back in the Garden of Eden, the eternal paradise of God, eating from the Tree of Life (Rev. 22:1–14). (MacArthur)
 
-Author: Moses [both the OT (Ex. 17:14; Num. 33:2; Josh. 8:31; 1 Kin. 2:3; 2 Kin. 14:6; Ezra 6:18; Neh. 13:1; Dan. 9:11, 13; Mal. 4:4) and the NT (Matt. 8:4; Mark 12:26; Luke 16:29; 24:27, 44; John 5:46; 7:22; Acts 15:1; Rom. 10:19; 1 Cor. 9:9; 2 Cor. 3:15) ascribe this composition to Moses](https://www.esv.org/Exodus+17:14;Numbers+33:2;Joshua+8:31;1+Kings+2:3;2+Kings+14:6;Ezra+6:18;Nehemiah+13:1;Daniel+9:11;Daniel+9:13;Malachi+4:4;Matthew+8:4;Mark+12:26;Luke+16:29;Luke+24:27;Luke+24:44;John+5:46;John+7:22;Acts+15:1;Romans+10:19;1+Corinthians+9:9;2+Corinthians+3:15/)
+Author: Moses both the OT and the NT [ascribe this composition to Moses](https://www.esv.org/Exodus+17:14;Numbers+33:2;Joshua+8:31;1+Kings+2:3;2+Kings+14:6;Ezra+6:18;Nehemiah+13:1;Daniel+9:11;Daniel+9:13;Malachi+4:4;Matthew+8:4;Mark+12:26;Luke+16:29;Luke+24:27;Luke+24:44;John+5:46;John+7:22;Acts+15:1;Romans+10:19;1+Corinthians+9:9;2+Corinthians+3:15/)
 
 
 
@@ -270,9 +270,17 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 1:28: **владычествуйте**. Следствие того высокого положения, которое человек, будучи образом Бога на земле, должен был занять в мире. (Лопухин А.П.)
 
-1:29-30: God gave them **plants** **for food**, not flesh. There was no killing for food before sin entered the world in Gen 3:21, where God makes clothes from animal skins, and until Gen 9:3, where He allows Noah to eat every moving thing. (ESV)
+1:29: **plant .. fruit .. for food**. Prior to the curse of Gen 3, both mankind and beasts were vegetarians. (MacArthur)
 
-1:31: Глядя на животный мир сегодня, трудно поверить, что глядя на это, Бог мог сказать "очень хорошо". Потому многие толкователи считают, что с грехопадением многое изменилось и в животном мире. Человек ранее был поставлен как правитель над животными миром и вершил волю Господа. Теперь же сатана пришёл и нарушил эту цепочку, стал принцем этого мира, действуя через человека, и мир изменился.
+1:29: **plants .. for food**. There was no killing for food before sin entered the world in Gen 3:21, where God makes clothes from animal skins, and until Gen 9:3, where He allows Noah to eat every moving thing. (ESV)
+
+1:29: **в пищу**. первые люди телесно вкушали ту же пищу, какой питались и прочие живые существа, и обретали в ней соответствующее пропитание.  (Блж. Августин)
+
+1:30: **в пищу**. Можно предполагать, что в первобытном состоянии живот­ные не были плотоядными и жили в полном согласии между собою. О сем можно также заключить из пророчества Исаии о временах Мессии, как временах всеобщего мира.  (Ис. 11:6-8: "волк будет жить вместе с агнцем .. и будет играть младенец над норою аспида") (Еп. Виссарион (Нечаев))
+
+1:31: **Очень хорошо**. Глядя на животный мир сегодня, трудно поверить, что глядя на это, Бог мог сказать "очень хорошо". Потому многие толкователи считают, что с грехопадением многое изменилось и в животном мире. Человек ранее был поставлен как правитель над животными миром и вершил волю Господа. Теперь же сатана пришёл и нарушил эту цепочку, стал принцем этого мира, действуя через человека, и мир изменился.
+
+1:31: **хорошо весьма**. В совокупности мир заслуживает ещё большей похвалы, чем по частям. (Блж. Августин)
 
 2:2: Just think of how we measure time. Our year is defined by the Earth's orbit. Our months are dictated by the moon (or rather, were). Our days follow sunrises and sunsets. But where do weeks come from? That have no astronomical meaning, and yet all peoples throughout the Earth follow the same pattern of seven-day weeks. And that's where it comes from: from the pattern that is established by God Himself. (MacArthur)
 
