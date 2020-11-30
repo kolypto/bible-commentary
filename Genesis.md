@@ -282,7 +282,24 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 1:31: **хорошо весьма**. В совокупности мир заслуживает ещё большей похвалы, чем по частям. (Блж. Августин)
 
-2:2: Just think of how we measure time. Our year is defined by the Earth's orbit. Our months are dictated by the moon (or rather, were). Our days follow sunrises and sunsets. But where do weeks come from? That have no astronomical meaning, and yet all peoples throughout the Earth follow the same pattern of seven-day weeks. And that's where it comes from: from the pattern that is established by God Himself. (MacArthur)
+2:2: **On the seventh day**. Just think of how we measure time. Our year is defined by the Earth's orbit. Our months are dictated by the moon (or rather, were). Our days follow sunrises and sunsets. But where do weeks come from? They have no astronomical meaning, and yet all peoples throughout the Earth follow the same pattern of seven-day weeks. And that's where it comes from: from the pattern that is established by God Himself. (MacArthur)
+
+2:2: **God .. rested**. When God works, there is no dissipation of His energy. He cannot be fatigued, and He does not need rejuvenation. The word simply means that He abstained from creative work. (MacArthur)
+
+2:2: **God .. rested**. Not rested due to weariness; rather, established the pattern for man's work cycle, modelling man's need for rest. (MacArthur)
+
+2:3: **благословил Бог седьмой день**.  Бог дал седьмой день, чтобы рабы, даже против воли господ своих, имели отдохновение; и притом, временной субботой, данной народу преходящему, хотел представить образ субботы истинной, какая будет в мире нескончаемом.  (Прп. Ефрем Сирин)
+
+2:3: **благословил**. Что такое благословение дня?
+День "проклинается", когда он полагается началом и виною некоторого зла. 
+Следственно, когда день благословляется, тогда он поставляется причастным особенного некоего блага, достойным радости и сохранения среди самых перемен времени. 
+(Свт. Филарет (Дроздов))
+
+2:3: **освятил**. Отделил его. Вот уже здесь, в самом начале (бытия мира), Бог предлагает нам учение о том, чтобы мы один день в круге седмицы весь посвящали и отделяли на дела духовные. (Свт. Иоанн Златоуст)
+
+2:3: **освятил**.  Освящение вообще знаменует отделение к высшему назначению (Нав. 20:7: "чтобы мог убегать туда убийца .. И отделили Кедес в Галилее"; Чис. 3:13: "в тот день, когда поразил Я всех первенцев в земле Египетской, освятил Я Себе всех первенцев Израилевых от человека до скота; они должны быть Мои. Я Господь"), и приписывается иногда тому, что само по себе свято (Ин. 10:36: "Которого Отец освятил и послал в мир"; Ин. 17:19: "за них Я посвящаю Себя, чтобы и они были освящены истиною"), в особенности же освящение времен есть назначение их для богослужения (4 Цар. 10:20; Неем. 8:9; Иоил. 1:14, 2:15-16). (Свт. Филарет (Дроздов))
+
+2:3: **седьмой день**. строго говоря, суббота характер определенной заповеди получила лишь в законодательстве Моисея. (Лопухин А.П.)
 
 2:4: “**these are the generations**” is used multiple times in the book of Genesis to signify a new heading. The headings of Genesis are: The heavens and the earth; Adam; Noah; the sons of Noah; Shem; Terah; Ishmael; Isaac; Esau; Jacob.
 
