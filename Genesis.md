@@ -303,11 +303,11 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:4: “**these are the generations**” is used multiple times in the book of Genesis to signify a new heading. The headings of Genesis are: The heavens and the earth; Adam; Noah; the sons of Noah; Shem; Terah; Ishmael; Isaac; Esau; Jacob.
 
-2:4: Here starts the complementary account that zooms in on the sixth day of creation: a literary flashback that supplies more detail. (ESV)
+2:4: **These are the generations**. Here starts the complementary account that zooms in on the sixth day of creation: a literary flashback that supplies more detail. (ESV)
 
-2:4: Until now, the Creator was called by a generic word “God” (*Elohim*). In 2:4, the reader is now introduced to God’s personal name, “Yahweh” that  underlines the personal and relational nature of God. (ESV)
+2:4: **The Lord**. Until now, the Creator was called by a generic word “God” (*Elohim*). In 2:4, the reader is now introduced to God’s personal name, “Yahweh” that  underlines the personal and relational nature of God. (ESV)
 
-2:4: “Yahweh” is translated as “**LORD**” because of the ancient Jewish tradition of substituting in Hb. the term that means “Lord” [*’Adonay*] for “Yahweh” when reading the biblical text. The Septuagint customarily used “Lord” (Gk. *Kyrios*), and in this form it was quoted many times by the NT authors who also used “Lord” rather than “Yahweh”. This established the precedent for our modern translations. (ESV)
+2:4: **The Lord**. “Yahweh” is translated as “**LORD**” because of the ancient Jewish tradition of saying *Adonay* (Lord) instead of reading *Yahweh* from the biblical text. The Septuagint customarily used “Lord” (Gk. *Kyrios*), and in this form it was quoted many times by the NT authors who also used “Lord” rather than “Yahweh”. This established the precedent for our modern translations. (ESV)
 
 2:7: “**formed**” (Hb. yatsar) conveys the picture of a potter’s fashioning clay into a particular shape. The close relationship between the man and the ground is reflected in the Hebrew words used to denote them, *’adam* and *’adamah*, respectively. (ESV)
 
