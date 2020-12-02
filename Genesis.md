@@ -309,11 +309,27 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:4: **The Lord**. “Yahweh” is translated as “**LORD**” because of the ancient Jewish tradition of saying *Adonay* (Lord) instead of reading *Yahweh* from the biblical text. The Septuagint customarily used “Lord” (Gk. *Kyrios*), and in this form it was quoted many times by the NT authors who also used “Lord” rather than “Yahweh”. This established the precedent for our modern translations. (ESV)
 
+2:5: **не было человека для возделывания земли**. Земля не нуждалась и в возделывании со стороны человека. (Свт. Иоанн Златоуст)
+
+2:6: **mist**. Properly translated "flow". Water came up from beneath the ground as springs. (MacArthur)
+
 2:7: “**formed**” (Hb. yatsar) conveys the picture of a potter’s fashioning clay into a particular shape. The close relationship between the man and the ground is reflected in the Hebrew words used to denote them, *’adam* and *’adamah*, respectively. (ESV)
+
+2:7: **вылепил**. Сколько исследований посвящено этому вопросу! Труды медиков по физиологии, составленные учителями гимнастики руководства, где говорится о соотношении частей тела, об их симметричности и о распределении мышц, — все это свидетельствует о лепке человека. Где я найду такие слова, которыми с точностью мог бы передать, как много содержится в одном только выражении: «Он вылепил»?  (Свт. Василий Великий)
+
+2:7: **вылепил**. Образ сотворения человека показывает в нем превосходнейшее и ближайшее к Богу творение. Он производится не единократным действием, но постепенным образованием. Творец мира все совершает единым словом; Творец человека представляется сперва глаголющим в Себе самом, потом действующим и, наконец, вводящим в человека Свое дыхание.  (Свт. Филарет (Дроздов))
+
+2:7: **вылепил**. души животных, обитающих в водах и на суше, произведены все­могуществом Божиим из тех же вещественных стихий, из которых создан их телесный состав. Напротив, человек только по телу созидается из земли, хотя и в сем отношении он превознесен над прочими животными способом сотворения; душа же его получила бытие непосредственно от Бога, в образовании ее не участво­вала ни одна из стихий природы. (Еп. Виссарион (Нечаев))
+
+2:7: **прах**. Если бы Бог просто повелел человеку явиться из земли, ужели бы, скажи мне, не исполнилось это повеление? Но, чтобы в самом образе сотворения преподать нам всегдашний урок – не мечтать о себе свыше меры, для этого (Моисей) повествует обо всем с такою тщательностию, и говорит: "прах от земли". (Свт. Иоанн Златоуст)
+
+2:7: **дыхание**. Слово дыхание указывает на то, что душа наша каждое мгновение нуждается в Духе Божием для истинной своей жизни, как телесные органы – легкие – нуждаются для дыхания в воздухе. (Прав. Иоанн Кронштадтский)
 
 2:7: **the breath of life** — physical, mental, and spiritual — placed into the man made in God’s image. (ESV)
 
-2:7: Man is called **a living creature** — the same word applied to animals in 1:20,24. While human beings have much in common with other living beings, God gives humans alone a royal and priestly status and makes them alone “in his own image”, giving him alone **the breath of life**. (ESV)
+2:7: **A living creature**. Man is called **a living creature** — the same word applied to animals in 1:20,24. While human beings have much in common with other living beings, God gives humans alone a royal and priestly status and makes them alone “in his own image”, giving him alone **the breath of life**. (ESV)
+
+2:7: **и стал человек душею живою**. Соединение высшего божественного начала (дыхания Божья) с низшим материальным (прахом от земли) дало в результате человека как живую душу, т. е. как сознательную личность, одаренную разумом и свободной волей. (Лопухин А.П.)
 
 2:8: The name “**Eden**,” would have conveyed the sense of “luxury, pleasure”. Septuagint used the word *paradeisos* (from which comes the English term “paradise”) on the understanding that it resembled a royal park. (ESV)
 
