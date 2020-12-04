@@ -361,9 +361,13 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:9: **древо познания добра и зла**. От особенного назначения, поелику древо познания, быв избрано орудием испытания, представляло человеку, с одной стороны, непрестанно возрастающее познание и наслаждение добра в послушании Богу, с другой — познание и ощущение зла в преслушании.  (Свт. Филарет (Дроздов))
 
-2:10-14: While the **Pishon** and the **Gihon** are unknown, the nearly universal identification of Tigris Euphrates suggests a possible location for Eden at either their northern or southern extremes. (ESV)
+2:10: **A river flowed out of Eden**. Eden itself is not the paradise; it was the land in which the garden was planted (v. 8: "planted a garden in Eden").
 
-2:12: **Gold** and **onyx** are later associated with the making of the tabernacle and temple. (ESV)
+2:10-14: **Pishon .. Gihon**. While the **Pishon** and the **Gihon** are unknown, the nearly universal identification of Tigris and Euphrates suggests a possible location for Eden at either their northern or southern extremes. (ESV)
+
+2:10: **Из Эдема выходила река**. Географические признаки рая исключают любые попытки толковать рай как аллегорию и удостоверяет факт его полной реальности. Рай действительно некогда существовал на земле. (Лопухин А.П.)
+
+2:12: **Gold and Onyx**. These materials are later associated with the making of the tabernacle and temple. (ESV)
 
 2:17: The fruit of this **tree** has been variously understood as giving (1) sexual awareness, (2) moral discrimination, (3) moral responsibility, and (4) moral experience. The last is the most likely: by their obedience or disobedience the human couple will come to know **good and evil** by experience. (ESV)
 
