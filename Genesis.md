@@ -369,11 +369,49 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:12: **Gold and Onyx**. These materials are later associated with the making of the tabernacle and temple. (ESV)
 
-2:17: The fruit of this **tree** has been variously understood as giving (1) sexual awareness, (2) moral discrimination, (3) moral responsibility, and (4) moral experience. The last is the most likely: by their obedience or disobedience the human couple will come to know **good and evil** by experience. (ESV)
+2:15: **work**. Work has always been an essential part of human existence.
+
+2:15: **work**. This was an easy and pleasant assignment because it was a sweatless, weedless, curse-free environment. Such an occupation can hardly be called "work". (MacArthur)
+
+2:15: **возделывать его и хранить его**. Что же, скажут, рай нуждался в возделывании со стороны человека? Не говорю этого, но Бог хотел, чтобы человек имел, хотя малое и умеренное, попечение о хранении и возделывании его, чтобы человек от чрезмерного покоя не развратился. (Свт. Иоанн Златоуст)
+
+2:15: **возделывать его и хранить его**. никак не должно понимать этих слов в плотском смысле, как бы о возделывании и хранении сада для его украшения и очищения от недостатков. Рай насажден рукою Божиею; недостатков нет в нем. (Свт. Игнатий Брянчанинов)
+
+2:16: **заповедал: .. не ешь**. Больше никаких заповедей не было: не было никакой речи о вражде, ссорам, зависти, гневе, ненависти, непотребстве, пьянстве, и так далее. Человек по своей природе был неспособен к этому.
+Потому Бог разрешил всё. "Делай всё что хочешь". Единственная же, и очень нетрудная, заповедь была: "не ешь с этого дерева".
+И стоило эту, на первый взгляд, безобидную, заповедь нарушить, как природа человека сразу изменилась. Появился стыд, обман, и убийство.
+А произошло это по той причине, что в Богу ключ к нашей чистоте, и идя против Бога, мы лишаемся этой чистоты.
+
+2:16: **заповедал**. Но скажут: зачем Бог дал заповедь, которая могла подать повод к возбуждению в Адаме, чрез помысл, неправильных желаний?
+Заповедь, данная Адаму, имела целию вывести его из опас­ного неведения зла и предостеречь его от зла. В этом польза заповеди, а не вред. Если б Адам последовал предостере­жению, то естественное расположение его к добру возвы­силось бы на степень сознательного предпочтения добра злу, и обратилось бы в непобедимый навык к сообразованию во всем своей воли с волею Божиею. 
+(Еп. Виссарион (Нечаев))
+
+2:16: **не ешь**. воздержание Бог назначил служить символом повиновения и покорности Ему со стороны человека, в силу чего соблюдение этой заповеди выражало со стороны человека чувство любви, благодарности и преданности Богу; тогда как нарушение ее, совершенно наоборот, свидетельствовало о недоверии к Богу, пренебрежении к Его словам и черной неблагодарности к Творцу, вместе с желанием жить по своей воле, а не по заповедям Бога. Вот почему такое, по-видимому, ничтожное преступление получало такое огромное моральное значение! (Лопухин А.П.)
+
+2:17: **the tree of knowledge of good and evil**. The fruit of this **tree** has been variously understood as giving (1) sexual awareness, (2) moral discrimination, (3) moral responsibility, and (4) moral experience. The last is the most likely: through their obedience or disobedience the human couple will come to know **good and evil** by experience. (ESV)
+
+2:17: **the tree of knowledge of good and evil**. There is no reason given for the prohibition of eating from this tree, other than it was a test. There was nothing magical about that tree, but since evil can be defined as disobeying God -- eating from it would indeed give man the knowledge of evil. (MacArthur)
 
 2:17: “**In the day**” implies fixed certainty rather than absolute immediacy. (ESV)
 
-2:17: What kind of “**death**” does this threaten: physical, spiritual, or some combination? The Hebrew word can be used for any of these ideas, and the only way to find out is by reading to see what happens as the story unfolds. (ESV)
+2:17: **you shall surely die**. What kind of “**death**” does this threaten: physical, spiritual, or some combination? The Hebrew word can be used for any of these ideas, and the only way to find out is by reading to see what happens as the story unfolds. (ESV)
+
+2:17: **you shall surely die**. Die; how? Could this mean, "cease to exist"? That's unlikely; some other death must be in view.
+
+2:17: **you shall surely die**. To **die** has the basic idea of separation. It can mean spiritual separation, physical separation, and/or eternal separation. At the moment of their sin, Adam and Eve died spiritually, but because God was merciful, they did not die physically until later. 
+
+2:17: **смертью умрёшь**. Почему Бог не удалил совсем из рая столь опасное древо, или почему непоколебимо утвердил человека против искушения?
+Человек сотворен по образу Божию. Необходимая и высокая черта образа Божия есть свобода. Человек, сотворенный свободным, необходимо должен был пройти путь испытания. 
+Запрещение сопровождается угрозою, дабы, если любовь и благодарность поколеблются в испытании, то хотя страх был человеку во спасение. Обыкновенно Бог действует страхом, где не успевает любовью.
+(Свт. Филарет (Дроздов))
+
+2:17: **смертью умрёшь**. Бог угрожает человеку смертью не как отмщением, но как естественным следствием преслушания и отпадения. (Свт. Филарет (Дроздов))
+
+2:17: **в какой день съешь, смертью умрёшь**. И так произошло. Ибо душа *умерла от Бога*, отделившись от вечной жизни, то есть более не наслаждающаяся светом Царства. (Прп. Макарий Великий)
+
+2:17: **смертью умрёшь**. Не мгновенное поражение, а начавшийся процесс умирания: Бог послал смерть (точнее, лишил бессмертия)  тот самый момент, когда человек пал; но эта смерть лишь постепенно подтачивала его силы, ощутительно выражаясь в скорбях духа и болезнях тела. 
+Лучше перевёл Симмах. У него говорится: «Ты будешь смертным».
+(Лопухин А.П.)
 
 2:18: **not good** is a jarring contrast to 1:31, where everything *was good*. Clearly, the situation here has not yet arrived to *very good*. It means that the woman was made on the same day with the man, before the creation became *very good*. (ESV)
 
@@ -423,6 +461,8 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 3:4: The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like Gof, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
 
 3:5: We must not comment too severely upon her conduct. It was no mean desire which led her astray: she longed for more knowledge and greater perfection; she wished even to rise above the level of her nature; but the means she used were in violation of God's command, and so she fell. And, as usual, the tempter kept the promise to the ear. Eve knew good and evil, but only by feeling evil within herself. It was by moral degradation, and not by intellectual insight, that her ambitious wish was fulfilled. (Ellicott)
+
+3:5: **Будете как Бог**. Но сделались ли они богами? (Свт. Иоанн Златоуст)
 
 3:6: After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one.
 
@@ -549,6 +589,10 @@ This tells me that Adam trusted God. God had only said one thing to him, just on
 4:13: Cain is immediately conscious of the severity of his **punishment**: he is to be alienated from both the ground and God. While this may seem like a very lenient sentence, it meant that Cain would become a fugitive and a wanderer on the earth. (ESV)
 
 4:15: **The mark**. In spite of much scholarly speculation, the precise nature of **the mark** is uncertain. It must have been something visible, but that is all that can be said. (ESV)
+
+4:16: **ушёл Каин**. Адам и Ева, не видевшие доселе смерти, лишились обоих сыновей, первенцев: один умер, другой в изгнании. 
+У них тяжёлая судьба; но нигде в Библии не сказано, что они роптали на Бога.
+(Церковь, Сочи)
 
 4:17: No explanation is given as to the origin of **Cain’s wife**. As is often the case in Genesis, the limited and selective nature of the account leaves the reader with unanswered questions. Presumably, Cain married his sister—a reasonable assumption, since the whole human race descended from Adam and Eve (Gen 3:20: “Eve … the mother *of all living*”), and Adam with Eve had “other sons *and daughters*” (Gen 5:4). (ESV)
 
