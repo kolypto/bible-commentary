@@ -413,11 +413,34 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 Лучше перевёл Симмах. У него говорится: «Ты будешь смертным».
 (Лопухин А.П.)
 
-2:18: **not good** is a jarring contrast to 1:31, where everything *was good*. Clearly, the situation here has not yet arrived to *very good*. It means that the woman was made on the same day with the man, before the creation became *very good*. (ESV)
+2:18: **Not good** is a jarring contrast to 1:31, where everything *was good*. Clearly, the situation here has not yet arrived to *very good*. It means that the woman was made on the same day with the man, before the creation became *very good*. (ESV)
 
-2:18: a **helper** is one who supplies strength in the area that is lacking in “the helped”. A wife is **fit for him**, which means she is not exactly like him, but complements him. (ESV)
+2:18: **не хорошо быть человеку одному**. Это не то значит, что для совер­шенства природы Адамовой не доставало жены, – жена, без сомнения, ничего не могла прибавить к тому совершен­ству, с каким он сотворен, и есть даже обстоятельства, в которых «хорошо человеку не прикасатися к жене» (1 Кор. 7:1; Мф. 18:12). Господь признал неудобною жизнь Адама в одиночестве, по предведению, что сам Адам при обозрении животных, как увидим после, почувствует это неудобство и потребность в сожитии с существом, подобным ему. (Еп. Виссарион (Нечаев))
 
-2:21: Men have XY chromosomes; women have XX.
+2:18: **Helper**. A **helper** is one who supplies strength in the area that is lacking in “the helped”. A wife is **fit for him**, which means she is not exactly like him, but complements him. (ESV)
+
+2:19: **out of the ground .. beast**. This was not a new creation of animals. Here, the Lord is calling attention to the origin of those animals: "out of the ground", as He did man. (MacArthur)
+
+2:20: **gave names to**. Act of leadership or authority. (MacArthur)
+
+2:20: **gave names to**. It's the Creator's privilege to name what He creates. Man was made in God's image, so it was appropriate that God would delegate to man something of His own sovereign prerogative. (MacArthur)
+
+2:20: **нарёк человек имена**. И у людей есть обычай полагать знак своей власти в том, что они, купив себе рабов, переменяют им имена. 
+Что сделал вавилонский царь? Он, взявши в плен Ананию, Азарию и Мисаила, не оставил их при прежних именах, но на­звал – Седрахом, Мисахом и Авденаго (Дан. 1:6-7). И ещё: "воцарил царь Вавилонский Матфанию, дядю Иехонии, вместо него, и переменил имя его на Седекию" (4 Цар. 24:17).
+(Свт. Иоанн Златоуст)
+
+2:20: **нарек человек имена всем скотам**.  Господь провидел, что имена, какие Адам даст животным, будут точно выражать их свойства, и потому предопределил ут­вердить сии имена для постоянного употребления в перво­начальном языке и для напоминания потомкам Адама о великой его мудрости.
+Наречение имен предполагает в Адаме уже готовый дар слов. Адам получил язык вместе с бытием, как необходимую принадлежность разумной природы.
+(Еп. Виссарион (Нечаев))
+
+2:20: **не нашлось помощника**. В этих словах звучит как бы тихая грусть первого человека, возбужденная сознанием своего полного одиночества на земле. (Лопухин А.П.)
+
+2:20: **не нашлось помощника**. Обозревая животных и нарекая им имена, Адам не встретил между ними ни одного, с которым бы мог разде­лить владычество над земными тварями, предстоявшие ему труды телесные, также мысли и чувства. Все это были неразумные и бессловесные существа, ни одного между ними не было похожего на человека. (Еп. Виссарион (Нечаев))
+
+2:20: **не нашлось помощника, подобного ему**. Неужели Бог не знал, что в породах животных Он не сотворил ничего такого, что могло бы быть помощницей, подобной человеку?
+Не стоит сомневаться, что так происходило дело ради пророческого знаменования. (Августин Иппонийский блаженный)
+
+2:21: **took one of his ribs**. Men have XY chromosomes; women have XX. That is, you can "extract" a female's DNA out of the man's.
 
 2:23: “**flesh of my flesh**” highlights the sense of oneness and makes the point that marriage creates the closest of all human relationships. (ESV)
 
