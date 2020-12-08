@@ -442,6 +442,14 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:21: **took one of his ribs**. Men have XY chromosomes; women have XX. That is, you can "extract" a female's DNA out of the man's.
 
+2:21: **one of his ribs**. "Ribs" is better translated "sides", including surrounding flesh. (MacArthur)
+
+2:21: **took one of his ribs**. Eve's genetic structure was derived from and therefore perfectly harmonious with Adam's. (MacArthur)
+
+2:21: **взял одно из ребр его**. Желая, чтобы человеческая природа была единой, Бог создал человека из единого начала, устранив возможность существования многих и несхожих природ. (Свт. Амвросий Медиоланский)
+
+2:22: **создал Господь Бог из ребра .. жену**. самый характер данного библейского повествования, отмечающий с такою тщательностью все его детали, исключает здесь возможность аллегории. Что же касается ссылки на якобы очевидную невероятность и неестественность данного процесса, то там, где идет дело не об обычном явлении, а чудесном, сверхъестественном событии, она, по меньшей мере, неуместна.  (Лопухин А.П.)
+
 2:23: “**flesh of my flesh**” highlights the sense of oneness and makes the point that marriage creates the closest of all human relationships. (ESV)
 
 2:24: The kinship between husband and **wife** creates obligations that override even duty to one’s **parents**. In ancient Israel, sons did not move away when they married, but lived near their parents and inherited their father’s land. They “left” their parents in the sense of putting their wife’s welfare before that of their parents. (ESV)
