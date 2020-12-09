@@ -331,9 +331,11 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:7: **и стал человек душею живою**. Соединение высшего божественного начала (дыхания Божья) с низшим материальным (прахом от земли) дало в результате человека как живую душу, т. е. как сознательную личность, одаренную разумом и свободной волей. (Лопухин А.П.)
 
-2:8: The name “**Eden**,” would have conveyed the sense of “luxury, pleasure”. Septuagint used the word *paradeisos* (from which comes the English term “paradise”) on the understanding that it resembled a royal park. (ESV)
+2:8: **Eden**. The name “**Eden**,” would have conveyed the sense of “luxury, pleasure”. Septuagint used the word *paradeisos* (from which comes the English term “paradise”) on the understanding that it resembled a royal park. (ESV)
 
-2:8: Notice that **Eden** is not the name of the garden, but the name of the area the garden was located in. Moreover, in v. 10 it’s explicitly said that Eden and the garden were two different places: “flowed out of **Eden** to water the garden”. (ESV)
+2:8: **Eden**. Notice that **Eden** is not the name of the garden, but the name of the area the garden was located in. Moreover, in v. 10 it’s explicitly said that Eden and the garden were two different places: “flowed out of **Eden** to water the garden”. (ESV)
+
+2:8: **Эдем**. Эдем значит – земля; Адам – земной, перстный, из земли рожденный. (Свт. Иоанн Златоуст)
 
 2:8: **восток**. Во время молитв мы все смотрим на восток, но не многие знают, что при сем ищем древнего отечества, рая, который насадил Господь Бог в Едеме на востоке. (Свт. Василий Великий)
 
@@ -452,13 +454,38 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:23: “**flesh of my flesh**” highlights the sense of oneness and makes the point that marriage creates the closest of all human relationships. (ESV)
 
-2:24: The kinship between husband and **wife** creates obligations that override even duty to one’s **parents**. In ancient Israel, sons did not move away when they married, but lived near their parents and inherited their father’s land. They “left” their parents in the sense of putting their wife’s welfare before that of their parents. (ESV)
+2:23: **bone of my bones**. Adam's poem focuses on naming the delight of his heart in this newly found companion. (MacArthur)
 
-2:25: The verse offers a picture of innocent delight. (ESV)
+2:23: **Then the man said**. Adam composed a poem when he met his woman.
 
-2:25: A play on the similar sounds of the words “**naked**” (Hb. *‘arummim*) and “crafty” (3:1, Hb. *‘arum*) links the end of this episode with the start of the next. (ESV)
+2:23: **shall be called Woman**. The English words man/woman sustain the same relationship as the Hebrew words, hinting at the original creation. (MacArthur)
 
+2:23: **будет называться женою**. Наш язык не показывает силы сего имени: она видна в словах еврейских: איש ,אשה, иш, иша. (Свт. Филарет (Дроздов))
 
+2:24: **a man shall leave his father and his mother**. The kinship between husband and **wife** creates obligations that override even duty to one’s **parents**. 
+In ancient Israel, sons did not move away when they married, but lived near their parents and inherited their father’s land. They “left” their parents in the sense of putting their wife’s welfare before that of their parents. 
+(ESV)
+
+2:24: **leave**. The responsibility to honor one's parents (Ex 20:12) does not cease with leaving and the union of husband and wife, but does represent the inauguration of a new and primary responsibility. (MacArthur)
+
+2:24: **оставит человек**. Отлучение от отца и матери приписывается мужу потому, что муж, а не жена, основывает дом и семейство, отдельное от родительского. (Свт. Филарет (Дроздов))
+
+2:24: **оставит**. Отца с матерью без греха может, иногда должен, оставлять сын, когда вступит в брак, – как глава отдельного семейства; но бросить жену или променять ее на другую, по произволу, муж не может без греха. (Еп. Виссарион (Нечаев))
+
+2:24: **joined to his wife**. Carries the sense of a permanent or indissoluble union. **One flesh** speaks of a complete unity of parts making a whole. This also implies their sexual completeness. (MacArthur)
+
+2:25: **were not ashamed**. The verse offers a picture of innocent delight. (ESV)
+
+2:25: **were not ashamed**. Shame is produced by the consciousness of the evil in something. They had no shame because they had no knowledge of evil. There was a beauty in the shameless wonder of that original marriage. (MacArthur)
+
+2:25: **naked**. A play on the similar sounds of the words “**naked**” (Hb. *‘arummim*) and “crafty” (3:1, Hb. *‘arum*) links the end of this episode with the start of the next. (ESV)
+
+2:25: **были наги .. и не стыдились**. Состояние невинности описывается наготой с естественной и с нравственной стороны.
+Применительно к телу, оно по бессмертной крепости своей не требовало никакой защиты от действия внешних сил, а по красоте — никаких посторонних украшений.
+Нагота, приемлемая в нравственном отношении и чуждая стыда, есть знамение внутренней и внешней чистоты. 
+(Свт. Филарет (Дроздов))
+
+2:25: **не стыдились**. Не стыдились же они потому, что облечены были славой. Но когда после преступления заповеди эта слава была отнята от них, они устыдились того, что стали наги, и с поспешностью устремились оба прикрыть листьями не тела свои, но срамоту свою. (Прп. Ефрем Сирин)
 
 
 
@@ -478,6 +505,17 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 
 ### The Fall
+
+3: (Грехопадение. Катастрофа Адама и Евы.)
+Они жили в Эдемском саду, где не нуждались ни в крове, ни в доме, не терпели никаких нужд, не болели, не старели, наверняка даже не испытывали боль.
+Когда была создана Ева, Адам заговорил стихами, говоря о той, кем залюбоваля: "плоть от плоти моей". Только подумайте, Адам когда её встретил, сочинил поэму!
+Бог общался с ними; просто приходил к ним в прохладе дня! Бог, Который есть любовь, находился с ними в общении!!
+Они жили в мире совершенства, где всё было хорошо. Идеально.
+А потом.
+Изгнание из рая. Необходимость трудиться в поте лица. Утрата бессмертия.  Просто боль. Болезни.  Холод и голод. Боль деторождения. Потом потеря обоих детей: одного убили, другой был изгнан.
+И прожил он 900 лет в таком мире. Человек, который ещё помнил, каково это было жить в раю, общаться с Богом, и ни в чём не нуждаться... прожил 900 лет, с памятью, но невозможностью вернуться.
+Какого это помнить рай -- не как мечту, но как реальность, -- но быть в изгнании? Каково это помнить общение с Богом -- реальное, лицом к лицу, -- и теперь постоянно жить в отделении? Каково это, утратить совершенство, но ещё помнить его?
+Это ли не катастрофа?
 
 3:4: In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
 
