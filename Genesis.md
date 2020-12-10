@@ -394,6 +394,11 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:17: **the tree of knowledge of good and evil**. There is no reason given for the prohibition of eating from this tree, other than it was a test. There was nothing magical about that tree, but since evil can be defined as disobeying God -- eating from it would indeed give man the knowledge of evil. (MacArthur)
 
+2:17: **древо познания добра и зла**. Будет ли такое же дерево расти в Новом Иерусалиме, когда мир будет восстановлен?
+Возможно, что нет: потому что каждый человек уже познал добро и зло. С ними мы сталкиваемся каждый день. А так как мы уже познавшие зло, то в новом древе познания не будет никакого смысла. Уже нечего будет познавать.
+Так зачем же это древо было посажено в первоначальном саду? 
+Адам и Ева жили в совершенном мире блаженного незнания никакого зла. Они были чисты, невинны, и можно сказать, что Бог оградил их от зла. Но дабы не ограничивать свободу человека, Бог также оставил для них возможность познания зла. (?)
+
 2:17: “**In the day**” implies fixed certainty rather than absolute immediacy. (ESV)
 
 2:17: **you shall surely die**. What kind of “**death**” does this threaten: physical, spiritual, or some combination? The Hebrew word can be used for any of these ideas, and the only way to find out is by reading to see what happens as the story unfolds. (ESV)
@@ -506,20 +511,46 @@ In ancient Israel, sons did not move away when they married, but lived near thei
 
 ### The Fall
 
-3: (Грехопадение. Катастрофа Адама и Евы.)
-Они жили в Эдемском саду, где не нуждались ни в крове, ни в доме, не терпели никаких нужд, не болели, не старели, наверняка даже не испытывали боль.
-Когда была создана Ева, Адам заговорил стихами, говоря о той, кем залюбоваля: "плоть от плоти моей". Только подумайте, Адам когда её встретил, сочинил поэму!
-Бог общался с ними; просто приходил к ним в прохладе дня! Бог, Который есть любовь, находился с ними в общении!!
-Они жили в мире совершенства, где всё было хорошо. Идеально.
-А потом.
-Изгнание из рая. Необходимость трудиться в поте лица. Утрата бессмертия.  Просто боль. Болезни.  Холод и голод. Боль деторождения. Потом потеря обоих детей: одного убили, другой был изгнан.
-И прожил он 900 лет в таком мире. Человек, который ещё помнил, каково это было жить в раю, общаться с Богом, и ни в чём не нуждаться... прожил 900 лет, с памятью, но невозможностью вернуться.
-Какого это помнить рай -- не как мечту, но как реальность, -- но быть в изгнании? Каково это помнить общение с Богом -- реальное, лицом к лицу, -- и теперь постоянно жить в отделении? Каково это, утратить совершенство, но ещё помнить его?
-Это ли не катастрофа?
+3:1: **The serpent**. Satan, being a fallen archangel and, thus, a supernatural spirit, had possessed the body of a snake in its pre-Fall form (cf. v. 14 for post-Fall form). (MacArthur)
 
-3:4: In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
+3:1: **The serpent**. The serpent is identified as satan (Rev 12:9: "that ancient serpent, who is called the devil and satan"; Rev 20:2: "serpent .. satan"). This episode happens after satan's fall (Ezek 28:11-19: "you were .. perfection. You were in Eden .. . You were blameless .. will unrighteousness was found in you. So I cast .. you from the mountain of God and I destroyed you, O guardian cherub"; Isa 14:13-14: "you said .. I will make myself like the Most High"), where he was thrown down to earth.
 
-3:4: The **serpent** not only directly contradicts what God has said but goes on to present the fruit of the tree as something worth obtaining (ESV)
+3:1: **more cunning**. Deceitful. (MacArthur)
+
+3:1: **хитрее**. Это сегодня мы боимся змея и избегаем, а изначально было совсем не так. Не было вражды, положенной в проклятии. 
+Змей был радушным и наиболее близким к человеку из пресмыкающихся. Но некто превратил его во врага. 
+(Севериан Габальский)
+
+3:1: **змей хитрее всех зверей**. Смотри, какая зависть и многосплетенная хитрость. Видя, что созданный человек находится в высочайшей чести и почти ничем не меньше ангелов, снедаемый завистию, виновник зла демон, который сам пребывал между вышними силами, но по развращению воли и безмерности злости ниспал с той высоты, употребил великую хитрость, чтобы лишить человека благоволения Божия и, сделав его неблагодарным, лишить его всех благ. 
+Нашедши этого зверя, т. е. змия, который превосходил смыслом других зверей, им воспользовавшись, как орудием, диавол чрез него вступает в беседу с женою, и увлекает в свой обман этот простейший и немощнейший сосуд.
+(Свт. Иоанн Златоуст)
+
+3:1: **хитрее всех зверей**.  Когда змию приписывается хитрость преимущественно пред всеми животными, сим показывается естественное совершенство сего животного, которое и Христос представляет образцом мудрости (Мф. 10:16: "будьте мудрыми как змии"). Диавол избирает таковое орудие для удобнейшего в нем действования и сокрытия обмана. Бог попускает сие для того, чтобы человек в самом орудии искушения видел образ осторожности. (Свт. Филарет (Дроздов))
+
+3:1: **сказал**. Бог, владыка мира горнего и дольнего, попускает диаволу искушать людей не для того, чтобы ввести их в грех, а для того, чтоб укрепить их в добре. (Еп. Виссарион (Нечаев))
+
+3:1: **He said**. Eve received him without fear or surprise, but as some credible messenger from heaven. (MacArthur)
+
+3:1: **He said**. This is no surprise that Even received satan without suspicion. Suspicion did not even exist, because everything in the creation was good. If she seen angels before, they were all benevolent.
+Therefore, the following conversation takes place with someone Eve is not cautions about.
+Even the fact that a serpent approaches her and speaks cannot be creepy in a world where fear did not exist. She must've been curious and thought the speaking serpent is God's creation.
+This means that satan's words seemed credible and reliable, like everything else in the world. And yet this was the first time that a human questioned God's actions in her heart. A conflict arose between what God did, and what this person thinks He should have done.
+
+3:1: **сказал**. Змий является *говорящим*. Напрасно сие относят к естеству находившихся в раю животных. Сие было искусство диавола, хотевшего привлечь к себе Еву любопытством и удивлением.  (Свт. Филарет (Дроздов))
+
+3:1: **сказал жене**. Не имело ли это животное и дара слова? Нет: слова принадлежали диаволу, который возбужден был к этому обману своей завистию, а этим животным воспользовался, как удобным орудием к тому, чтобы, прикрыв обман свой приманкою, обольстить сначала жену, как всегда более способную к обольщению. (Свт. Иоанн Златоуст)
+
+3:1: **сказал жене**. Ибо видел дьявол, что сам он, обладающий высшей природой, пал в профанное и лишенное святости состояние, тогда как человек, существо низшей природы, уповает на вечное. (Свт. Амвросий Медиоланский)
+
+3:1: **Did God actually say**. He insinuated doubt as to her understanding of God's will to lead her to the supposed interpretation. "He restricted you from the delights of this place? This is not like someone who is truly good and kind. There must be some mistake.". (MacArthur)
+
+3:1: **Подлинно ли Бог сказал**. Не написано, что Бог говорил к женщине, но что Он говорил к Адаму; и потому следует полагать, что женщина узнала о заповеди от мужа. Так, когда змей спрашивает, "подлинно ли Бог сказал", клевета упадает не на Бога, но на Адама. Змей вводит ее в сомнение о том, точно ли Божие Слово слышала она от мужа и не по суеверию ли воздерживается от древа познания. (Свт. Филарет (Дроздов))
+
+3:1: **не ешьте ни от какого дерева**. Соблазнитель намеренно преувеличивает тяжесть заповеди, чтобы тем самым сбить жену с толку и поселить в ней нерасположение как к самой заповеди, так и к ее Основоположнику. Жена, вероятно, не сама лично слышала заповедь от Бога, а получила ее уже от мужа и потому знала ее менее устойчиво и твердо. (Лопухин А.П.)
+
+3:4: **The serpent said**. In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
+
+3:4: **you will not surely die**. The **serpent** not only directly contradicts what God has said but goes on to present the fruit of the tree as something worth obtaining (ESV)
 
 3:4: The irony should not be overlooked: the couple has been made in the image of God (Gen 1:26–27) and are in this way already like God. Moreover, they are expected to exercise authority over all the beasts of the field, which includes the serpent. This is not merely an act of disobedience; it is an act of treachery. Those who were meant to govern the earth on God’s behalf instead rebel against their divine King and obey one of his creatures. (ESV)
 
@@ -615,6 +646,17 @@ This tells me that Adam trusted God. God had only said one thing to him, just on
 3:23: The expelling of man from the garden was an act of love and mercy. For the man to live forever would have sealed his sinful condition, and God has prevented that by expelling man out of that garden.
 
 3:24: After Adam and Eve sinned, God banished them from the Garden of Eden If they had eaten from the tree of Life, they would have been forever in their sin. It was an act of mercy that God banished them from the garden. (Brad, Дом Отца)
+
+3: (Грехопадение. Катастрофа Адама и Евы.)
+Они жили в Эдемском саду, где не нуждались ни в крове, ни в доме, не терпели никаких нужд, не болели, не старели, наверняка даже не испытывали боль.
+Когда была создана Ева, Адам заговорил стихами, говоря о той, кем залюбоваля: "плоть от плоти моей". Только подумайте, Адам когда её встретил, сочинил поэму!
+Бог общался с ними; просто приходил к ним в прохладе дня! Бог, Который есть любовь, находился с ними в общении!!
+Они жили в мире совершенства, где всё было хорошо. Идеально.
+А потом.
+Изгнание из рая. Необходимость трудиться в поте лица. Утрата бессмертия.  Просто боль. Болезни.  Холод и голод. Боль деторождения. Потом потеря обоих детей: одного убили, другой был изгнан.
+И прожил он 900 лет в таком мире. Человек, который ещё помнил, каково это было жить в раю, общаться с Богом, и ни в чём не нуждаться... прожил 900 лет, с памятью, но невозможностью вернуться.
+Какого это помнить рай -- не как мечту, но как реальность, -- но быть в изгнании? Каково это помнить общение с Богом -- реальное, лицом к лицу, -- и теперь постоянно жить в отделении? Каково это, утратить совершенство, но ещё помнить его?
+Это ли не катастрофа?
 
 
 

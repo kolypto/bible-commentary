@@ -1024,6 +1024,9 @@ The second way to determine if we have genuine mourning over sin is to check our
 
 5:5: **Кротость** -- это всегда проявление отношения к кому-то. **Кростость** -- это нежное отношение друг к другу. (Лунёв)
 
+5:5: **Кротость** -- незлобивый и отходчивый нрав человека, умение контролировать эмоции, готового осознанно прощать ошибки и обиды от других. Кротость — это мягкость характера. Она помогает человеку терпеливо переносить оскорбления, при этом не раздражаться, не возмущаться и не желать отомстить. 
+Кротость — качество, которое сочетает в себе мягкость характера с твёрдостью духа. Кротость не следует отождествлять со слабохарактерностью и безволием, так в Библии «кротчайшим из всех людей на земле» назван Моисей (Чис. 12:3) — человек решительный и волевой. ([Википедия](https://ru.wikipedia.org/wiki/%D0%9A%D1%80%D0%BE%D1%82%D0%BE%D1%81%D1%82%D1%8C))
+
 5:5: (<u>shocking to hearers</u>) Like the first two beatitudes, his one must have been shocking and perplexing to head. All Jews hoped for deliverance from Roman rule. The Pharisees expected the Messiah to come with great fanfare and a mighty show of power. Sadducees hoped for a change through political compromise. The Zealots expected the Messiah to come as a powerful, irresistible military leader who would conquer Rome. The idea of a **meek** Messiah leading meek people was far from any of their concepts of the messianic kingdom. The people as a whole eventually rejected Jesus because He did not fulfill their messianic expectations. How could a Messiah who taught for a few years, accomplished absolutely nothing as far as anyone could see, and then was rejected by the religious teachers and put to death, be worth believing in? (MacArthur)
 
 5:5: (<u>The meaning of meekness</u>) **Gentle **(Gk. *praos*) means mild or soft. Was much used to refer to tame animals whose wild spirits were broken by a trainer so that they could do useful work. As a human attitude, it meant being gentle of spirit, meek, submissive, quiet, tenderhearted. 
@@ -3256,6 +3259,8 @@ Now folks, let’s face it, most of us are $20.0 .00 violins, at best, right?  
 
 10:14: In Biblical times, when leaving Gentile cities, pious Jews often **shook the dust from their feet** to show their separation from Gentile practices. 
 If the disciples shook the dust of a Jewish town from their feet, it would show their separation from Jews who rejected their Messiah. The gesture was to show the people that they were making a wrong choice. The opportunity to choose Christ might not present itself again. (Wikipedia)
+
+10:16: **будьте мудрыми как змии**. т. е. внушает им не вдаваться без нужды в опасности, но укрываться от них и беречь себя подобно змиям, быстро прячущимся в свои убежища при виде врагов и преимуще­ственно берегущим свою голову при нападении их. (Еп. Виссарион (Нечаев))
 
 10:34: The **peace** He is *not* going to bring is hypocritical tolerance. (John Strohman)
 
