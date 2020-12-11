@@ -548,25 +548,38 @@ This means that satan's words seemed credible and reliable, like everything else
 
 3:1: **не ешьте ни от какого дерева**. Соблазнитель намеренно преувеличивает тяжесть заповеди, чтобы тем самым сбить жену с толку и поселить в ней нерасположение как к самой заповеди, так и к ее Основоположнику. Жена, вероятно, не сама лично слышала заповедь от Бога, а получила ее уже от мужа и потому знала ее менее устойчиво и твердо. (Лопухин А.П.)
 
+3:1: **не ешьте ни от какого дерева**. Он умышленно говорит о том, чего нет, и еще как будто заботясь об них, (говорит) для того, чтобы узнать, что заповедал им Бог, и таким образом увлечь их к преступлению. По крайней невнимательности она не только не уклонилась, но и вполне открыла ему заповедь Божию, повергла бисер перед свиниею. (Свт. Иоанн Златоуст)
+
+3:3: **и не прикасайтесь**. В этом многие комментаторы усматривают как бы упрек Богу со стороны Евы за излишнюю суровость и трудность Его заповеди и глухое недовольство этим. (Лопухин А.П.)
+
+3:3: **и не прикасайтесь к ним**. Из сего догадываться можно, что мысль строгости заповеди и страха смерти уже начинала затмевать в ней чистое чувствование любви и благоговения к Богу–Законодателю. (Свт. Филарет (Дроздов))
+
+3:3: **и не прикасайтесь**. вероятно между Адамом и женою его условлено было не только не есть, но и не прикасаться. (Еп. Виссарион (Нечаев))
+
+3:3: **чтобы вам не умереть**. Из слов Евы он заметил, что она очень удивляется строгости запо­веди Божией и от нарушения ее удерживается больше страхом смерти, чем любовию и преданностью к Давшему заповедь, строгую по непонятной причине. (Еп. Виссарион (Нечаев))
+
 3:4: **The serpent said**. In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
 
-3:4: **you will not surely die**. The **serpent** not only directly contradicts what God has said but goes on to present the fruit of the tree as something worth obtaining (ESV)
+3:4: **you will not surely die**. The **serpent** not only directly contradicts what God has said about the harm, but goes on to present the fruit of the tree as something worth obtaining (ESV)
 
-3:4: The irony should not be overlooked: the couple has been made in the image of God (Gen 1:26–27) and are in this way already like God. Moreover, they are expected to exercise authority over all the beasts of the field, which includes the serpent. This is not merely an act of disobedience; it is an act of treachery. Those who were meant to govern the earth on God’s behalf instead rebel against their divine King and obey one of his creatures. (ESV)
+3:4: **you will not surely die**. The serpent speaks half-truths, promising much but delivering little. Eating the fruit transforms the couple, but not for the better. They did not die immediately, true. They  came to know evil by experience, were enslaved by it, and in their guilt they have became afraid to meet God, all resulting in them being cut off from the source of life and the tree of life, they are in the realm of the dead. (ESV)
 
-3:5: **You will be like God** (the whole phrase in Hb. *kelohim*)— not become completely like Him, but acquire a particular quality that God had, but they hadn’t: **knowing good and evil**. Ultimately, in their desire become *more *like God, just the opposite happened: they have become *less like God*.
+3:4: **you will not surely die**. The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like Gof, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
 
-3:4-5: The serpent was right that they **would not surely die** immediately, for Adam has lived for 930 years; and God acknowledges in v. 22 that “the man has become like one of us in knowing good and evil.”. Yet the serpent speaks half-truths, promising much but delivering little. Eating the fruit transforms the couple, but not for the better. They have come to know that they were naked, came to know evil by experience, were enslaved by it, and in their guilt they have became afraid to meet God, all resulting in them being cut off from the source of life and the tree of life, they are in the realm of the dead. (ESV)
+3:5: **you will be like God**. The irony should not be overlooked: the couple has been made in the image of God (Gen 1:26–27) and are in this way already like God. Moreover, they are expected to exercise authority over all the beasts of the field, which includes the serpent. 
+Those who were meant to govern the earth on God’s behalf instead rebel against their divine King and obey one of his creatures. (ESV)
 
-3:4: The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like Gof, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
-
-3:5: We must not comment too severely upon her conduct. It was no mean desire which led her astray: she longed for more knowledge and greater perfection; she wished even to rise above the level of her nature; but the means she used were in violation of God's command, and so she fell. And, as usual, the tempter kept the promise to the ear. Eve knew good and evil, but only by feeling evil within herself. It was by moral degradation, and not by intellectual insight, that her ambitious wish was fulfilled. (Ellicott)
+3:5: **You will be like God** (the whole phrase in Hb. *kelohim*)— not become completely like Him, but acquire a particular quality that God had, but they hadn’t: **knowing good and evil**. Ultimately, in their desire become *more* like God, just the opposite happened: they have become *less like God*.
 
 3:5: **Будете как Бог**. Но сделались ли они богами? (Свт. Иоанн Златоуст)
 
 3:6: After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one.
 
+3:6: **desired to make one wise**. The tempter kept the promise to the ear. Eve knew good and evil, but only by feeling evil within herself. It was by moral degradation, and not by intellectual insight, that more knowledge was attained. (Ellicott)
+
 3:6: The whole time Adam, **who was with her**, was around, and didn’t stop his wife. 
+
+3:6: **взяла плодов его и ела**. Она поспешила вкусить прежде мужа, чтобы стать главой того, кто был ее главой, соделаться повелительницей того, от кого должна была принимать повеления, явиться по божеству старее того, пред кем моложе по человечеству. (Прп. Ефрем Сирин)
 
 3:6: **gave some to her husband**. Adam has seen that Eve was not dead. So that means, God really is withholding something from them! (MacArthur)
 
