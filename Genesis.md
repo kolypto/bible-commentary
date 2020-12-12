@@ -562,9 +562,20 @@ This means that satan's words seemed credible and reliable, like everything else
 
 3:4: **you will not surely die**. The **serpent** not only directly contradicts what God has said about the harm, but goes on to present the fruit of the tree as something worth obtaining (ESV)
 
-3:4: **you will not surely die**. The serpent speaks half-truths, promising much but delivering little. Eating the fruit transforms the couple, but not for the better. They did not die immediately, true. They  came to know evil by experience, were enslaved by it, and in their guilt they have became afraid to meet God, all resulting in them being cut off from the source of life and the tree of life, they are in the realm of the dead. (ESV)
+3:4: **you will not surely die**. The serpent speaks half-truths, promising much but delivering little. Eating the fruit transforms the couple, but not for the better. They did not die immediately, true. They  came to know evil by experience, were enslaved by it, and in their guilt they have became afraid to meet God, all resulting in them being cut off from the source of life and the tree of life. They moved into in the realm of the dead. (ESV)
 
-3:4: **you will not surely die**. The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like Gof, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
+3:4: **you will not surely die**. The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like God, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
+
+3:4: **не умрёте**. Примечая, что страх смерти держит Еву в послушании Богу, он отъемлет прежде всего сию опору: **не умрете**. (Свт. Филарет (Дроздов))
+
+3:5: **знает Бог**. Дабы не показаться противоречащим Слову Божию, он старается внести свое противоречие в само Слово Божие. Со вкушением от древа познания Бог соединил совершенное ведение добра и зла, подобно как со вкушением от древа жизни совокупил жизнь бессмертную; и обещает в сем ведении новые очи, то есть новую степень ведения, и даже божественность. 
+Такое понятие о древе познания он или приписывает самому Богу. 
+Две мысли могло возродить такое описание древа познания: или ту, что Бог по зависти возбранил его, дабы не иметь причастников своего естества; или ту, что Адам превратил истинный смысл Божией заповеди. 
+(Свт. Филарет (Дроздов))
+
+3:5: **отверзнутся очи**. Очи действительно отверзутся, только для ощущения постыдной наготы, а не для ощуще­ния удовольствия, доставляемого многоведением. 
+Позна­ние добра и зла, которое достигается чрез вкушение зла, чрез порабощение злу, ничего не имеет общего с божеским познанием добра и зла, соединенным со свободою от вся­кого зла. 
+(Еп. Виссарион (Нечаев))
 
 3:5: **you will be like God**. The irony should not be overlooked: the couple has been made in the image of God (Gen 1:26–27) and are in this way already like God. Moreover, they are expected to exercise authority over all the beasts of the field, which includes the serpent. 
 Those who were meant to govern the earth on God’s behalf instead rebel against their divine King and obey one of his creatures. (ESV)
@@ -572,6 +583,21 @@ Those who were meant to govern the earth on God’s behalf instead rebel against
 3:5: **You will be like God** (the whole phrase in Hb. *kelohim*)— not become completely like Him, but acquire a particular quality that God had, but they hadn’t: **knowing good and evil**. Ultimately, in their desire become *more* like God, just the opposite happened: they have become *less like God*.
 
 3:5: **Будете как Бог**. Но сделались ли они богами? (Свт. Иоанн Златоуст)
+
+3:5: **будете как Бог**. Змей сказал, что если прародители окажут Богу неповиновение, то их уделом будут великие блага, как например: откроются их очи, они сделаются равными Богу и будут обладать соответствующим этому положению ведением. 
+Диавол еще не присоединил, что порочен тот, кто запрещает это, дабы не показалось, что говорит какой-то враг и неприятель, но надел личину советника и попечителя, дабы сделать злое увещание удобоприемлемым. 
+ Словами он говорил: «Отступите от сотворившего вас Бога; Он – недоброжелателен и завистлив, по зависти отказывает вам в больших благах»
+(Свт. Иоанн Златоуст)
+
+3:5: **будете как боги**. Человеком уже овладело довольство собою, потому-то и понравилось ему услышанное: "будете как боги". Но гораздо вернее они были бы таковыми, если бы прилеплялись к высочайшему и истинному Началу своей покорностью, а не обратились бы своей гордыней к самим себе, к своему началу. (Блж. Августин)
+
+3:5: **будете как Бог**. То есть он сказал: "Бог хочет один обладать всеведением, и потому намеренно старается дер­жать вас в состоянии детского неведения добра и зла, и следственно в состоянии жалкой зависимости от Него. Отбросьте малодушие, смело ешьте от запрещенных плодов, и тогда повязка с ваших духовных очей спадет, и пред ними откро­ется обширная область ведения, так что, и вы уже не будете нуждаться в руководстве Бо­жием, сами сделаетесь богами." 
+Чувство, которое диавол хотел возбудить в душе Евы этими внушениями, есть гордость, самолюбивое желание свергнуть с себя зависимость от Бога и сравняться с Ним всеведением. 
+(Еп. Виссарион (Нечаев))
+
+3:5: **knowing good and evil**. Satan's lies always promise great benefits. Even and Adam did know good and evil, but by personal corruption. They did not know as God knows in perfect holiness. (MacArthur)
+
+3:6: **И увидела жена**. Признав слова врага и противника нашего спасения более достойным доверия, нежели слова Божии. Видишь ли, как диавол заставил мечтать о себе выше своего достоинства, чтобы она, увлекшись пустыми надеждами, потеряла и то, что уже было ей даровано. (Свт. Иоанн Златоуст)
 
 3:6: After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one.
 
