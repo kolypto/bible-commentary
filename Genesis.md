@@ -597,19 +597,37 @@ Those who were meant to govern the earth on God’s behalf instead rebel against
 
 3:5: **knowing good and evil**. Satan's lies always promise great benefits. Even and Adam did know good and evil, but by personal corruption. They did not know as God knows in perfect holiness. (MacArthur)
 
-3:6: **И увидела жена**. Признав слова врага и противника нашего спасения более достойным доверия, нежели слова Божии. Видишь ли, как диавол заставил мечтать о себе выше своего достоинства, чтобы она, увлекшись пустыми надеждами, потеряла и то, что уже было ей даровано. (Свт. Иоанн Златоуст)
+3:6: **И увидела жена**. Увидела, признав слова врага и противника нашего спасения более достойным доверия, нежели слова Божии. Видишь ли, как диавол заставил мечтать о себе выше своего достоинства, чтобы она, увлекшись пустыми надеждами, потеряла и то, что уже было ей даровано. (Свт. Иоанн Златоуст)
 
-3:6: After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one.
+3:6: **When the woman saw**. After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one. (~ESV)
+
+3:6: **И увидела жена**. Самое грехопадение прародителей, по сказанию Моисея, начинается во внутренности, открывается внешним действием и непосредственно сопровождается новым чувствованием состояния греховного.  (Свт. Филарет (Дроздов))
+
+3:6: **И увидела жена**.  Греховное расположение в душе начинается беспорядочным направлением познавательных сил. Возбужденная к любопытству и недоверчивости, жена взирает на запрещенное древо так, как бы видит его в первый раз. Она забывает взирать на него, как на предмет заповеди Божией, но рассматривает оное в предполагаемом отношении к себе, к своей чувственности, к своему сердцу, к своему разумению.  (Свт. Филарет (Дроздов))
+
+3:6: **и увидела жена**. …Искусительное слово не ввело бы в грех искушаемых, если бы руководством искусителю не служило собственное их желание. Если бы и не пришел искуситель, то само дерево красотой своей привело бы к борьбе из-за их тяги к обладанию.  (Прп. Ефрем Сирин)
+
+3:6: **good .. pleasant .. desirable**. When Eve looked at the fruit again, (which she has, no doubt, seen before), it excited her appetite. As covetousness grew in her heart, the forbidden fruit looked better and better. (MacArthur)
 
 3:6: **desired to make one wise**. The tempter kept the promise to the ear. Eve knew good and evil, but only by feeling evil within herself. It was by moral degradation, and not by intellectual insight, that more knowledge was attained. (Ellicott)
 
-3:6: The whole time Adam, **who was with her**, was around, and didn’t stop his wife. 
+3:6: **ate, .. and he ate**. It was not an overt rebellion against God, but seduction and deception to make her believe her act was the right thing to do. The NT confirms that Eve was deceived (2 cor 11:3: "the serpent deceived Eve"; 1 Tim 2:14: "Adam was not deceived, but the woman was deceived and became a transgressor"; Rev 12:9: "ancient serpent .. the deceiver of the whole world"). 
+Adam, however, committed a direct transgression without deception. (See MacArthur note on 1 Tim 2:13-14)
+(MacArthur)
 
 3:6: **взяла плодов его и ела**. Она поспешила вкусить прежде мужа, чтобы стать главой того, кто был ее главой, соделаться повелительницей того, от кого должна была принимать повеления, явиться по божеству старее того, пред кем моложе по человечеству. (Прп. Ефрем Сирин)
 
+3:6: **ела**. В сем заключается внешнее действие грехопадения. Дабы представить сие действие достойным смерти, его должно рассматривать в неразрывной связи со внутренним расположением ко греху, которое заключает в себе неверие, непослушание, неблагодарность, гордость против Бога и превратное употребление всех способностей.  (Свт. Филарет (Дроздов))
+
 3:6: **gave some to her husband**. Adam has seen that Eve was not dead. So that means, God really is withholding something from them! (MacArthur)
 
-3:7: **knew that they were naked**. when Adam and Eve disobeyed God, the first thing they experience is guilt and shame. Something they didn't know before. That is why they covered themselves. (MacArthur)
+3:6: **дала мужу своему**. Но не менее тяжко пал муж, когда послушался больше жены чем Бога, от которого притом непосредственно при­нял заповедь. Вместо того, чтобы внушить жене, как худо она поступила, и расположить ее к раскаянию, он поспешил последовать ее внушению и примеру. (Еп. Виссарион (Нечаев))
+
+3:6: **и он ел**. Если Еву в падении, до некоторой степени, извиняла ее сравнительная природная слабость, преувеличенно-формальное и чисто внешнее представление о заповеди, наконец, непосредственно-чувственное впечатление от древа, то Адам, получивший от самого Бога грозную заповедь и на самом себе испытавший столько проявлений божественной любви, не имел никаких смягчающих его вину обстоятельств, так что его грех есть чисто духовное преступление и тяжелее греха Евы. (Лопухин А.П.)
+
+3:6: **who was with her**. The whole time Adam was around, and didn’t stop his wife. 
+
+3:7: **knew that they were naked**. when Adam and Eve disobeyed God, the first thing they experience is guilt and shame: something they didn't know before. That is why they covered themselves. (MacArthur)
 
 3:9: Both “**man**” and “**you**” are singular in Hebrew. God thus confronts Adam first, holding him primarily responsible for what happened, as the one who is the representative (or “head”) of the husband-and-wife relationship, established before the fall (ESV)
 
