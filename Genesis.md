@@ -629,6 +629,15 @@ Adam, however, committed a direct transgression without deception. (See MacArthu
 
 3:7: **knew that they were naked**. when Adam and Eve disobeyed God, the first thing they experience is guilt and shame: something they didn't know before. That is why they covered themselves. (MacArthur)
 
+3:7: **opened**. The serpent had promised them enlightenment; what they received was a hideously twisted caricature. It opened their eyes to the meaning of guilt, but it made them want to hide their eyes in shame. Sin instantly destroyed their innocence. Now they had to rely on their conscience to distinguish between good and their newly acquired capacity to see and know evil. (MacArthur)
+
+3:7: **открылись глаза у них**. Итак, «открылись» у них чувственные глаза, которые хорошо было держать закрытыми, дабы они не отвлекались во все стороны и не мешали видеть оку души. Они же, до той поры видевшие глазами души, радовавшиеся Богу и Божиему раю, закрыли, полагаю, эти глаза грехом. Внешнее око открылось после того, как закрылось духовное.
+Поэтому наш Спаситель, зная об этом двойном виде зрения в нас, говорит: "На суд пришел Я в мир сей, чтобы невидящие видели, а видящие стали слепы" (Ин 9:39). Под невидящими Он разумеет глаза души, которые Логос делает зрячими; а под видящими - чувственные глаза: их он ослепил. (Ориген)
+
+3:7: **sewed fig leaves**. A noble effort to cover their sin and mask their shame. Ever since, clothing has been a universal expression of human modesty. (MacArthur)
+
+3:7: **сделали себе опоясания**. Вот начало человеческой одежды; посмотри, как она проста по своему началу и что заставило человека покрыть себя одеждою. Как мы уклонились теперь от этой первоначальной простоты в одежде и как изменилась у нас самая цель одежд: мы покрываемся ими не с тем, чтобы прикрыть наготу свою, а с тем, большею частию, чтобы украситься ею, пощеголять в ней. Чем же мы щеголяем? – Повязкою на ране. (Прав. Иоанн Кронштадский)
+
 3:9: Both “**man**” and “**you**” are singular in Hebrew. God thus confronts Adam first, holding him primarily responsible for what happened, as the one who is the representative (or “head”) of the husband-and-wife relationship, established before the fall (ESV)
 
 3:14: God addresses the **serpent **first (ESV)
