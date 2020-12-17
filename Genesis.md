@@ -650,9 +650,22 @@ Adam, however, committed a direct transgression without deception. (See MacArthu
 
 3:9: **где ты**. Когда же ни медлительность Его, ни предшествующий Ему глас не произвели того, чтобы они пришли и предстали Ему с молчанием, тогда Бог к гласу стоп Своих присовокупил глас уст Своих и сказал: "Адам, где ты?". (Прп. Ефрем Сирин)
 
-3:9: Both “**man**” and “**you**” are singular in Hebrew. God thus confronts Adam first, holding him primarily responsible for what happened, as the one who is the representative (or “head”) of the husband-and-wife relationship, established before the fall (ESV)
+3:9: **To the man**. Both “**man**” and “**you**” are singular in Hebrew. God thus confronts Adam first, holding him primarily responsible for what happened, as the one who is the representative (or “head”) of the husband-and-wife relationship, established before the fall (ESV)
+
+3:9: **Where are you?**. The question was God's way of bringing man to explain why he was hiding, rather than expressing ignorance about man's location. (MacArthur)
+
+3:9: **Where are you?** = "Why are you not coming out?".
 
 3:9: **Адам, где ты**. Стал ли ты Богом, как обещал тебе змий, или подпал под власть смерти, как угрожал тебе Я, если вкусишь плодов дерева? Справедливо ли было бы тебе презреть заповедь Того, Кто даровал тебе все, и внять обещанию того, кто дотоле не оказал тебе никакого добра? (Прп. Ефрем Сирин)
+
+3:10: **не ел ли ты от дерева?**. Для чего говорит это Творец? Конечно для того, чтоб расположить Адама прийти в чувство, сознать грех свой и покаяться. (Прп. Симеон Новый Богослов)
+
+3:11: **кто сказал тебе**.  Обрати внимание на человеколюбие и крайнее незлобие Господа. Он мог тотчас, даже не удостоив ответом сделавшего такой грех, подвергнуть его наказанию, которое Он наперед уже определил за преступление, однако долго терпит, медлит, вопрошает и выслушивает ответ, и опять спрашивает, как бы вызывая виновного к оправданию, чтобы, при открывшемся случае, показать ему Свое человеколюбие и после такого преступления. 
+Чрез это Он внушает нам, чтобы мы, судя виновных, не обращались с ними грубо,  но проявляли бы свое великодушие и снисходительность, памятуя, что они одной с нами природы, растворяли бы наказание человеколюбием. 
+(Свт. Иоанн Златоуст)
+
+3:12: **The woman .. gave me fruit .. and I ate**. Adam did not just answer, "yes, I ate"; he blames Eve and justifies himself. Perhaps, with the hope that she will be punished, and he will not?
+It is possible, however, that Adam, who has not known punishment yet, didn't even think about the consequences.
 
 3:14: God addresses the **serpent **first (ESV)
 
