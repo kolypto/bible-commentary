@@ -733,9 +733,13 @@ Woman's sphere is represented by the family, in which she has pain in labor, and
 The curse strikes to the very heart of what the person is doing.
 (MacArthur)
 
+3:16: **умножая умножу скорбь**. Яснее: "скорбь на скорбь наведу я тебе". (Свт. Филарет (Дроздов))
+
 3:16: **pain in childbearing**. By way of punishing the woman for her sin of disobedience, God pronounces that she will **suffer pain** (Hb. *‘itstsabon*) in the **bearing of children**. This strikes at the very heart of the woman’s distinctiveness, for she is the “mother of all living” (v. 20) (ESV)
 
 3:16: **childbearing**. A woman gave birth to sin in the human race and genetically passes it on to all her children. She can be delivered from this curse by raising godly children. See not on 1 Tim 2:15. (MacArthur)
+
+3:16: **умножу скорбь твою в беременности твоей**. Эти муки рождения не есть что-либо намеренно посылаемое теперь Богом в наказание жене, а составляют лишь естественное законное следствие общей дряблости физической природы падшего человека, утратившей вследствие падения нормальное равновесие духовных и физических сил и подпавшей болезням и смерти.(Лопухин А.П.)
 
 3:16: **Your desire shall be to your husband**. Some have suggested that this means a sexual desire, but that's certainly not a punishment. Moreover, sex is something that God has given them before the Fall; how else could He say, "be fruitful and multiply" (Gen 1:28)?
 This means something else. This means that her desire is going to be something negative, something that reflects separation and alienation. Up to this point everything does.
@@ -758,6 +762,8 @@ Husbands and wives will need God's help in getting along as a result. (MacArthur
 The consequences: (1) Eve will have the sinful “desire” to oppose Adam and to assert leadership over him, reversing God’s plan for Adam’s leadership in marriage. But (2) Adam will also abandon his God-given, pre-fall role of leading, guarding, and caring for his wife, replacing this with his own sinful, distorted desire to “rule” over Eve. Thus one of the most tragic results of Adam and Eve’s rebellion against God is an ongoing, damaging conflict between husband and wife in marriage, driven by the sinful behavior of both.
 The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in the OT. But it appears again in 4:7, in a statement that closely parallels 3:16 — that is, where the Lord says to Cain, just before Cain’s murder of his brother, that sin’s “desire is contrary to you” (i.e., to master Cain), and that Cain must “rule over it” (which he immediately fails to do, by murdering his brother, as seen in 4:8). 
 (ESV)
+
+3:16: **он будет господствовать над тобою**. Если и раньше жена, в качестве только помощницы мужа, ставилась в некоторую зависимость от него, то теперь, после того, как первая жена доказала неуменье пользоваться свободой, Бог определенным законом поставляет ее действие под верховный контроль мужа. Лучшей иллюстрацией этого служит вся история дохристианского мира, в особенности же древнего Востока. И только лишь в христианстве жене снова возвращены отнятые у неё права (Еф. 5:25: "мужья, любите своих жён"). (Лопухин А.П.)
 
 3:17: **cursed is the ground**. Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
 
