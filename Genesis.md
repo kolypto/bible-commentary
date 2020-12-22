@@ -765,11 +765,21 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 3:16: **он будет господствовать над тобою**. Если и раньше жена, в качестве только помощницы мужа, ставилась в некоторую зависимость от него, то теперь, после того, как первая жена доказала неуменье пользоваться свободой, Бог определенным законом поставляет ее действие под верховный контроль мужа. Лучшей иллюстрацией этого служит вся история дохристианского мира, в особенности же древнего Востока. И только лишь в христианстве жене снова возвращены отнятые у неё права (Еф. 5:25: "мужья, любите своих жён"). (Лопухин А.П.)
 
-3:17: **cursed is the ground**. Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
+3:17: **cursed is the ground**. Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15: "garden .. to work it and keep it"), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
 
 3:17: **cursed is the ground**. Adam was condemned to a life of labor, tilling the cursed earth. The ground will yield reluctantly, yet richly, and through his hard work. (MacArthur)
 
+3:17: **проклята земля за тебя**. Избыток своеволия и безнаказанность привели тебя к непослушанию и заставили забыть Мои заповеди. Безделье расположило тебя к тому, чтобы много возомнить о своем естестве. И так как тебе не была полезна такая свобода, то Я и прокляну землю так, что она впредь уже не будет, как прежде, давать плодов без посева и возделания, а только при большом труде, усилии и заботах; подвергну тебя постоянным скорбям и печалям, заставлю все делать с изнурительным напряжением, чтобы эти мучительные труды были для тебя всегдашним вразумлением вести себя скромно и знать свою природу. (Свт. Иоанн Златоуст)
+
+3:17: **проклята земля**. Тогда как отъемлется у покоренной суете твари часть совершенства, заграждается часть путей к ее злоупотреблению. (Свт. Филарет (Дроздов))
+
 3:17: **because you have listened to the voice of your wife .. [while] I commanded you [not to eat]**. The reason given for the curse on the ground and human death is that man turned his back on the voice of God and followed the voice of his wife instead. 
+
+3:17: **со скорбью будешь питаться от неё**. Бог наказывает, но Бог и даёт облегчение наказания: не все животные были изъяты из-под власти человека, но многие скоты и оставлены нам в помощь. Это свидетельствует о великой мудрости, заботливости, и великом человеколюбии Божием. (~Свт. Иоанн Златоуст)
+
+3:17: **со скорбью будешь питаться от неё**. Что же получается, кто весьма богат, и без малейшего труда получает средства пропитаия и не трудится на земле, тот смог избежать приговора? 
+Очевидно, однако, что никто не в силах избежать этого приговора, ибо всякий, кто рожден в эту жизнь, с трудом находит истину по вине тленного тела. (?)
+(Блж. Августин)
 
 3:19: **в поте лица твоего будешь есть хлеб**. Так, например, Адаму Бог говорит, что он в поте лица будет есть хлеб свой, а земля произрастит сорную траву и колючки. Здесь и проклятие, земля будет взращивать всякую дурную траву, и благословение трудиться. 
 Теперь, после изгнания из рая, мужчина деградирует, если не преодолевает внешние, не бытовые трудности, и Господь направляет его трудиться в поте лица, если мужчина хочет, чтобы ему и его окружающим было хорошо. 
