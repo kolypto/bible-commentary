@@ -800,17 +800,44 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 3:19: **в прах возвратишься**. Все наказания, которыми Бог поражает человеков, есть временные, и оканчиваются смертью телесною. Сиё показывает, что Бог предопределил избавить человека от осуждения вечного. (Свт. Филарет (Дроздов))
 
-3:20: **Eve**, which means, life. Adam calls his wife “life” because she was the mother of all the living. Well, I got news for you, folks. At the time that he named her, she was the mother of nobody. She was the mother of nobody. 
+3:20: **Eve**. **Eve** means life. Adam calls his wife “life” because she was the mother of all the living. Well, I got news for you, folks. At the time that he named her, she was the mother of nobody. She was the mother of nobody. 
 God has said that He will provide an atonement, He will provide the conqueror of Satan and sin who will restore paradise and rescue the sinner. On the basis of that promise, Adam gives name to his wife. 
 This tells me that Adam trusted God. God had only said one thing to him, just one thing, really, that he gripped about the future and that is that there would be a seed who would come. Adam became a believer, like Abraham. (MacArthur)
 
-3:21: There is an opinion that those **skins** might have been bodies, borrowed from an animal, and used as a vessel for human beings, who previously used to shine, like Jesus did (Origenes)
+3:20: **нарёк Адам имя жене своей: Ева**. С первого взгляда представляется, что самое имя "жизнь" неприлично жене после осуждения на *смерть*. Может, Адам, осужденный на смерть, именует жену свою жизнью в укоризну и уничижение? Но порядку и духу повествования Моисеева больше соответствует такое толкование: жена именуется "жизнью" по разуму обетования, данного Богом о ее семени, долженствующем стереть главу змия. (Свт. Филарет (Дроздов))
 
-3:21: As a gesture, **God’s clothing** of the rebellious couple suggests that God still cares for these, his creatures. (ESV)
+3:20: **нарёк Адам имя жене своей: Ева**. Несмотря на выслушанный от Бога приговор смерти, Адам дает жене имя, по-видимому, неуместное после этого приговора. Это свидетельствует о его благодарности к Богу, обетовавшему сделать жену матерью великого Семе­ни, имеющего победить диавола и притупить жало смерти. (Еп. Виссарион (Нечаев))
 
-3:21: Because **God** provides **garments to clothe** Adam and Eve, thus requiring the death of an animal to cover their nakedness, many see a parallel here related to (1) the system of animal sacrifices to atone for sin later instituted by God through the leadership of Moses in Israel, and (2) the eventual sacrificial death of Christ as an atonement for sin. (ESV)
+3:20: **нарёк Адам имя жене своей: Ева**. В том обстоятельстве, что даже в самый момент божественного приговора о смерти Адам не усомнился в непреложности божественного обетования о жене (и ее Семени), как восстановительнице жизни («Еве»), отцы Церкви справедливо видят доказательство сознательной, живой и горячей веры падших прародителей в обетованного Искупителя (Мессию). (Лопухин А.П.)
+
+3:21: **God made .. garments**. This verse clearly shows that this is a loving God.
+He has just pronounced a curse on: the serpent, Eve, Adam, the ground, and expelled them from the garden of Eden. That's punishment.
+And then, after all this, God immediately demonstrates His care: makes them clothing. They probably could have made clothing themselves (v.7: "sowed fig leaves"), but there is more to it: God killed an animal to cover their shame. God takes care of the guilty and sacrifices an innocent. This is love.
+
+3:21: **God made .. garments**. God act of clothing the rebellious couple suggests that God still cares for these, his creatures. (ESV)
 
 3:21: **garments of skins**. God killed an animal in order to cover their shame. This is the first illustration of s substitutionary sacrifice: an innocent animal had to die in order to cover the sins of a guilty party. And God is the one who killed here. This is, of course, an illustration, and the prototype, for temple sacrifices, and for the ultimate sacrifice of Jesus for our sins. (MacArthur)
+
+3:21: **God made .. garments**. The first physical deaths should have been the man and his wife, but it was an animal: a shadow of the reality that God would someday kill a substitute to redeem sinners. 
+This was also a graphic object lesson showing that only God can provide a suitable covering for sin, and that the shedding of blood is a necessary part of the process (Heb 9:22: "without the shedding of blood there is no forgiveness of sins"). (MacArthur)
+
+3:21: **сделал Господь Бог ... одежды кожаные**. Зачем было Богу делать для них одежду, когда они вполне могли сделать себе одежду сами? (ст. 7: "сшили смоковные листья, и сделали себе опоясания."). 
+1. Адам и Ева вполне могли сделать себе одежды сами, но это был жест любви со стороны Бога.
+2. Адам и Ева не могли сделать себе такую одежду: либо не было умения, либо они не смогли бы убить животное, либо убийство животных было под запретом до потопа.
+3. Адам и Ева могли бы сделать себе одежду, но Бог сделал её лучше, и подарил им умение это делать.
+4. Бог сделал эту "одежду" сам, потому что под одеждой понимается то, что люди никак не могли бы сделать сами. Это была "одежда" в переносном смысле: плоть животного происхождения, в которую облачился человек вместо прославленного тела, которое он имел ранее, и в котором более не мог находиться вследствие своего падения. Человек стал скотоподобен внутренне, и теперь внешне носит соответствующее его состоянию скотоподобное тело. 
+
+3:21: **сделал Господь Бог .. одежды кожаные и одел их**. Потребность одежды предполагает начинающееся состояние нынешнего человеческого скотоподобного тела. А так как Моисей обыкновенно описывает видимое, а под видимым заключает созерцаемое, то эти слова действительно предполагают и то, что Бог дал падшим человекам плоть скотоподобную. 
+Эту плоть Бог даёт грешникам и покровом стыда, и защитою от внешних сил, и соделывает оную также памятником Своего о них попечения. 
+(Свт. Филарет (Дроздов))
+
+3:21: **одежды кожаные**. Почему Бог заимствует материал (кожу) от животных, а не от растений? Так Бог научил человека приносить в жертву животных (Быт 4:4: "Авель также принес от первородных стада своего"), и обращать их кожи в одежду, дабы сими жертвоприношениями он был вразумляем убивать в себе скотоподобные вожделения и страсти, имея также пред очами будущую жертву победоносного *семени жены*, и верою облекался бы в заслуги и крепость его. (Свт. Филарет (Дроздов))
+
+3:21: **сделал .. одежды кожаные**. В этой краткой библейской заметке, по мнению лучших экзегетов, дано молчаливое указание на божественное установление института жертвоприношений, в котором заклание жертвенных животных символизировало собою мессианскую идею. (Лопухин А.П.)
+
+3:22: **Адам .. зная добро и зло**. Конечно, Адам и Ева по вкушении плодов древа узнали доброе и лукавое, но и до вкушения знали они добро по опыту, о зле только слышали; после же вкушения произошло противное: о добром они стали только слышать, худое же испытывать на деле (Прп. Ефрем Сирин)
+
+3:22: **как бы.. не вкусил, и не стал жить вечно**. Поскольку Бог уже определил прародителям проводить жизнь в труде и поте, в печалях и болезнях, то, чтобы вкусив плода с древа жизни и получив вечную жизнь, они не стали бы вечно мучиться в этой жизни, Бог не допустил, чтобы подпавшие проклятию вкусили плодов того дерева, которое уготовлял (для их бессмертия), чтобы дать им их, когда будут они свободны от проклятий и облечены славой. (Прп. Ефрем Сирин)
 
 3:23: **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, would remove the possibility of repentance, resulting in eternal separation from God?
 
