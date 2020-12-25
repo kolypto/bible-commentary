@@ -837,13 +837,27 @@ This was also a graphic object lesson showing that only God can provide a suitab
 
 3:22: **Адам .. зная добро и зло**. Конечно, Адам и Ева по вкушении плодов древа узнали доброе и лукавое, но и до вкушения знали они добро по опыту, о зле только слышали; после же вкушения произошло противное: о добром они стали только слышать, худое же испытывать на деле (Прп. Ефрем Сирин)
 
+3:22: **like one of Us**. This was spoken out of compassion for the man and woman, who only in limited ways were like the Trinity, knowing good and evil -- not by holy omniscience, but by personal experience. (MacArthur)
+
+3:22: **Адам стал как один из Нас**. Событие показало, в каком смыс­ле понимал свое обещание диавол. Адам действительно сделался подобным Богу, если под сим уподоблением ра­зуметь приобретение знакомства с добром и злом без от­ношения к тому, как приобретено это знакомство. Оно приобретено чрез порабощение злу, с утратою невинности и правоты. Не достойно ли, посему, величайшего сожале­ния, что Адам, увлеченный желанием равнобожия, не до­гадался, что ему обещано диаволом только мечтательное равнобожие? Не достойно ли сожаления, что он по своей вине впал в сети диавола? (Еп. Виссарион (Нечаев))
+
+3:22: **lest he .. lives forever**. **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, living forever in such a sorry state would remove the possibility of repentance, resulting in eternal separation from God?
+
+3:22: **live forever**. Driving the man and his wife out of the garden was an act of merciful grace to prevent them from being sustained forever by the tree of life and live forever in this pitiful cursed condition. (MacArthur)
+
+3:22: **чтобы .. не взял от древа жизни**. За вкушение недозволен­ных к употреблению плодов от древа познания добра и зла Господь лишает Адама дозволенных к употреблению пло­дов от древа жизни. (Еп. Виссарион (Нечаев))
+
 3:22: **как бы.. не вкусил, и не стал жить вечно**. Поскольку Бог уже определил прародителям проводить жизнь в труде и поте, в печалях и болезнях, то, чтобы вкусив плода с древа жизни и получив вечную жизнь, они не стали бы вечно мучиться в этой жизни, Бог не допустил, чтобы подпавшие проклятию вкусили плодов того дерева, которое уготовлял (для их бессмертия), чтобы дать им их, когда будут они свободны от проклятий и облечены славой. (Прп. Ефрем Сирин)
 
-3:23: **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, would remove the possibility of repentance, resulting in eternal separation from God?
+3:22: **чтобы .. не вкусил его, и не стал жить вовек**. Поскольку величие Бога не позволяет принять Его слова за простую уязвляющую укоризну, то под образом глумления следует искать истины чистой и бесстрастной. (Свт. Филарет (Дроздов))
 
-3:23: The expelling of man from the garden was an act of love and mercy. For the man to live forever would have sealed his sinful condition, and God has prevented that by expelling man out of that garden.
+3:22: **чтобы .. не вкусил его, и не стал жить вовек**. Древо жизни не может быть полезно тому, кто, быв отчужден от жизни Божией, носит в себе внутреннее начало смерти: в сем случае его бессмертие только продолжило и утвердило бы его смерть. Он должен удалиться от древа жизни не столько в наказание, сколько для сокращения его наказания, и для того, чтобы как грех отделил его от Бога, так смертность отделяла бы от диавола. (Свт. Филарет (Дроздов))
 
-3:24: After Adam and Eve sinned, God banished them from the Garden of Eden If they had eaten from the tree of Life, they would have been forever in their sin. It was an act of mercy that God banished them from the garden. (Brad, Дом Отца)
+3:23: **выслал его Господь**. Изгнание из рая есть дело скорее попечительности Божией о человеке, нежели гнева. Таков Господь наш: и наказаниями не меньше, чем и благодеяниями, Он показывает Свое промышление о нас. (Свт. Иоанн Златоуст)
+
+3:23: **sent him out**. The expelling of man from the garden was an act of love and mercy. For the man to live forever would have sealed his sinful condition, and God has prevented that by expelling man out of that garden.
+
+3:23: **to work the ground from which he was taken**. What a smack on the man's pride!
 
 3: (Грехопадение. Катастрофа Адама и Евы.)
 Они жили в Эдемском саду, где не нуждались ни в крове, ни в доме, не терпели никаких нужд, не болели, не старели, наверняка даже не испытывали боль.
