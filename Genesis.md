@@ -905,15 +905,27 @@ This was also a graphic object lesson showing that only God can provide a suitab
 
 4:1: This chapter shows mankind plunging further into sin, with Cain murdering Abel, and Lamech boasting of a murder for a simple offence. (ESV)
 
-4:1: Eve’s reference to the Lord’s help when Cain is born conveys a sense of optimism. The serpent may yet be overthrown by the offspring of the woman. (ESV)
+4:1: **зачала**. Благословение чадородия служило для них источником утешения: надеждою, что если не они, так их потомки, доживут до времени рождения Сокрушителя главы змиевой. (Еп. Виссарион (Нечаев))
 
-4:4: The key to understanding the **Lord’s regard** for Abel’s gift is not in the gift itself, but the attitude of the heart that undergirds the actions and the response to them. God knows what’s in the heart of man, doesn’t He? And so in v. 7 God explained to Cain that his gift was rejected not because God doesn’t like farmers, but rather, because Cain has done something wrong while offering the gift. Probably, he was insincere.
+4:1: **with the help of the Lord**. They have just sinned, failed to repent, and were expelled from the garden. At the same time, God helps mankind to have children. This means that God still cares for them.
+
+4:1: **with the help of the Lord**. Eve’s reference to the Lord’s help when Cain is born conveys a sense of optimism. The serpent may yet be overthrown by the offspring of the woman. (ESV)
+
+4:1: **от Господа**. Очевидно, что Ева смотрела на своего первенца-сына, как на дар от Бога, или как на наследие, полученное от Него; этим самым она, с одной стороны, исповедовала свою веру в Бога, нарушенную преслушанием грехопадения, с другой - выражала надежду на получение от Бога благословенного Потомка, имеющего сокрушить власть диавола. (Лопухин А.П.)
+
+4:2: **Авель**. Сколько радовалась Ева первому сыну, от которого ожидала видеть великое утешение для себя, столько же сокрушалась она по рождении второго, как это видно из наречения ему имени. Авель значит: суета, ничтожество. Ева, вероятно, хотела сим наименованием выразить, что как в первом сыне она не нашла чего ожидала, так и от второго она уже не чает для себя радости. Имя Авеля могло быть дано также под влиянием предчувствия ожидавшей его участи, – его краткой жизни и насильственной смер­ти. (Еп. Виссарион (Нечаев))
+
+4:2: **Авель**. Имя **Авель** толкуют и переводят различно: «дыхание, ничтожество, суета» или, как думает Иосиф Флавий - «плач». (Лопухин А.П.)
+
+4:4: **firstborn .. fat portions**. While Cain brought just some offering, not caring much about what to bring, Abel brought the best that he had. Actions express attitudes: Abel had greater devotion in his heart, and it was visible through his actions.
 
 4:4: **The firstborn of his flock** is a more costly offering, expressing greater devotion. (ESV)
 
-4:4: At no point does the Bible suggest that **offerings** work *automatically*, as if the worshiper’s faith and contrition did not matter; and Cain’s fundamentally bad heart can be seen in his resentment toward his brother and in his uncooperative answers to God in the rest of the passage. (ESV)
+4:4: **the Lord had regard .. had no regard**. The key to understanding the **Lord’s regard** for Abel’s gift is not in the gift itself, but the attitude of the heart that undergirds the actions and the response to them. God knows what’s in the heart of man, doesn’t He? And so in v. 7 God explained to Cain that his gift was rejected not because God doesn’t like farmers, but rather, because Cain has done something wrong while offering the gift. Probably, he was insincere.
 
-4:4: God has rejected one **gift** and **accepted** the other “because his [Cain’s] own deeds were evil and his brother's righteous” (1 Jn 3:12)
+4:5: **offering**. At no point does the Bible suggest that **offerings** work *automatically*, as if the worshiper’s faith and contrition did not matter; and Cain’s fundamentally bad heart can be seen in his resentment toward his brother and in his uncooperative answers to God in the rest of the passage. (ESV)
+
+4:4: **had no regard**. God has rejected one **gift** and **accepted** the other “because [Cain’s] own deeds were evil and his brother's righteous” (1 Jn 3:12). "By faith Abel offered to God a more acceptable sacrifice than Cain" (Heb 11:4).
 
 4:7:  The Lord’s words challenge Cain to do better. He still has the possibility of turning. To succeed in doing this, however, he must overcome the domination of **sin**. (ESV)
 
