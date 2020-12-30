@@ -917,21 +917,53 @@ This was also a graphic object lesson showing that only God can provide a suitab
 
 4:2: **Авель**. Имя **Авель** толкуют и переводят различно: «дыхание, ничтожество, суета» или, как думает Иосиф Флавий - «плач». (Лопухин А.П.)
 
+4:3: **принёс .. дар Господу**. Бог не нуждается в этих жертвах, ибо в том же Писании прямо утверждается: "ты Господь мой; блага мои Тебе не нужны" (Пс 15:2). Принимая или отвергая жертвы, Бог лишь подает тем самым совет человеку. Таким образом, наше богослужение приносит пользу не Богу, но нам самим. (Блаж. Августин)
+
+4:3: **Каин принёс от даров земли**. Хотя значение этих жертв определялось, по толкованию Апостола Павла, не достоинством приносимого, а внутренним расположением приносившего (Евр. 11:4), однако, поскольку все внутреннее находит соответственное выражение и вовне, не без значения, разумеется, оставались и самые дары. (Лопухин А.П.)
+
 4:4: **firstborn .. fat portions**. While Cain brought just some offering, not caring much about what to bring, Abel brought the best that he had. Actions express attitudes: Abel had greater devotion in his heart, and it was visible through his actions.
+Note that external devotion does not mean internal devotion even exists. But true internal devotion always finds its expression by external means.
 
 4:4: **The firstborn of his flock** is a more costly offering, expressing greater devotion. (ESV)
 
-4:4: **the Lord had regard .. had no regard**. The key to understanding the **Lord’s regard** for Abel’s gift is not in the gift itself, but the attitude of the heart that undergirds the actions and the response to them. God knows what’s in the heart of man, doesn’t He? And so in v. 7 God explained to Cain that his gift was rejected not because God doesn’t like farmers, but rather, because Cain has done something wrong while offering the gift. Probably, he was insincere.
+4:4: **the fruit of the ground**. The Midrash suggest that although Abel brought the best meat from his flock, Cain did not set aside for God the best of his harvest. ([Wiki](https://en.wikipedia.org/wiki/Cain))
 
-4:5: **offering**. At no point does the Bible suggest that **offerings** work *automatically*, as if the worshiper’s faith and contrition did not matter; and Cain’s fundamentally bad heart can be seen in his resentment toward his brother and in his uncooperative answers to God in the rest of the passage. (ESV)
+4:4: **the Lord had regard for Abel and his offering**. It was not the offering itself that pleased God, but Abel's heart: Lord's regard was not to the **offering** alone, but **for Abel** *and* **his offering**.
+
+4:4: **the Lord had regard .. had no regard**. The key to understanding the **Lord’s regard** for Abel’s gift is not in the gift itself, but the attitude of the heart that undergirds the actions and the response to them. God knows what’s in the heart of man, doesn’t He? And so in v. 7 ("if you do not do well") God explained to Cain that his gift was rejected not because God doesn’t like farmers, but rather, because Cain has done something wrong while offering the gift. Probably, he lacked sincerity.
+
+4:4: **offering**. At no point does the Bible suggest that **offerings** work *automatically*, as if the worshiper’s faith and contrition did not matter; and Cain’s fundamentally bad heart can be seen in his resentment toward his brother and in his uncooperative answers to God in the rest of the passage. (ESV)
 
 4:4: **had no regard**. God has rejected one **gift** and **accepted** the other “because [Cain’s] own deeds were evil and his brother's righteous” (1 Jn 3:12). "By faith Abel offered to God a more acceptable sacrifice than Cain" (Heb 11:4).
 
-4:7:  The Lord’s words challenge Cain to do better. He still has the possibility of turning. To succeed in doing this, however, he must overcome the domination of **sin**. (ESV)
+4:4: **На Каина и на дар его не призрел**. Каин не позаботился о класах добрых или о плодах лучших. В душе приносящего жертву не было любви к Приемлющему приношения. И поскольку с небрежением принес он жертву, то Бог отверг ее, чтобы Каин не подумал, что Богу неизвестно его небрежение, или что Ему дары приятнее самих приносящих. (Прп. Ефрем Сирин)
 
-4:8: God has explained to Cain that his gift was rejected because of a wrong in his heart (v. 7: “if you do well, will you not be accepted?”). Still, Cain saw no fault with himself, but instead grew envious of his brother. Instead of repenting himself, he envied the one who was more right with God. This twisted thinking has led to murder.
+4:4: **призрел**. Откуда мог знать Каин, что Бог принял дары брата, а его дары отверг?
+Это должно было быть действие чудесное, чтобы приносящий мог быть уверен, что оно точно происходит от Бога.
+Нередко Бог свидетельствовал Своё благоволение о жертвах ниспосланием огня (при установлении священства: Лев. 9:24; при воззвании Гедеона к избавлению Израиля: Суд. 6:21; по явлении Давиду Ангела погубляющаго: 1 Пар. 21:26; при освящении храма Соломонова: 2 Пар. 7:1; при состязании пророка Илии со жрецами Ваала: 3 Цар. 18:38). Догадываются, что дар Авеля воспламенился, а дар Каина -- нет. (Свт. Филарет (Дроздов)) 
 
-4:8: Obviously, Cain did not “rule over” his sin (v. 7), but instead, let the sin rule over himself.
+4:4: **призрел .. не призрел**. Жертва Авеля больше отвечала основной идее жертвы, так как была проникнута живой и действенной верой, под которой, прежде всего, разумеется вера в обетованного Мессию. Жертва же Каина, в противоположность этому, носила в себе дух гордости, тщеславия, высокомерия и внешней обрядности, создавшей вполне понятные препятствия ее успеху. (Лопухин А.П.)
+
+4:5: **не призрел**. Из сего можем научиться, что иное и хорошее можно сделать не хорошо, как то: или нерадиво, или небрежно, или для чего-нибудь иного, а не для Бога; и от сего-то происходит, что и хорошее дело бывает неприятно Богу. (Прп. Макарий Великий)
+
+4:5: **Cain was very angry**. Rather than being repentant, Cain was violently hostile toward God, whom he could not kill, and jealous of his brother, whom he could kill. 
+
+4:5: **Каин сильно огорчился**. Разгневался. Вину своего несчастия Каин полагал не в себе, ниже в Боге, но в своем брате. 
+Что же могло его так расстроить в благоволении к Авелю?
+Каин был перворожденный. Авель -- нет. Должно быть, Каину было известно, что преимущество первородства является предметом особенных благодеяний Божиих. Оба преимущества Каин хотел удержать за собою.
+(Свт. Филарет (Дроздов))
+
+4:7: **sin is crouching at your door**. God told Cain that if he chose not to obey His commands, sin would fulfill its desire to overpower him. (MacArthur)
+
+4:7: **its desire is contrary to you**. The very same phrase is used in the curse of the woman: "your desire shall be contrary to your husband, but he shall rule over you" (Gen 3:16)
+
+4:7: **you must rule over it**. The Lord’s words challenge Cain to do better. He still has the possibility of turning. To succeed in doing this, however, he must overcome the domination of **sin**. (ESV)
+
+4:7: **you must rule over it**. God tells Cain he is responsible to win that battle, to rule over his sin. ([bibleref.com](https://www.bibleref.com/Genesis/4/Genesis-4-7.html))
+
+4:8: **Cain rose up against his brother**. God has explained to Cain that his gift was rejected because of a wrong in his heart (v. 7: “if you do well, will you not be accepted?”). Still, Cain saw no fault with himself, but instead grew envious of his brother. Instead of repenting himself, he envied the one who was more right with God. This twisted thinking has led to murder.
+
+4:8: **Cain rose up against his brother**. Obviously, Cain did not “rule over” his sin (v. 7), but instead, let the sin rule over himself.
 
 4:13: Cain is immediately conscious of the severity of his **punishment**: he is to be alienated from both the ground and God. While this may seem like a very lenient sentence, it meant that Cain would become a fugitive and a wanderer on the earth. (ESV)
 
