@@ -976,9 +976,27 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:7: **you must rule over it**. God tells Cain he is responsible to win that battle, to rule over his sin. ([bibleref.com](https://www.bibleref.com/Genesis/4/Genesis-4-7.html))
 
+4:8: **Cain spoke to Abel**. With deceit and hypocrisy, Cain invited Abel to a place he deemed proper for a murder. Perhaps, it was a remote place where parents wouldn't hear the cries: a place without any witnesses.
+
+4:8: **пойдём на поле**. Слова брата, а намерение убийцы. (Свт. Иоанн Златоуст)
+
 4:8: **Cain rose up against his brother**. God has explained to Cain that his gift was rejected because of a wrong in his heart (v. 7: “if you do well, will you not be accepted?”). Still, Cain saw no fault with himself, but instead grew envious of his brother. Instead of repenting himself, he envied the one who was more right with God. This twisted thinking has led to murder.
 
-4:8: **Cain rose up against his brother**. Obviously, Cain did not “rule over” his sin (v. 7), but instead, let the sin rule over himself.
+4:8: **Cain rose up against his brother**. Obviously, Cain did not “rule over” his sin (v. 7), but instead, let the sin ruled over himself.
+
+4:8: **killed him**. When Adam and Eve found the body of their son, it was the first time they have ever seen death of a human.
+
+4:8: **убил его**. Диавол лестью и коварством погубил Еву. И Каин также лестью и коварством вызвал Авеля в поле для его погубления. (Еп. Виссарион (Нечаев))
+
+4:8: **убил его**. Это было первым проявлением предвозвещенной Богом вражды между Семенем жены и семенем змия, проходящей через всю историю человечества. (Лопухин А.П.)
+
+4:9: **и сказал Господь Каину**. Это одно уже, что Он удостоил Своей беседы совершившего такое преступление, какую показывает благость? Если мы часто гнушаемся и подобными нам людьми, когда увидим их совершившими подобное преступление, то тем более должно удивляться благому Богу, явившему столько терпения, и – совершенно справедливо. Он – врач и отец любвеобильный. (Свт. Иоанн Златоуст)
+
+4:9: **Где Авель, брат твой?**. Человеколюбивый Владыка принимает вид незнания для того, чтобы учинившего такое преступление вопросом побудить к исповеданию греха и чтобы он мог получить некоторое прощение и воспользоваться человеколюбием. (Свт. Иоанн Златоуст)
+
+4:9: **разве я сторож брату моему?**. Какой страшный успех греха со времени гре­хопадения прародителей! Отец с матерью по крайней мере не запираются во грехе, а только стараются оправдать его, а сын не думает даже признаться во грехе. (Еп. Виссарион (Нечаев))
+
+4:9: **разве я сторож брату моему?**. Своим вопросом Господь хочет пробудить совесть братоубийцы, вызвать его на чистосердечное покаяние и на просьбу о помиловании. Но Каин был в совершенно противоположном настроении: с упорством ожесточившегося грешника, он не только запирается в преступлении, но и дает дерзкий ответ Богу, как бы даже обвиняя Его за столь неуместный вопрос. (Лопухин А.П.)
 
 4:13: Cain is immediately conscious of the severity of his **punishment**: he is to be alienated from both the ground and God. While this may seem like a very lenient sentence, it meant that Cain would become a fugitive and a wanderer on the earth. (ESV)
 
