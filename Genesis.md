@@ -998,6 +998,12 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:9: **разве я сторож брату моему?**. Своим вопросом Господь хочет пробудить совесть братоубийцы, вызвать его на чистосердечное покаяние и на просьбу о помиловании. Но Каин был в совершенно противоположном настроении: с упорством ожесточившегося грешника, он не только запирается в преступлении, но и дает дерзкий ответ Богу, как бы даже обвиняя Его за столь неуместный вопрос. (Лопухин А.П.)
 
+4:10: **что ты сделал?**.  Так как Каин не обнаружил готовности принести покаяние и принять помилование, то Бог приступает, наконец, к осуждению его, в котором проявляет Свое всеведение, всемогущество, правосудие и милосердие. (Лопухин А.П.)
+
+4:10: **голос крови брата твоего вопиет ко Мне**. То есть, требует отмщения. 
+В том, что этот вопль достигает неба, замечается образное выражение мысли о божественном всеведении, которое представляется слышащим восклицания и там, где человек старается покрыть все глухим молчанием.
+(Лопухин А.П.)
+
 4:13: Cain is immediately conscious of the severity of his **punishment**: he is to be alienated from both the ground and God. While this may seem like a very lenient sentence, it meant that Cain would become a fugitive and a wanderer on the earth. (ESV)
 
 4:15: **The mark**. In spite of much scholarly speculation, the precise nature of **the mark** is uncertain. It must have been something visible, but that is all that can be said. (ESV)
