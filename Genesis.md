@@ -1064,23 +1064,55 @@ Note that external devotion does not mean internal devotion even exists. But tru
 К созданию города Каин, вероятно, побуждаем был желанием поло­жить конец своей скитальческой жизни, на которую осужден Божеским правосудием. 
 По­стройку города Каин мог предпринять также для того, чтобы найти в нем безопасное убежище от людей, мщения которых продолжал страшиться, а вместе для того, чтобы самому иметь точку опоры при нападении на людей, ибо при неудаче в земледелии он, вероятно, для прокормления себя, прибегал к грабежу. (Еп. Виссарион (Нечаев))
 
+4:18: **Енох, Малелеил, Мафусал**. Имена некоторых потомков Каина одинаковы с именами потомков благочестиво­го племени (Быт. 5:13,19,22). Это показывает, что оба племени не чуждались одно другого. (Еп. Виссарион (Нечаев))
+
+4:18: **Ирад родил Мехиаеля**. Имя **Мехиаеля** означает «пораженный, уничтоженный Богом» и, по догадке толковников, заключает в себе намек на какое-то особенно божественное вразумление забывшихся каинитов. (Лопухин А.П.)
+
+4:18: **Мехиаель родил Мафусала**. Имя **Мафусала** значит: «человек, муж Божий», т. е. испрошенный у Бога, данный Им. В нем, равно как и предшествующем имени, не без основания усматривают следы некоторого смирения горделивых потомков Каина и их временного обращения к Богу, бывшего следствием обрушившегося на них небесного наказания. (Лопухин А.П.)
+
+4:18: **Мафусал родил Ламеха**. На личности самого Ламеха и на истории его семьи бытописатель останавливается с некоторой подробностью, давая этим самым знать, что семья Ламеха особенно типична для характеристики всего каинитского племени. Обращает на себя внимание, прежде всего, уже самое имя «Ламех», которое значит «разрушитель, неприятель». (Лопухин А.П.)
+
+4:19: **Ламех взял за себя две жены**. Ламех позорно увековечил свое имя тем, что первый ввел многоженство, этим самым он извратил богоучрежденный характер брака (Быт. 2:24) и обнаружил свою нравственную разнузданность и плотоугодие.  (Лопухин А.П.)
+
+4:19: **имя одной: Ада, и имя второй: Цилла**. О таковом именно характере Ламехова брака могут говорить и имена его жен, из которых первое означает - «украшение, привлечение», второе - «тень, ширма». (Лопухин А.П.)
+
+4:20: **отец**. Изобретатель. "Отец живущих" значит здесь изобретателя образа жизни. (Свт. Филарет (Дроздов))
+
 4:20-22: **tents and livestock .. lyre and pipe .. forger** Cain’s immediate descendants are associated with animal breeding, music, and metalwork, all of which are noteworthy cultural and technological developments. (ESV)
 
 4:20-22: **Jabal, Jubal, Tubal-Cain**. **Jabal** invented tents and inaugurated the nomadic life of herdsmen, so common in the Middle East. **Jubal** invented both stringed and wind instruments. **Tubal-Cain** invented metallurgy. (MacArthur)
 
 4:20-22: **Иавал .. Иувал .. Тувалкаин**. Возможно, это написано чтобы обличить суеверие и унизить тщеславие египтян, которые изобретение музыки и кования, как и вообще усовершенствование общежития, приписывали богам или полубогам, своим соотечественникам. (Свт. Филарет (Дроздов))
 
-4:23: Seven generations on from Cain, **Lamech** resembles his ancestor, but seems to be worse. His response is out of proportion to the injury, showing his inordinate vengefulness. (ESV)
+4:22: **ковачом всех орудий из меди и железа**. До изобретения Тувалкаинова сосуды и орудия приготов­ляемы были из дерева и камня. Фовел нашел более пригод­ными для многих изделий железо и медь, по большей их прочности и твердости. Видно, что он очень хорошо изучил свойства этих металлов, умел разрабатывать железную и медную руду, изобрел литейное и плавильное искусство. (Еп. Виссарион (Нечаев))
 
-4:23: God’s wisdom is not to take revenge but forgive; Lamech’s wisdom is the opposite: take revenge in such a way that it’s worse than the initial offense. It’s not even just repayment; it’s much worse.
+4:23: **I have killed a man for wounding me**. Seven generations on from Cain, **Lamech** resembles his ancestor, but seems to be worse. His response is out of proportion to the injury, showing his inordinate vengefulness. (ESV)
 
-4:24: Lamech is boasting that his vengeful passion makes him safer than Cain (Gen. 4:15), who had protection only from God. “Seventy-sevenfold” is a picturesque statement for extravagant excess. (ESV)        
+4:23: **for wounding**. God’s wisdom is not to take revenge but forgive; Lamech’s wisdom is the opposite: take revenge in such a way that it’s worse than the initial offense. It's not even justice. It's more severe.
 
-4:25: It is noteworthy that there’s been no mention of **God** while the text was talking about Cain’s descendants; likely because they were wicked and godless.
+4:23: **И сказал Ламех женам своим**. Отрывок известен как "песнь Ламеха". Неясно, какой имеется в виду смысл: он уже убил, или хвалится, что убьёт?
+В зависимости от такого взгляда на характер текста и вся песнь Ламеха получает значение победного гимна мечу. Восхищенный кровавым изобретением своего сына Тувалкаина, Ламех как бы подходит к своим женам и, потрясая грозным оружием, надменно хвалится перед ними этой новой культурной победой, создающей ему положение деспота и властелина. «Я убью всякого, будет ли то почтенный, зрелый муж или легкомысленный отрок, раз он осмелится нанести мне хотя бы малейшее оскорбление. И если Бог за смерть Каина обещался воздать всемеро, то я, вооруженный грозным изобретением своего сына, сумею в семьдесят раз лучше постоять за себя сам!» 
+(Лопухин А.П.)
 
-4:25: With Eve’s line, the text starts mentioning **God’s** role in Adam’s family again. He clearly works in their lives to provide the promised offspring. 
+4:24: **сказал жёнам своим**. Зачем говорить это жёнам?
+Жены Ламеховы могли тревожиться опасением поте­рять мужа, которому за убийство угрожало мщение от родственников убитого. Ламех успокаивает их, уверяя, что он безопаснее Каина.
+(Еп. Виссарион (Нечаев))
 
-4:26: Details are not given, but the implication may be that this **calling on the Lord’s name** began in Adam’s own family circle. (ESV)
+4:24: **Cain's .. sevenfold, mine .. seventy-sevenfold**. Lamech is boasting that his vengeful passion makes him safer than Cain (Gen. 4:15), who had protection only from God. “Seventy-sevenfold” is a picturesque statement for extravagant excess. (ESV)
+
+4:24: **семьдесят раз всемеро**. Каин-убийца, по край­ней мере, снедаем был угрызениями совести. Ламех заглушил в себе совесть, и не только хвалится убийством, но еще глумится над Богом. До большей степени нечестие не могло достигнуть. (Еп. Виссарион (Нечаев))
+
+4:25: **Адам**. От племени Каина Моисей переходит к новой линии потомства Адамова, в кратком описании которой не видно ничего более, как примеры благочестия. Из сего видно, что, изобразив семя змия, он теперь указует на семя жены. (Свт. Филарет (Дроздов))
+
+4:25: **Seth**. With Abel dead, and Cain removed, God graciously gave Adam and Eve a godly son, through whom the seed of redemption would be passed all the way to Jesus Christ. (MacArthur)
+
+4:25: **God has appointed**. It is noteworthy that there’s been no mention of **God** while the text was talking about Cain’s descendants; likely because they were wicked and godless.
+
+4:26: **began to call upon the name of the Lord**. Details are not given, but the implication may be that this **calling on the Lord’s name** began in Adam’s own family circle. (ESV)
+
+4:26: **men began to call upon the name of the Lord**. As men realized their inherent sinfulness, with no human means to improve,  they turned to God for mercy and grace in hopes of a restored personal relationship. (MacArthur)
+
+4:26: **начали призывать имя Господа**. И вот в то время, как поколение каинитов через основание города, изобретение светских ремесел и искусств клало первый камень мирского могущества, племя сифитов, совокупным призыванием Бога, полагает основание Царству Божию на земле - Церкви, как обществу людей, объединенных между собой верой в Искупителя (Иегову) и надеждой на избавление через Него. (Лопухин А.П.)
 
 
 
