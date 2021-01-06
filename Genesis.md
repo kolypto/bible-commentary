@@ -1040,13 +1040,35 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:15: **знамение**. Неизвестно, какое было сие знамение, если то не был самый вид Каина, обезображенный сперва завистью и скорбию, потом отчаянием и ужасом, и соделанный для каждого ясною печатию отвержения его. (Свт. Филарет (Дроздов))
 
+4:16: **от лица Господня**. Значит то, что он лишился покровительства Божия за свое гнусное дело. 
+
 4:16: **ушёл Каин**. Адам и Ева, не видевшие доселе смерти, лишились обоих сыновей, первенцев: один умер, другой в изгнании. 
 У них тяжёлая судьба; но нигде в Библии не сказано, что они роптали на Бога.
 (Церковь, Сочи)
 
-4:17: No explanation is given as to the origin of **Cain’s wife**. As is often the case in Genesis, the limited and selective nature of the account leaves the reader with unanswered questions. Presumably, Cain married his sister—a reasonable assumption, since the whole human race descended from Adam and Eve (Gen 3:20: “Eve … the mother *of all living*”), and Adam with Eve had “other sons *and daughters*” (Gen 5:4). (ESV)
+4:16: **от лица Господня**. Каин до совершения злодеяния жил с родителями в стране Едемской. Здесь, как член общества верных Богу, хотя и согрешивших пред Ним, он находился вместе с ними в близком общении с Богом, и удостаивался лицезрения Божия, ибо Бог являлся ему в чувственном, человекообраз­ном виде. Милосердый Господь, как солнце, сияющее на злые и благие, явился «лицем» Своим Каину и тогда, когда сей замыслил совершить, и тогда, когда совершил злодея­ние, и кротко обличал и вразумлял его. Теперь же за нерас­каянность Каин отлучен правосудным Богом от общества верных Ему и вместе с сим от «лица», т. е. от лицезрения «Божия». (Еп. Виссарион (Нечаев))
 
-4:20-22: Can’s immediate descendants are associated with animal breeding, music, and metalwork, all of which are noteworthy cultural and technological developments. (ESV)
+4:17: **knew his wife**. No explanation is given as to the origin of **Cain’s wife**. As is often the case in Genesis, the limited and selective nature of the account leaves the reader with unanswered questions. Presumably, Cain married his sister — a reasonable assumption, since the whole human race descended from Adam and Eve (Gen 3:20: “Eve … the mother *of all living*”), and Adam with Eve had “other sons *and daughters*” (Gen 5:4). (ESV)
+
+4:17: **knew his wife**. Cain's wife obviously was one of Adam's later daughters (Gen 5:4). By the time of Moses, this kind of close marriage was forbidden (Lev 18:7-17) because of genetic decay. (MacArthur)
+
+4:17: **И познал Каин жену свою**. Прибавим, что девственная природа была тогда сильна, и супружество родных не могло иметь нынешних пагубных последствий. (Еп. Виссарион (Нечаев))
+
+4:17: **Enoch**. His name means "initiation", and was symbolic of the new city where Cain would try to mitigate his curse. (MacArthur)
+
+4:17: **Нарек имя городу по имени сына своего**. Древнее обыкновение было именовать города от родоначальника обитателей или от строителя (Суд. 18:29; 2 Цар. 5:7). Начало сего обыкновения представляется в сыне Каина, однако же не в самом Каине, которого имя не украсило бы города его. (Свт. Филарет (Дроздов))
+
+4:17: **город**. В древности городом называлось огражденное стеной или валом пространство с нескольки­ми палатками, или какими-нибудь другими жилыми стро­ениями, больше похожее на крепость или острожек, чем на город – средоточие промышленности. (Еп. Виссарион (Нечаев))
+
+4:17: **город**. Зачем Каин построил город? 
+К созданию города Каин, вероятно, побуждаем был желанием поло­жить конец своей скитальческой жизни, на которую осужден Божеским правосудием. 
+По­стройку города Каин мог предпринять также для того, чтобы найти в нем безопасное убежище от людей, мщения которых продолжал страшиться, а вместе для того, чтобы самому иметь точку опоры при нападении на людей, ибо при неудаче в земледелии он, вероятно, для прокормления себя, прибегал к грабежу. (Еп. Виссарион (Нечаев))
+
+4:20-22: **tents and livestock .. lyre and pipe .. forger** Cain’s immediate descendants are associated with animal breeding, music, and metalwork, all of which are noteworthy cultural and technological developments. (ESV)
+
+4:20-22: **Jabal, Jubal, Tubal-Cain**. **Jabal** invented tents and inaugurated the nomadic life of herdsmen, so common in the Middle East. **Jubal** invented both stringed and wind instruments. **Tubal-Cain** invented metallurgy. (MacArthur)
+
+4:20-22: **Иавал .. Иувал .. Тувалкаин**. Возможно, это написано чтобы обличить суеверие и унизить тщеславие египтян, которые изобретение музыки и кования, как и вообще усовершенствование общежития, приписывали богам или полубогам, своим соотечественникам. (Свт. Филарет (Дроздов))
 
 4:23: Seven generations on from Cain, **Lamech** resembles his ancestor, but seems to be worse. His response is out of proportion to the injury, showing his inordinate vengefulness. (ESV)
 
