@@ -1135,31 +1135,33 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 ### Adam’s Descendants
 
-5:3: While this implies that **Seth** is made, like **Adam**, in the divine **image**, it also suggests that he images his father as well; Seth’s line, however, is certainly portrayed more positively than that of Cain. (ESV)
+5:3: **fathered a son in his own likeness**. While this implies that **Seth** is made, like **Adam**, in the divine **image**, it also suggests that he images his father as well; Seth’s line, however, is certainly portrayed more positively than that of Cain. (ESV)
 
-5:4: One of the most striking aspects of the passage is the great age of the first people in Genesis. The traditional understanding is that the numbers should be taken at face value, often assuming that something changed in the cosmology of the earth or in the physiology of humans (or in both) after the flood, resulting in a rapid decline in longevity, finally stabilizing at a “normal” life span in the range of 70 years or 80 years (Ps. 90:10: “ The years of our life are seventy, or even by reason of strength eighty“). In any case, one clear implication of these genealogies is that these people actually lived (regardless of how long), and that they actually died. (ESV)
+5:4: **lived 800 years**. One of the most striking aspects of the passage is the great age of the first people in Genesis. The traditional understanding is that the numbers should be taken at face value, often assuming that something changed in the cosmology of the earth or in the physiology of humans (or in both) after the flood, resulting in a rapid decline in longevity, finally stabilizing at a “normal” life span in the range of 70 years or 80 years (Ps. 90:10: “ The years of our life are seventy, or even by reason of strength eighty“) (ESV)
 
 5:5: **Lived 930 years**. You complain that you have to work a lot and you can only retire when you are 60? Give me a break! Adam lived in toil *for 900 years*! And that -- after living in the Garden, where everything was growing by itself! (MacArthur)
 
-5:23: The number **365** had no special significance to Hebrews.
+5:5: **and he died**. Two recurring phrases carry redemption history forward: "and he had sons and daughters", "and he died". These repeated lines echo two contrasted realities: "you shall surely die" (2:17) and "be fruitful and multiply" (1:28). (MacArthur)
 
-5:24: **Enoch** is one of the three people in the Bible who were raised to Heaven in a bodily form: Enoch, Elijah, and Jesus Christ.
+5:23: **all the days of Enoch were 365 years**. The number **365** had no special significance to Hebrews.
 
-5:24: Unlike all the other members of this genealogy, **Enoch** did not die, but was **taken** by God.
+5:24: **God took him**. Unlike all the other members of this genealogy, **Enoch** did not die, but was **taken** by God.
 
-5:24: The Hebrew verb for “**walked**” is a distinctive form that conveys the sense of an ongoing intimacy with **God**. Remarkably, because of this special relationship, **Enoch** does not die. (ESV)
+5:24: **God took him**. **Enoch** is one of the three people in the Bible who were raised to Heaven in a bodily form: Enoch, Elijah, and Jesus Christ.
 
-5:24: This line is clearly presented as offering an alternative to the line of seven generations linked to Cain: whereas Cain’s line leads to a killer in the seventh generation, the comparable generation in Seth’s line produces Enoch, who walked with God and did not die. (ESV)
+5:24: **walked with God**. The Hebrew verb for “**walked**” is a distinctive form that conveys the sense of an ongoing intimacy with **God**. Remarkably, because of this special relationship, **Enoch** does not die. (ESV)
 
-5:27: There’s an English expression that dates back to 1300s: “old as **Methuselah**”
+5:24: **Enoch .. God took him**. This line is clearly presented as offering an alternative to the line of seven generations linked to Cain: whereas Cain’s line leads to a killer in the seventh generation, the comparable generation in Seth’s line produces Enoch, who walked with God and did not die. (ESV)
 
-5:27: **Methuselah** died in the year 1656 after creation; because he hasn’t been in the Ark, the flood must have taken place after he died. Further, Arphaxad, the son of Shem, was born in the year 1658 after creation, and because there is no mention of him when Noah’s family had entered the ark, the flood must have taken place before his birth.
+5:27: **Methuselah**. There’s an English expression that dates back to 1300s: “old as **Methuselah**”
+
+5:27: **Methuselah .. died**. **Methuselah** died in the year 1656 after creation; because he hasn’t been in the Ark, the flood must have taken place after he died. Further, Arphaxad, the son of Shem, was born in the year 1658 after creation, and because there is no mention of him when Noah’s family had entered the ark, the flood must have taken place before his birth.
 In the end, the flood must have happened in the years 1656-1658 after creation. It is indeed possible that Methuselah, who outlived his son Lamech, has died in the flood.
-(__[Chronology charts](https://www.google.com/url?q=https://www.google.com/search?tbm%3Disch%26q%3D%2528chronology%257Ctimeline%2529%2Badam%2Babraham&amp;sa=D&amp;ust=1582399365175000)__)
+([Chronology charts](https://www.google.com/url?q=https://www.google.com/search?tbm%3Disch%26q%3D%2528chronology%257Ctimeline%2529%2Badam%2Babraham&amp;sa=D&amp;ust=1582399365175000))
 
-5:31: The number **777** does not look that nice in Hebrew: שֶׁ֤בַע (še·ḇa‘). 
+5:31: **days of Lamech were 777 years**. The number **777** does not look that nice in Hebrew: שֶׁ֤בַע (še·ḇa‘). 
 
-5:31: **Lamech’s 777** years provides an interesting point of contact with his namesake in Ch. 4, where another Lamech, a descendant of Cain, boasted for murdering a man for striking him, and talking about a seventy-sevenfold vengeance (Gen 4:23-24: “Lamech said to his wives: ... I have killed a man for wounding me, a young man for striking me. If Cain's revenge is sevenfold, then Lamech's is seventy-sevenfold”). (seventy-seven: וְשִׁבְעָֽה׃ (wə·šiḇ·‘āh))
+5:31: **days of Lamech were 777 years**. **Lamech’s 777** years provides an interesting point of contact with his namesake in Ch. 4, where another Lamech, a descendant of Cain, boasted for murdering a man for striking him, and talking about a seventy-sevenfold vengeance (Gen 4:23-24: “Lamech said to his wives: ... I have killed a man for wounding me, a young man for striking me. If Cain's revenge is sevenfold, then Lamech's is seventy-sevenfold”). (77 is similar to 777 in Hebrew: וְשִׁבְעָֽה׃ (wə·šiḇ·‘āh))
 
 
 
