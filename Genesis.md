@@ -1223,18 +1223,34 @@ In the end, the flood must have happened in the years 1656-1658 after creation. 
 
 6:2: **sons of God**. Various scholars have proposed that the “**sons of God**” are (1) fallen angels; or (2) tyrannical human judges or kings (in the ungodly line of Lamech, possibly demon-possessed); or (3) followers of God among the male descendants of Seth (i.e., the godly line of Seth, but who married the ungodly daughters of Cain). Though it would be difficult to determine which of these three views may be correct, it is clear that the kind of relationship described here involved some form of grievous sexual perversion, wherein the “**sons of God**” saw and with impunity took any “**daughters of man**” that they wanted. (ESV)
 
-6:2: **sons of God**. The previous chapter said that "God created man in His likeness" (5:1) and then Adam had children, and his children, and so on. This probably means that the **sons of God** are the children from the godly line of Adam.
-What is the problem with **taking wives**, then? As ESV says, some perversion must be involved here, and perhaps, taking women as wives by force. Perhaps, creating harems.
+6:2: **sons of God**. Other mentions. 
+Angels. Job 1:6: "sons of God came .. before the Lord, and satan also came among them"; 
+Angels. Job 38:7: "the sons of God shouted for joy"; 
+Men. Dt 14:1: "You are sons of God";
+Men. Dt 32:8: "according to the numbers of the sons of God". 
+Unknown. Ps 29:1: "Ascribe to the Lord, o sons of God".
+Men. Ps 82:6: "I said, You are Gods, sons of the Most High".
+Angels. Ps 89:6: "Who in the skies can be compared to the Lord? Who among the sons of God?".
+Angel. Dan 3:25: "The appearance of the fourth is like a son of the gods".
 
-6:2: **sons of God**. The sons of God are identified elsewhere almost exclusively as angels (Job 1:6: "sons of God came .. before the Lord, and satan also came among them"; 38:7: "the sons of God shouted for joy"). Peter identifies them with angels (2 Pet 2:4: "God did not spare angels when they sinned". Peter goes on to speak about Noah, flood, Sodom, Lot. In sequence, "angels" are the "sons of God"). 
+6:2: **sons of God**. Angels. Peter identifies them with angels (2 Pet 2:4: "God did not spare angels when they sinned". Peter goes on to speak about Noah, flood, Sodom, Lot. In sequence, "angels" are the "sons of God"). (MacArthur)
+
+6:2: **sons of God**. If these were angels, they would necessarily have to be *fallen* angels. Because the text presupposes that these actions are reprehensible. God's angel will not go against God's will. Consequently, those are fallen angels, not ordinary angels.
+
+6:2: **sons of God**. Men. The previous chapter said that "God created man in His likeness" (5:1) and then Adam had children, and his children, and so on. This probably means that the **sons of God** are the children of men; probably, from the godly line of Adam.
+What is the problem with **taking wives**, then? As ESV says, some perversion must be involved here, and perhaps, taking women as wives by force. Perhaps, creating harems. Or taking Cain's daughters in marriage.
+However, apostle Peter renders this interpretation invalid. See note on 6:2.
+
+6:2: **сыны Божии**. Сыны Сифа и Каина жили сначала отдельно, и эта отдельность ограждала первых от злотворного влияния последних; но вследствие размно­жения тех и других, умножались случаи сближения между ними. Сыны Божии вступали в брак с дщерями нечестивого племени, и при этом не обращали ни малей­шего внимания на опасность для веры и благочестия от таких союзов, а руководились единственно сладострастны­ми побуждениями: они прельщались красотою дщерей че­ловеческих. (Еп. Виссарион (Нечаев))
 
 6:2: **saw .. attractive .. took**. The sequence here parallels the sequence of the fall in 3:6 (“saw … good … took”). In both cases, something good in God’s creation is used in disobedience and sinful rebellion against God, with tragic consequences. (ESV)
 
-6:3: God announces that because of the immoral nature of people, **their days shall be 120 years**. There are two possible interpretations of this number of years: either the lives of human beings will no longer exceed 120 years, or the coming of the flood is anticipated in 120 years. (ESV)
+6:3: **not .. forever; .. 120 years**. God announces that because of the immoral nature of people, **their days shall be 120 years**. There are two possible interpretations of this number of years: either the lives of human beings will no longer exceed 120 years, or the coming of the flood is anticipated in 120 years. (ESV)
 
-6:3: Some interpreters take **120 years** as the countdown to the Flood.
+6:3: **120 years**. Some interpreters take **120 years** as the countdown to the Flood.
 
-6:4: Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it gigantes, “giants” (This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”). One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
+6:4: **The Nephilim**. Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it *gigantes*, “giants”. This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”. 
+One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
 
 6:4: **bore children to them**. Mt 22:30 does not necessarily negate the possibility that angels are capable of procreation, but just that they do not marry. However, to procreate physically, demons had to possess human, male bodies. (MacArthur)
 
