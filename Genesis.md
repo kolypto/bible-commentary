@@ -1217,11 +1217,18 @@ In the end, the flood must have happened in the years 1656-1658 after creation. 
 
 
 
-### Noah and the Flood
+### Increasing Corruption on Earth
 
-6:1: he motif of multiplying is first introduced by God in 1:28, where it is presented in a very positive light and viewed as necessary to fulfill God’s plans for the earth. The present passage, however, reveals that this God-mandated task leads to increasing wickedness on the earth as the population expands. (ESV)
+6:1: **began to multiply**. The motif of multiplying is first introduced by God in 1:28, where it is presented in a very positive light and viewed as necessary to fulfill God’s plans for the earth. The present passage, however, reveals that this God-mandated task leads to increasing wickedness on the earth as the population expands. (ESV)
 
-6:2: Various scholars have proposed that the “**sons of God**” are (1) fallen angels; or (2) tyrannical human judges or kings (in the ungodly line of Lamech, possibly demon-possessed); or (3) followers of God among the male descendants of Seth (i.e., the godly line of Seth, but who married the ungodly daughters of Cain). Though it would be difficult to determine which of these three views may be correct, it is clear that the kind of relationship described here involved some form of grievous sexual perversion, wherein the “**sons of God**” saw and with impunity took any “**daughters of man**” that they wanted. The sequence here in Gen. 6:2 (“**saw** … **attractive** [good] … **took**”) parallels the sequence of the fall in 3:6 (“saw … good … took”). In both cases, something good in God’s creation is used in disobedience and sinful rebellion against God, with tragic consequences. (ESV)
+6:2: **sons of God**. Various scholars have proposed that the “**sons of God**” are (1) fallen angels; or (2) tyrannical human judges or kings (in the ungodly line of Lamech, possibly demon-possessed); or (3) followers of God among the male descendants of Seth (i.e., the godly line of Seth, but who married the ungodly daughters of Cain). Though it would be difficult to determine which of these three views may be correct, it is clear that the kind of relationship described here involved some form of grievous sexual perversion, wherein the “**sons of God**” saw and with impunity took any “**daughters of man**” that they wanted. (ESV)
+
+6:2: **sons of God**. The previous chapter said that "God created man in His likeness" (5:1) and then Adam had children, and his children, and so on. This probably means that the **sons of God** are the children from the godly line of Adam.
+What is the problem with **taking wives**, then? As ESV says, some perversion must be involved here, and perhaps, taking women as wives by force. Perhaps, creating harems.
+
+6:2: **sons of God**. The sons of God are identified elsewhere almost exclusively as angels (Job 1:6: "sons of God came .. before the Lord, and satan also came among them"; 38:7: "the sons of God shouted for joy"). Peter identifies them with angels (2 Pet 2:4: "God did not spare angels when they sinned". Peter goes on to speak about Noah, flood, Sodom, Lot. In sequence, "angels" are the "sons of God"). 
+
+6:2: **saw .. attractive .. took**. The sequence here parallels the sequence of the fall in 3:6 (“saw … good … took”). In both cases, something good in God’s creation is used in disobedience and sinful rebellion against God, with tragic consequences. (ESV)
 
 6:3: God announces that because of the immoral nature of people, **their days shall be 120 years**. There are two possible interpretations of this number of years: either the lives of human beings will no longer exceed 120 years, or the coming of the flood is anticipated in 120 years. (ESV)
 
@@ -1229,10 +1236,13 @@ In the end, the flood must have happened in the years 1656-1658 after creation. 
 
 6:4: Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it gigantes, “giants” (This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”). One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
 
+6:4: **bore children to them**. Mt 22:30 does not necessarily negate the possibility that angels are capable of procreation, but just that they do not marry. However, to procreate physically, demons had to possess human, male bodies. (MacArthur)
+
 6:6: **God** is **grieved** over his creation, which he at first saw as very good (1:31) but which is now filled with sin. (ESV)
 
 6:8: **Noah** is distinguished from the rest of humanity. Apart from Noah, the only other person in the OT who is described as **finding favor in the eyes of the LORD** is Moses, in Ex. 33:17. (ESV)
 
+### Noah and the Flood
 6:9: The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
 
 6:17:  It is possible that the flood, while universal from their viewpoint, did not cover the entire globe. Indeed, Genesis implies that prior to the Tower of Babel incident (see 11:1–9), people had not yet spread throughout the **earth**. Many interpreters, therefore, argue that a huge regional flood may have been all that was necessary for God to destroy all human beings.
