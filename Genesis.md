@@ -1249,8 +1249,14 @@ However, apostle Peter renders this interpretation invalid. See note on 6:2.
 
 6:3: **120 years**. Some interpreters take **120 years** as the countdown to the Flood.
 
+6:3: **потому что они плоть**. Пренебрежение к Духу Божию есть крайняя степень упорства против Духа Святого: оставление без внимания всех Божественных, духовных и нравственных внушений чрез слово, природу и совесть. Поелику в сем состоянии человек действует так, как бы он имел только чувственную природу и никакой другой высшей, то весьма сообразно с сим состоянием называется он плотию. (Свт. Филарет (Дроздов))
+
+6:3: **не вечно Духу Моему быть пренебрегаемым человеками**. Это неестественное состояние человека не может продолжаться вечно, потому что человек, пренебрегая Духа Божия, уже не привлекает Его, но отражает оное. Соответственно, оно по необходимости отвлекается. (Свт. Филарет (Дроздов))
+
 6:4: **The Nephilim**. Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it *gigantes*, “giants”. This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”. 
 One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
+
+6:4: **The Nephilim**. "Nephilim" comes from the word "to fall", indicating that they were strong men who "fell" on others in the sense of overpowering them. They were already in the earth when the "mighty men" and "men of renown" were born. The fallen ones are not the offspring from the union in verses 1 and 2. (MacArthur)
 
 6:4: **bore children to them**. Mt 22:30 does not necessarily negate the possibility that angels are capable of procreation, but just that they do not marry. However, to procreate physically, demons had to possess human, male bodies. (MacArthur)
 
