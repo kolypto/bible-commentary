@@ -1253,10 +1253,18 @@ However, apostle Peter renders this interpretation invalid. See note on 6:2.
 
 6:3: **не вечно Духу Моему быть пренебрегаемым человеками**. Это неестественное состояние человека не может продолжаться вечно, потому что человек, пренебрегая Духа Божия, уже не привлекает Его, но отражает оное. Соответственно, оно по необходимости отвлекается. (Свт. Филарет (Дроздов))
 
+6:3: **потому что они плоть**. Разлив нечестия сначала, без сомнения, встречал преграду в доб­рых нравах и благочестивых преданиях, сохранявшихся в обществе сынов Божиих, но с течением времени сила зла взяла явный перевес. Дошло до того, что все люди стали «плотию», т. е. совершенно заглушили в себе духовные потребности, и помышляя об одних земных выгодах и чувственных удовольствиях, отличались от бес­словесных животных только изобретательностью на сред­ства к умножению и разнообразию этих выгод и удоволь­ствий. Таковое нравственное состояние людей не могло быть терпимо долее. (Еп. Виссарион (Нечаев))
+
+6:3: **120 лет**. Итак, не человеческая жизнь, как многие ошибаются, сокращена до 120 лет, но всему тому поколению 120 лет даны на покаяние. Ведь читаем мы, что после потопа Авраам прожил 175 лет, а другие – более 200 и 300 лет. (Блж. Иероним Стридонский)
+
+6:3: **120 лет**. Очевидно, речь идет не о сокращении человеческой жизни, – она и после потопа продолжалась до 500 лет, – а о том сроке времени, после которого, если люди не покаются, они будут непременно истреблены. Подобное долготерпение Господь являл и в других случаях. Так, Он объявил Аврааму, что истребление аммореев отлагает на 400 лет, пока не исполнится мера беззакония их (Быт. 15:16); ниневитянам Он дал на покаяние 40 дней (Ион. 3:4); Навуходоносору – один год (Дан. 4), иудеям, отвергшим Христа, – 37 лет до разрушения Иерусалима. (Еп. Виссарион (Нечаев))
+
 6:4: **The Nephilim**. Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it *gigantes*, “giants”. This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”. 
 One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
 
 6:4: **The Nephilim**. "Nephilim" comes from the word "to fall", indicating that they were strong men who "fell" on others in the sense of overpowering them. They were already in the earth when the "mighty men" and "men of renown" were born. The fallen ones are not the offspring from the union in verses 1 and 2. (MacArthur)
+
+6:4: **in those days, and also afterward**. The Nephilim were not the children of fallen angels. They existed before such unions started to happen.
 
 6:4: **bore children to them**. Mt 22:30 does not necessarily negate the possibility that angels are capable of procreation, but just that they do not marry. However, to procreate physically, demons had to possess human, male bodies. (MacArthur)
 
