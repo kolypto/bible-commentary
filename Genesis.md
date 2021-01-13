@@ -1268,9 +1268,23 @@ One must be cautious about reading “giants” back into the present passage. T
 
 6:4: **bore children to them**. Mt 22:30 does not necessarily negate the possibility that angels are capable of procreation, but just that they do not marry. However, to procreate physically, demons had to possess human, male bodies. (MacArthur)
 
-6:6: **God** is **grieved** over his creation, which he at first saw as very good (1:31) but which is now filled with sin. (ESV)
+6:5: **every intention .. was only evil continually**. Every. Only. Continually. This language expresses how grievously evil men were. There wasn't even a place for good in their hearts.
 
-6:8: **Noah** is distinguished from the rest of humanity. Apart from Noah, the only other person in the OT who is described as **finding favor in the eyes of the LORD** is Moses, in Ex. 33:17. (ESV)
+6:5: **все мысли и помышления сердца их были зло во всякое время**. И слово «помышления» также многозначительно. Люди делали зло не урывками, но размышляя в сердце, каждый час стремясь к этому и нарочито заботясь об этом, – не то, что раз или два, просто и случайно, увлекшись грехом, но прилежно упражняются в нем и делают злое; то есть, грех совершается ими с большим тщанием, не мимоходом, не небрежно и не в короткое время, но все дни, в течение всей их жизни. Они сделали это своим занятием, прилежно совершая всякого рода зло, и всякий возраст охотно стремился к деланию зла: не было незрелого и непричастного злу возраста, но все тотчас и с самого начала соревновались в этом злом подвиге, стараясь превзойти друг друга в беззаконных делах. 
+Представь же теперь необычайную мудрость праведника, когда он, среди такого единомыслия злых людей, мог избежать заразы и не потерпеть от них никакого вреда, но как бы имея другую природу, сохранил твердость духа и, по собственному изволению устремившись к деланию добра, уклонился от греховного единомыслия с ними, и избавился от постигшей всех погибели.
+(Свт. Иоанн Златоуст)
+
+6:5: **Видел же Господь, что .. всякий образ помышлений сердца их одно зло во всю жизнь**. Бог, яко первая причина всего, судит человека не по наружным действиям, но по их причинам и основаниям и находит повреждение самое глубокое, начинающееся от помышлений сердца; повреждение самое пагубное, простирающееся отсюда на всю деятельность; повреждение всеобщее, простирающееся на все вырождения помышлений сердца. Таким образом, когда самые основания добра повреждены, то нет уже места исправлению, но только разрушению. (Свт. Филарет (Дроздов))
+
+6:6: **it grieved Him**. **God** is **grieved** over his creation, which he at first saw as very good (1:31) but which is now filled with sin. (ESV)
+
+6:6: **grieved Him to His heart**. Sin sorrowed God who is holy and without blemish. (MacArthur)
+
+6:7: **blot out**. God promised total destruction when His patience ran out. (MacArthur)
+
+6:8: **But Noah found favor**. **Noah** is distinguished from the rest of humanity. Apart from Noah, the only other person in the OT who is described as **finding favor in the eyes of the LORD** is Moses, in Ex. 33:17. (ESV)
+
+6:8: **But Noah found favor**.
 
 ### Noah and the Flood
 6:9: The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
