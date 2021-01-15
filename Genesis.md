@@ -1299,7 +1299,15 @@ One must be cautious about reading “giants” back into the present passage. T
 6:8: **Ной же обрел благодать пред очами Господа**. Спасаемый спасается не своим оправданием, но благодатиею Божиею, конечно, и погибающие погибают не от строгости суда, но от крайнего упорства против милующей благодати. (Свт. Филарет (Дроздов))
 
 ### Noah and the Flood
-6:9: The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
+6:9: **blameless**. The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
+
+6:9: **в роде своём**. Иероним (In trad. Hebr.) замечает, что сия похвала ослабляется приложением знаменательных слов в свои времена, так как бы Ной казался совершенным только в сравнении с своими современниками. Напротив того, не больше ли открывается его достоинство тем, что он был совершен в свои времена, то есть во времена всеобщего развращения? (Свт. Филарет (Дроздов))
+
+6:11: **corrupt .. filled with violence**. A striking contrast with the description of Noah's character.
+
+6:12: **всякая плоть**. Писание, как мы часто уже замечали вашей любви, имеет обычай называть плотию людей, питающих плотские расположения и не помышляющих ни о чем возвышенном, как и блаженный Павел говорит: «Посему живущие по плоти Богу угодить не могут» (Рим.8:8). (Свт. Иоанн Златоуст)
+
+6:12: **всякая плоть извратила путь свой на земле**. Все, говорит, одинаково настроены, все устремились к беззаконию, и невозможно в таком множестве найти и одного пекущегося о добродетели. (Свт. Иоанн Златоуст)
 
 6:17:  It is possible that the flood, while universal from their viewpoint, did not cover the entire globe. Indeed, Genesis implies that prior to the Tower of Babel incident (see 11:1–9), people had not yet spread throughout the **earth**. Many interpreters, therefore, argue that a huge regional flood may have been all that was necessary for God to destroy all human beings.
 In support of the view that the flood covered all the **earth**, other interpreters point out that the text says that “all the high mountains under the whole heaven were covered” (7:19) and that the water was “fifteen cubits” above the tops of the mountains. If the mountain range of Ararat was covered, that would be sufficient to cover the entire globe.
