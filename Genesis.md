@@ -1309,7 +1309,13 @@ One must be cautious about reading “giants” back into the present passage. T
 
 6:12: **всякая плоть извратила путь свой на земле**. Все, говорит, одинаково настроены, все устремились к беззаконию, и невозможно в таком множестве найти и одного пекущегося о добродетели. (Свт. Иоанн Златоуст)
 
-6:17:  It is possible that the flood, while universal from their viewpoint, did not cover the entire globe. Indeed, Genesis implies that prior to the Tower of Babel incident (see 11:1–9), people had not yet spread throughout the **earth**. Many interpreters, therefore, argue that a huge regional flood may have been all that was necessary for God to destroy all human beings.
+6:15: **300 кубитов**. Ковчег был длиной 150 метров. Это большой такой лайнер. (Церковь Геленджик)
+
+6:15: **длина .. ширина .. высота**. Детали постройки ковчега еще более убеждают нас в том, что он отнюдь не был похож на наши современные корабли, а скорее напоминал большой сундук, или ящик, или громадный плавучий дом, который имел почти плоскую крышу (спускавшуюся с вершины только на один фут) и освещался единственным, более или менее значительным окном наверху его. 
+В 1609 г. один нидерландский меннонит, некто Петр Янсен построил по типу ковчега, только в уменьшенном масштабе, особое судно, откуда опытно убедился, что хотя подобный корабль и мало приспособлен к плаванию, но он гораздо поместительнее, чем всякий другой корабль (почти на целую треть) иного типа с тем же кубическим объемом.
+(Лопухин А.П.)
+
+6:17: **everything that is on the earth shall die**. It is possible that the flood, while universal from their viewpoint, did not cover the entire globe. Indeed, Genesis implies that prior to the Tower of Babel incident (see 11:1–9), people had not yet spread throughout the **earth**. Many interpreters, therefore, argue that a huge regional flood may have been all that was necessary for God to destroy all human beings.
 In support of the view that the flood covered all the **earth**, other interpreters point out that the text says that “all the high mountains under the whole heaven were covered” (7:19) and that the water was “fifteen cubits” above the tops of the mountains. If the mountain range of Ararat was covered, that would be sufficient to cover the entire globe.
 (ESV)
 
