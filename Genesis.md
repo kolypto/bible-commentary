@@ -1319,6 +1319,31 @@ One must be cautious about reading “giants” back into the present passage. T
 In support of the view that the flood covered all the **earth**, other interpreters point out that the text says that “all the high mountains under the whole heaven were covered” (7:19) and that the water was “fifteen cubits” above the tops of the mountains. If the mountain range of Ararat was covered, that would be sufficient to cover the entire globe.
 (ESV)
 
+6:18: **covenant**. This is the first mention of covenant in Scripture. This pledged covenant is actually made and explained in 9:9-17. (MacArthur)
+
+6:18: **сыновья твои .. и жены сынов твоих**. Хотя они и далеко уступали праведнику в добродетели, однакож  чужды были и чрезмерного нечестия развращенных современников. (Свт. Иоанн Златоуст)
+
+6:19: **of every living thing**. There are fewer than 25 000 species of mammals, birds, and reptiles, living on earth today. It was calculated that the ark had enough cubic space to hold 125 000 sheep. Since the average size of land animals is less than a sheep, perhaps less than 60% of the space was used. The very large animals were surely represented by young. There was ample room also for the one million species of insects, as well as food for a year for everyone. (MacArthur)
+
+6:19: **of every living thing**. What about the provisions for the animals? It can be shown that the food would have filled only 6 to 12 percent of the volume of the ark, and the potable water only an additional 9 percent of the same. 
+How hard is it to take care of so many animals? Studies of non-mechanized animal care indicate that eight people could have fed and watered 16,000 creatures. It was only about bare necessities.
+Many more insights on the ask design here: [AnswersInGenesis](https://answersingenesis.org/noahs-ark/how-could-noah-fit-the-animals-on-the-ark-and-care-for-them/)
+
+6:20: **shall come in to you**. This probably means that animals have miraculously come to Noah by themselves.
+
+6:20: **войдут к тебе, чтобы остались в живых**. Современники Ноевы стеклись на такое новое зрелище, но не для покаяния, а чтобы насладиться, видя, как перед глазами их входят в ковчег львы, в след их без страха спешат волы, ища с ними убежища, вместе входят волки и овцы, ястребы и воробьи, орлы и голуби. (Прп. Ефрем Сирин)
+
+6:21: **food .. for them**. This means that animals were not put to sleep while the ark was sailing.
+
+6:21: **возьми себе всякой пищи**. Как насчёт плотоядных? Если не по естественной потребности, то по нужде и будучи притом без движения, плотоядные бессловесные могли довольствоваться растительной пищей, к которой они так же могли привыкнуть, как при­выкла наконец к ней домашнее плотоядное животное – кошка. 
+Пример: "Кошка три недели плыла из Одессы в Израиль и ела одни конфеты
+РИА Новости Крым" ([новости](https://crimea.ria.ru/world/20210115/1119152962/Koshka-tri-nedeli-plyla-iz-Odessy-v-Izrail-i-ela-odni-konfety.html)).
+(Еп. Виссарион (Нечаев))
+
+6:22: **как повелел ему Бог, так он и сделал**. Восхищает вера праведника: Бог предсказал невероятное, и поручил Ною огромное задание. Без сомнения, современники подняли Ноя на смех и никто ему не помогал. А тем временем Ною нужно было построить огромный многопалубный лайнер. Возможно, он изучал животноводство: как кормить и поить животных в таких масштабах, а так же как отводить фекальные массы. Наверняка было множество других вещей, которыми Ною, по откровению ли, или по изучению, нужно было разработать и внедрить.
+Постройка ковчега заняла огромное количество времени. Верхний предел -- 70 лет, нижний предел -- неизвестно. Но явно не один год. И всё это время Ной и его семья занимались непростым трудом, готовя место для животных, которые даже ещё не пришли. Всё это время они верили, что настанет день, и Бог приведёт к ним тысячи животных.
+Вот что такое вера праведника.
+
 7:1: The reason for **the Lord’s** choosing of **Noah** is that he was **righteous**: the fact that has already been emphasized twice (Gen 6:8, 9, implicitly 13).
 
 7:5: Ной строил ковчег 70 лет (см. Быт 6:3), и строил его на суше. Удивлённые, люди ходили вокруг, и спрашивали: а что это ты делаешь? На что он отвечал: строю ковчег, чтобы когда Бог пошлет воды, спастись в нем. Очевидно, что принять его всерьёз могли только те, кто верили в Бога так же, как он. Таковых не оказалось.
