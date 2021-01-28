@@ -1378,6 +1378,11 @@ It may also be that Noah still wanted to improve a thing or two, but God stopped
 
 7:16: **И затворил Господь за ним**. Может быть, при сем надлежало снаружи покрыть смолою створы двери, чего Ной, нахо­дясь внутри ковчега, сам не мог сделать. (Еп. Виссарион (Нечаев))
 
+7:17: **the flood continued forty days**. The waters didn't cover the earth immediately: there were increasing gradually. 
+Imagine the panic. First, the streets were covered with water. Then the houses. Some people remained, hoping that the rain will cease; others fled to higher places, but the water was still increasing.
+Some people may have remembered that there was an ark Noah has been building.. but the door or the ark was shut.
+People were in panic, fleeing, and the water was getting them anyway.
+
 7:20: **на пятнадцать локтей поднялась над ними вода**. это должно понимать не в отношении к горам, ибо их высота различна, – но в отношении к ковчегу, который, всюду носясь по водам, нигде не касался горных вершин, покрытых водою, хотя погружался на 15 локтей. (Еп. Виссарион (Нечаев))
 
 8: The chronology of the Flood:
@@ -1437,11 +1442,13 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 
 8:13: **The face of the ground was dry**. Even though the earth looked dry, Noah did not leave the ark until God told him to do so in v. 16. This fact says that Noah trusted God’s direct guidance more than his own understanding.
 
-8:17: God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV) Noah and his family represents the new humanity.
+8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
 
 8:20: **The Lord** had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clean, but God had foreseen this episode.
 
 8:20: Noah’s first recorded act on emerging from the ark is to **build an altar to the LORD**. It is an act of gratitude, but also of atonement: the Hebrew for “**pleasing**” (Hb. *nikhoakh*) conveys the idea of rest and tranquility. It is related to the name “**Noah**” (Hb. *noakh*). It also has the sense of “soothing.” The burnt offering soothes God’s anger at human sin.(ESV) 
+
+8:20: **и устроил Ной жертвенник**. Сею жертвою Ной исповедал свою благодарность Богу за спасение от общей погибели себя и бывших с ним в ковчеге, свое смиренное сознание, что он не заслужил сей милости Господа и повинен пред Ним, свое благоговение к Богу, располагающему судьбою человека и всего мира, свое желание и надежду и вперед пользоваться благоволением Божиим. Таким образом, жер­тва Ноева была благодарственная, и вместе покаянная и умилостивительная, и как все жертвы, без сомнения, про­образовала собою крестную жертву Искупителя, и от ней, как единственно удовлетворительной пред правосудием Божиим, получала свою силу. (Еп. Виссарион (Нечаев))
 
 8:20: This is the point where Noah’s name (rest) is fulfilled: God’s anger at human sin has been *noakh*ed: soothed/rest/tranquility.
 
