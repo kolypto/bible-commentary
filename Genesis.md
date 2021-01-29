@@ -1444,20 +1444,26 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 
 8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
 
-8:20: **The Lord** had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clean, but God had foreseen this episode.
+8:20: **every clean bird**. The Lord had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clear, but God had foreseen this episode.
 
-8:20: Noah’s first recorded act on emerging from the ark is to **build an altar to the LORD**. It is an act of gratitude, but also of atonement: the Hebrew for “**pleasing**” (Hb. *nikhoakh*) conveys the idea of rest and tranquility. It is related to the name “**Noah**” (Hb. *noakh*). It also has the sense of “soothing.” The burnt offering soothes God’s anger at human sin.(ESV) 
+8:20: **Noah**. This is the point where Noah’s name (rest) is fulfilled: God’s anger at human sin has been *noakh*ed: soothed/rest/tranquility.
+
+8:20: **built an altar**. Noah’s first recorded act on emerging from the ark is to **build an altar to the LORD**. It is an act of gratitude, but also of atonement: the Hebrew for “**pleasing**” (Hb. *nikhoakh*) conveys the idea of rest and tranquility. It is related to the name “**Noah**” (Hb. *noakh*). It also has the sense of “soothing.” The burnt offering soothes God’s anger at human sin.(ESV) 
 
 8:20: **и устроил Ной жертвенник**. Сею жертвою Ной исповедал свою благодарность Богу за спасение от общей погибели себя и бывших с ним в ковчеге, свое смиренное сознание, что он не заслужил сей милости Господа и повинен пред Ним, свое благоговение к Богу, располагающему судьбою человека и всего мира, свое желание и надежду и вперед пользоваться благоволением Божиим. Таким образом, жер­тва Ноева была благодарственная, и вместе покаянная и умилостивительная, и как все жертвы, без сомнения, про­образовала собою крестную жертву Искупителя, и от ней, как единственно удовлетворительной пред правосудием Божиим, получала свою силу. (Еп. Виссарион (Нечаев))
 
-8:20: This is the point where Noah’s name (rest) is fulfilled: God’s anger at human sin has been *noakh*ed: soothed/rest/tranquility.
+8:20: **built an altar**. **Noah’s** practice and ceremonial functions parallel the festival of Shavuot and sheds light on his priestly functions: God’s first priest. (Wikipedia)
 
-8:20: **Noah’s** practice and ceremonial functions parallel the festival of Shavuot and sheds light on his priesly functions: God’s first priest. (Wikipedia)
+8:21: **the intention of man's heart is evil from his youth**. Notice how this verse echoes very closely 6:5 (“every intention of the thoughts of his heart was only evil continually”). In spite of the human propensity to sin, atonement through sacrifice is possible, securing a peaceful relationship between the Lord and humanity. (ESV)
 
-8:21: Notice how this verse echoes very closely 6:5 (“every **intention** of the thoughts of his **heart** was only **evil** continually”). In spite of the human propensity to sin, atonement through sacrifice is possible, securing a peaceful relationship between the Lord and humanity. (ESV)
+8:21: **never again .., never will I**. Regardless of how sinful mankind would become in the future, God promised not to engage in global catastrophe by flood again (see 9:11: the sign on the covenant). See 2 Pet 3:3-10: in the future, the earth will be destroyed by fire. (MacArthur)
 
-8:22: God promised that everything will be as it is for as long as **the earth remains**, He will not interfere on a grand scale. He gave this promise, and it is evident that God holds to His promise to this day: people ask why, oh, why, there is so much evil in this world, and God does nothing? Because there had been much more evil in the world (Gen 6:5: “every intention of the thoughts of his heart was only evil continually”), and God had “repented that He had made man” (Gen 6:6), and wiped the earth clean with a flood, leaving only one righteous man and his family alive. Earth has become much better, but still God sees that the human heart is so wicked by its nature that “**the intention of man's heart is evil from his youth**”. Even seeing this,God promised not to destroy the earth again. 
-God gave this promise when Noah, being obedient, made an offering to God. This probably explains why this promise has been given: because of the righteous people living on this earth, it will remain.
+8:22: **while the earth remains**. God promised that everything will be as it is for as long as the earth remains, He will not interfere on a grand scale. He gave this promise, and it is evident that God holds to His promise to this day.
+People ask why, oh, why, there is so much evil in this world, and God does nothing? He already has. When there had been much more evil in the world (Gen 6:5: “every intention of the thoughts of his heart was only evil continually”), God wiped the earth clean with a flood, leaving only one righteous man and his family alive. 
+Earth has become much better, but still the human heart is so wicked by its nature that “the intention of man's heart is evil from his youth”. 
+Regardless, God promised not to destroy the earth again. 
+
+8:22: **while the earth remains**. God gave this promise when Noah, being obedient, made an offering to God. This probably explains why this promise has been given: because of the righteous people living on this earth, it will remain.
 The very same pattern of reasoning is clear in Gen 18:26 where Abraham pleads with God for Sodom, and God promised that He will not destroy the whole city — because of the righteous people living in it.
 
 9:1: **God** says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
