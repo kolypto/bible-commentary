@@ -1444,27 +1444,64 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 
 8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
 
-8:20: **every clean bird**. The Lord had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clear, but God had foreseen this episode.
-
 8:20: **Noah**. This is the point where Noah’s name (rest) is fulfilled: God’s anger at human sin has been *noakh*ed: soothed/rest/tranquility.
 
-8:20: **built an altar**. Noah’s first recorded act on emerging from the ark is to **build an altar to the LORD**. It is an act of gratitude, but also of atonement: the Hebrew for “**pleasing**” (Hb. *nikhoakh*) conveys the idea of rest and tranquility. It is related to the name “**Noah**” (Hb. *noakh*). It also has the sense of “soothing.” The burnt offering soothes God’s anger at human sin.(ESV) 
+8:20: **built an altar**. Noah’s first recorded act on emerging from the ark is to **build an altar to the LORD**. It is an act of gratitude, but also of atonement: the Hebrew for “**pleasing**” (Hb. *nikhoakh*) conveys the idea of rest and tranquility. It is related to the name “**Noah**” (Hb. *noakh*), which means "rest". It also has the sense of “soothing”: the burnt offering soothes God’s anger at human sin.(ESV)
 
-8:20: **и устроил Ной жертвенник**. Сею жертвою Ной исповедал свою благодарность Богу за спасение от общей погибели себя и бывших с ним в ковчеге, свое смиренное сознание, что он не заслужил сей милости Господа и повинен пред Ним, свое благоговение к Богу, располагающему судьбою человека и всего мира, свое желание и надежду и вперед пользоваться благоволением Божиим. Таким образом, жер­тва Ноева была благодарственная, и вместе покаянная и умилостивительная, и как все жертвы, без сомнения, про­образовала собою крестную жертву Искупителя, и от ней, как единственно удовлетворительной пред правосудием Божиим, получала свою силу. (Еп. Виссарион (Нечаев))
+8:20: **И устроил Ной жертвенник Господу**. Вышедши из ковчега, прежде всего Ной приступает к жертвоприношению. К сему долженствовали побудить его не только благодарность за избавление в опасности, но также благоговейный страх открывшегося суда Божия и сознание своей пред Богом повинности; ибо сей праведник, без сомнения, не почитал себя самоправедником. (Свт. Филарет (Дроздов))
 
-8:20: **built an altar**. **Noah’s** practice and ceremonial functions parallel the festival of Shavuot and sheds light on his priestly functions: God’s first priest. (Wikipedia)
+8:20: **и устроил Ной жертвенник**. Сею жертвою Ной исповедал свою благодарность Богу за спасение от общей погибели себя и бывших с ним в ковчеге, свое смиренное сознание, что он не заслужил сей милости Господа и повинен пред Ним, свое благоговение к Богу, располагающему судьбою человека и всего мира, свое желание и надежду и вперед пользоваться благоволением Божиим. 
+Таким образом, жер­тва Ноева была благодарственная, и вместе покаянная и умилостивительная, и как все жертвы, без сомнения, про­образовала собою крестную жертву Искупителя, и от ней, как единственно удовлетворительной пред правосудием Божиим, получала свою силу. 
+(Еп. Виссарион (Нечаев))
+
+8:20: **built an altar**. Noah’s practice and ceremonial functions parallel the festival of Shavuot and sheds light on his priestly functions: God’s first priest. (Wikipedia)
+
+8:20: **every clean bird**. The Lord had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clear, but God had foreseen this episode.
+
+8:21: **the pleasing aroma**. Not the aroma of the meat itself, but the "aroma" of a worshipful human heart who loves God and is obedient to Him. This aroma is pleasing indeed!
+
+8:21: **И обонял Господь приятное благоухание**. не запах от мяс животных или воскурения дров, но призрел Он и увидел чистоту сердца в том, кто из всего и за все приносил Ему жертву. (Прп. Ефрем Сирин)
+
+8:21: **приятное благоухание**. Сам Господь не нуждается ни в чём, и жертву Ноеву благоволил принять не для чего другого, как для возбуждения людей к благодарности.
+Жертва Ноева Ему приятна. Но не так поступил Он с неблагодарными Иудеями: "Не носите больше даров тщетных: курение отвратительно для Меня" (Ис 1:13), указывая на нечистоту внутреннего расположения приносящих.
+Добродетель праведника сделала дым благоуханием, а порочность тех приносящих сделала и благовонный фимиам отвратительным для обоняния.
+(Свт. Иоанн Златоуст)
+
+8:21: **приятное благоухание**. Добрейший Господь обыкновенно, обращает внимание не столько на наши жертвы, сколько на внутреннее расположение, с каким мы их совершаем, и, судя по нему, или приемлет, или отвергает наши жертвы. (Свт. Иоанн Златоуст)
 
 8:21: **the intention of man's heart is evil from his youth**. Notice how this verse echoes very closely 6:5 (“every intention of the thoughts of his heart was only evil continually”). In spite of the human propensity to sin, atonement through sacrifice is possible, securing a peaceful relationship between the Lord and humanity. (ESV)
 
 8:21: **never again .., never will I**. Regardless of how sinful mankind would become in the future, God promised not to engage in global catastrophe by flood again (see 9:11: the sign on the covenant). See 2 Pet 3:3-10: in the future, the earth will be destroyed by fire. (MacArthur)
 
-8:22: **while the earth remains**. God promised that everything will be as it is for as long as the earth remains, He will not interfere on a grand scale. He gave this promise, and it is evident that God holds to His promise to this day.
-People ask why, oh, why, there is so much evil in this world, and God does nothing? He already has. When there had been much more evil in the world (Gen 6:5: “every intention of the thoughts of his heart was only evil continually”), God wiped the earth clean with a flood, leaving only one righteous man and his family alive. 
-Earth has become much better, but still the human heart is so wicked by its nature that “the intention of man's heart is evil from his youth”. 
-Regardless, God promised not to destroy the earth again. 
-
-8:22: **while the earth remains**. God gave this promise when Noah, being obedient, made an offering to God. This probably explains why this promise has been given: because of the righteous people living on this earth, it will remain.
+8:21: **never will I ever again strike down every living creature**. God gave this promise when Noah, being obedient, made an offering to God. This probably explains why this promise has been given: because of the righteous people living on this earth, it will remain.
 The very same pattern of reasoning is clear in Gen 18:26 where Abraham pleads with God for Sodom, and God promised that He will not destroy the whole city — because of the righteous people living in it.
+
+8:21: **never will I ever again strike down every living creature**. God promised not to do that again. Clearly not because He did wrong and now promised to behave better! But why, then?
+On the pre-flood earth there were descendants of Cain, and Adam's descendants intermarrying with them. Godly generation decreased and ultimately disappeared, with sin permeating the whole of humanity. Only Noah was left among the righteous.
+After God wiped out the earth once, the situation has changed. We see that there are many more godly people on earth today, and even though humans are sinful, our thoughts are not "only evil continually".
+The second flood is just not necessary. This is why God has made the promise. It was necessary, and now it is not necessary.
+This does not mean, however, that humanity has become righteous, oh no! It only means that human sin is under more control: government, and "he who restrains" (2 Thess 2:7: "For the mystery of lawlessness is already at work. Only he who now restrains it will do so until he is out of the way.")
+
+8:21: **не буду больше проклинать**. "за праведность твою сохранен остаток тварей и не погиб в волнах потопа, и ради жертвы твоей, принесенной от всякой плоти и за всякую плоть, не наведу более потопа на землю." (Прп. Ефрем Сирин)
+
+8:21: **не буду больше проклинать землю за человека, потому что помышление сердца человеческого - зло от юности его**. Сказано, чтобы мы не подумали, будто Он дал такое обещание потому что люди сделались лучше! 
+"Я вижу, что зло растёт, но обещаю более уже не проклинать землю".
+(Свт. Иоанн Златоуст)
+
+8:21: **помышление сердца человеческого - зло от юности его**. В Быт 6:5 Бог сказал похожие слова, но они послужили причиной потопа. Здесь тот же факт берётся в качестве мотива для противоположного отношения к миру.
+Как так?
+Но более внимательное сличение этих двух параллелей, произведенное на почве контекста речи, открывает существенное различие между ними.
+В первом случае сказано гораздо общее и сильнее - именно, что «все мысли и помышления сердца их были зло во всякое время», чем характеризуется не столько наследственная, сколько, главным образом, постоянная личная греховная настроенность, переходящая, как это видно из контекста, в горделивое попрание нравственных устоев и в нераскаянное упорство.
+В рассматриваемом же нами стихе речь идет почти исключительно лишь о наследственной греховной порче, за которую человек сравнительно менее ответственен, чем за сознательную, личную греховность.
+Принесением жертвы человек доказал, что его личная настроенность значительно улучшилась, что хотя он, в силу греховной немощи своей природы, и продолжал грешить, но каждый раз в сознании своего падения и часто с глубокой скорбью об этом и с просьбой к Богу о помиловании, выражением чего и служили различные жертвы.
+Такая перемена в настроении человеческого сердца создавала вполне достаточные основания и для перемены к нему божественного отношения.
+(Лопухин А.П.)
+
+8:22: **while the earth remains**. God promised that everything will be as it is for as long as the earth remains, He will not interfere on a grand scale. He gave this promise, and it is evident that God holds to His promise to this day.
+People ask why, oh, why, there is so much evil in this world, and God does nothing? He already has. When there had been much more evil in the world (Gen 6:5: “every intention of the thoughts of his heart was only evil continually”, and clearly, it is not so today), God wiped the earth clean with a flood, leaving only one righteous man and his family alive. 
+Earth has become much better.
+
+8:22: **Во все дни земли**. Сим показывается, что изображенное обетование не вечно, а имеет свой предел. Дни земли, наконец, должны уступить место дням небес (Пс 88:30: "И положу в век века семя Его."), и тогда не только времен года, но и нощи не будет (Откр. 21:25: "Ворота его не будут запираться днем; а ночи там не будет"). (Свт. Филарет (Дроздов))
 
 9:1: **God** says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
 
