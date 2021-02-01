@@ -1503,17 +1503,27 @@ Earth has become much better.
 
 8:22: **Во все дни земли**. Сим показывается, что изображенное обетование не вечно, а имеет свой предел. Дни земли, наконец, должны уступить место дням небес (Пс 88:30: "И положу в век века семя Его."), и тогда не только времен года, но и нощи не будет (Откр. 21:25: "Ворота его не будут запираться днем; а ночи там не будет"). (Свт. Филарет (Дроздов))
 
-9:1: **God** says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
+9:1: **be fruitful and multiply**. God says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
 
-9:2: To Adam was given the dominion; in Noah’s time animals started to **fear** the human. (ESV)
+9:1: **плодитесь и размножайтесь**. Нельзя здесь не подивиться безмерной благости Господа. Смотри, в самом деле, праведник этот удостаивается того же самого благословения, какого (удостоился) Адам, и утраченное Адамом владычество возвращает себе своею добродетелью, или – лучше сказать – по неизреченному человеколюбию Господа. (Свт. Иоанн Златоуст)
 
-9:3: The second difference is in that humans are now given permission to be carnivorous. (ESV)
+9:1: **плодитесь и размножайтесь**. Как то (Адамово) благословение, так и это (Ноево) одинаково касается трех пунктов: размножения человека, его власти (обладания) над животными и его питания. 
+Но не добавлено, как некогда Адаму: «и обладайте ею» так как человек через грехопадение утратил эту богоподобную силу или, по крайней мере, сильно умалил и сократил её.
+(Лопухин А.П.)
 
-9:6: Violence by “all flesh” prompted God to send the flood (6:11, 13). If human nature has not improved after the flood (8:21: “evil from his youth”), how is violence to be prevented in the future? This legal enactment is the answer: From his fellow **man** I will require a reckoning for the life of **man**, i.e. will be held accountable by God, working through human representatives (“**shall be shed**”). (ESV)
+9:2: **the fear of you .. upon everything**. To Adam was given the dominion; in Noah’s time animals started to fear the human. (ESV)
 
-9:6: Here the principle of *talion*, a life for a life, is applied. Human life is to be valued so highly that it is protected by this system of punishment because God made man in his own image, and so to murder another human being is to murder what is most like God, and is thus implicitly an attack on God himself.  (ESV)
+9:2: **Да страшатся и да трепещут вас**. Сего не было в благословении, данном Адаму: он был владыкою твари, но не страшным. Когда же внутреннее достоинство человека уже не покоряет ему тварей, Бог обуздывает их страхом. Сей страх освобождает нас от опасностей со стороны сильнейших, нежели мы, животных и заставляет их служить нам. (Свт. Филарет (Дроздов))
 
-9:7: God wants humanity to flourish and not to be destroyed by violence or another flood. This positive view of population growth stands in sharp contrast to the Babylonian flood story, which ends with the gods taking measures to inhibit mankind from filling the earth. (ESV)
+9:3: **every moving thing that lives shall be food for you**. The second difference is in that humans are now given permission to be carnivorous. (ESV)
+
+9:4: **but .. not .. blood**. Raw blood was not to be consumed as food. It symbolically represented life. To shed blood symbolically represented death. The blood of animals, representing their life, was not to be eaten. 
+It was, in fact, that blood which God designed to be a covering for sin (Lev 17:11: "For the life of the flesh is in the blood, and I have given it for you on the altar to make atonement for your souls, for it is the blood that makes atonement by the life.").
+(MacArthur)
+
+9:6: **sheds blood, .. by his blood shall be shed**. Here the principle of *talion*, a life for a life, is applied. Human life is to be valued so highly that it is protected by this system of punishment because God made man in his own image, and so to murder another human being is to murder what is most like God, and is thus implicitly an attack on God himself.  (ESV)
+
+9:7: **increase greatly on the earth**. God wants humanity to flourish and not to be destroyed by violence or another flood. This positive view of population growth stands in sharp contrast to the Babylonian flood story, which ends with the gods taking measures to inhibit mankind from filling the earth. (ESV)
 
 9:9: This is the first **covenant** explicitly named in Genesis. A covenant formally binds two parties together in a relationship, on the basis of mutual personal commitment, with consequences for keeping or breaking the commitment. (ESV)
 
