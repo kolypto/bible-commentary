@@ -27,7 +27,15 @@ Paul's instruction here provides the biblical definition of forgiveness, without
 
 1:1: **a prisoner**. By beginning this letter with his imprisonment and not his apostolic authority, Paul made this letter a gentle and singular appeal to a friend. (MacArthur)
 
+1:1: **узник Иисуса Христа**. Если узы за Христа - не стыд, а слава. Не так царь любуется диадемою, как Павел красовался оковами. (Свт. Иоанн Златоуст)
+
+1:1: **узник**. Павел называет себя не Апостолом, а узником. Это потому, что там надлежало действовать апостольскою властью, а здесь предлежит просить. (Свт. Феофан Затворник)
+
+1:1: **узник Иисуса Христа**. Этими словами он придаёт больше силы просьбе своей. «За вас, говорит, обложен я узами. Если б я возлюбил покой, не ходил бы по вселенной и не предлагал Евангелия всем людям, то не изведал бы \[тюрьмы\] на опыте» (Феодорит)
+
 1:1: **Philemon**. A wealthy member of the Colossian church which met in his house (v. 2). (MacArthur)
+
+1:1: **И домашней твоей церкви**. Церковию называет Апостол всех находящихся в доме верующих. (Феофилакт)
 
 1:2: **Apphia, .. Archippus**. (probably) Philemon's wife and son. (ESV)
 
@@ -36,6 +44,8 @@ Paul's instruction here provides the biblical definition of forgiveness, without
 1:2: **to .. the church in your house**. Paul wanted this personal letter read in the church. This reading would hold Philemon accountable, as well as instruct the church on the matter of forgiveness. (MacArthur)
 
 1:3: **Grace .. and peace**. This greeting appears in all 13 of Paul's letters. It highlights salvation's means (grace) and its results (peace) and links the Father and Son, thus affirming the deity of Christ. (MacArthur)
+
+1:3: **Благодарь и мир**. **Благодать** - во спасение, и всякое добро — от нее. **Мир** – итог всех благ благодатного домостроительства спасения, именно умирение течения внутренней жизни, без того обычно возметаемой, как прах, действием властвующих там страстей. (Свт. Феофан Затворник)
 
 ### Philemon's Love and Faith
 
