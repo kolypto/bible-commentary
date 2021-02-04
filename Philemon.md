@@ -51,9 +51,30 @@ Paul's instruction here provides the biblical definition of forgiveness, without
 
 1:4: **remember you**. Before Paul makes his appeal, he graciously and tactfully expresses his thanksgiving for Philemon and describes how he prays for him. (ESV)
 
+1:4: **всегда вспоминая о тебе в молитвах моих**. Тем самым Павел правдиво говорит, что хоть у них и не было возможности встретиться, и созвониться, и переписываться, но Павел всегда вспоминает о Филимоне и возносит за него молитвы к Богу. Всегда.
+
+1:5: **слыша о твоей любви и вере**. Апостолу, страдавшему в узах, доставили утешения известия о заботливости, какую проявил Филимон в отношении к другим христианам, находившимся в тяжелых обстоятельствах. (Лопухин А.П.)
+
+1:5: **слыша о твоей любви и вере**. Павел сначала выразил удивление к этому мужу и похвалил его за добродетели, представил также немаловажное доказательство и своей любви к нему в том, что всегда воспоминает о нем в молитвах своих, и сказал, что многие находят у него покой и что ко всем он оказывает кротость и веру. (Свт. Феофан Затворник)
+
+1:5: **слыша о твоей любви и вере**. Действительно, если другие получают от Филимона то, чего просят, то тем более должен получить просимое Павел. (Свт. Иоанн Златоуст)
+
+1:6: **I pray that the sharing of your faith**. 
+I pray that your partnership with us in the faith may be effective (NIV)
+I pray that the sharing of your faith may become effective (ESV)
+That the communication of thy faith may become effectual (KJV)
+that the sharing of your faith may become effective (NKJV)
+I pray that your participation in the faith may become effective (CSB)
+
+1:6: **общение веры твоей**. "Благодарю Бога за любовь твою, молюсь и о том, чтобы вера твоя, какую имеешь ты общую с нами, была действенна, — деятельная и живая в познании тобою всякого дела благого, то есть в том, чтоб тебе возлюблять (дело благое) его и в дело производить. Ибо вера тогда жива бывает, когда мы прилежим всякому делу благому, как и мертва, когда бывает без добрых дел." (Феофилакт)
+
 1:7: **knowledge of every good thing**. Philemon's sharing will result in his own deeper awareness and experience of the blessings that Christ has for him. (ESV)
 
 1:7: **I have .. joy, .. from your love**. Philemon was well known for his love for his fellow believers, which brought Paul great joy. He had been actively involved in ministering to other Christians in a way that had profoundly encouraged them. (ESV)
+
+1:7: **я получил великую радость и утешение**.  Святой Павел был в таком живом союзе со всеми верующими, что все бывающее с ними принимал, как бы то с ним самим случалось: радовался, когда у них все шло благополучно, скорбел, когда кого угнетали горе и нужда, и утешался, когда кто облегчал участь скорбящих и нуждающихся. (Свт. Феофан Затворник)
+
+1:7: **успокоены сердца святых**. Любовь твоя деятельная радует меня и утешает, не потому только, что она есть зерцало твоего совершенства христианского, но паче потому, что ты упокоиваешь всех братии. (Свт. Феофан Затворник)
 
 ### Paul's Plea for Onesimus
 
