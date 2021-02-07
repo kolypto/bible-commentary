@@ -118,6 +118,10 @@ I pray that your participation in the faith may become effective (CSB)
 
 15: **have him back forever**. As a Christian brother. You had him serve you as a slave; now he is back as a brother, ready to serve the community of believers. (MacArthur)
 
+15: **Ибо, может быть**. Несмотря на очевидное участие Провидения Божьего и спасение Онисима, Павел не позволяет себе сказать с уверенностью, что именно **для того** это всё и произошло.
+
+15: **чтобы тебе принять его навсегда**. Приложи к сему и такое рассуждение: он был раб, а возвращается к тебе братом о Господе. Рабство есть временное и случайное между вами отношение; а братство о Господе есть союз между вами вечный, союз живой и нерасторжимый. Пока оба вы в Господе, ничто, ни во времени, ни в вечности, разлучить вас друг от друга не может. И вышло, таким образом, что он разлучился с тобою на час, чтоб вовеки быть с тобою неразлучным. Остается тебе принять его в том же духе. И приими его, как имеющего вечно пребыть с тобою неразлучным. (Свт. Феофан Затворник)
+
 16: **no longer as a bondservant**. The "as" allowed more freedom for Philemon to ponder and then choose to do what was right, rather than having Paul command him directly. Clearly, however, Paul expected an entirely transformed relationship between the two. (ESV)
 
 16: **more than a slave .. beloved brother**. Paul did not call for Onesimus' freedom, but that Philemon would receive his slave now as a fellow believer in Christ. 
@@ -130,15 +134,29 @@ Christianity never sought to abolish slavery, but rather to make the relationshi
 
 18: **charge that to my accoung**. Roman society expected brutal punishment of fugitive slaves. Thus Paul is asking Philemon to do something quite extraordinary by forgiving Onesimus' debt. (ESV)
 
+18: **Если же он чем обидел тебя или должен**. Павел не мог считать невозможным то, что Филимон жалеет о причинённом ущербе: не из любостяжания, но как у человека домовитого, заботящегося о домашней экономии ввиду умножения средств к благотворительности. Предполагая это, Апостол врачует немощь, и  сразу отсекает ее: "считай это за мной". Это безвозражательно отсекало всякое жаление об ущербе. (Свт. Феофан Затворник)
+
 19: **I, Paul, write this with my own hand**. This action underlines his personal guarantee. (ESV)
 
 19: **owing me even your own self**. Philemon was converted through Paul's ministry, so Philemon "owed" Paul something far greater, namely, his eternal life. The debt that Onesimus owed to Philemon, therefore, is insignificant by comparison. (ESV)
 
+19: **ты и за самого себя мне должен**. «чрез меня сподобился ты спасения» (Феодорит) 
+
+19: **ты и за самого себя мне должен**. Ты обязан мне своим спасением, своею вечноблаженною жизнию. Если б он и все твое имение сгубил, и тогда это не шло бы в сравнение с тем, чем ты мне должен; потому что ты собою мне должен, а имение твое что значит пред тобою? Отнеси это на уплату того долга, каким сам ты мне должен. (Свт. Феофан Затворник)
+
 20: **refresh my heart**. As in v. 7, where Paul rejoiced because "the hearts of the saints have been refreshed through \[Philemon\]" (ESV)
+
+20: **успокой мое сердце во Христе**. Такую сильную выражает заботу об Онисиме, что покоя не имеет и не будет иметь, пока не увидит, что он опять находится в благоприятных обстоятельствах.  (Свт. Феофан Затворник)
+
+20: **успокой мое сердце во Христе**. «Если не хочешь сделать это ради меня, сделай то ради Христа; окажи милость Господу, а не мне». (Свт. Иоанн Златоуст)
+
+20: **утроба**. Любовь мою к тебе. (Свт. Иоанн Златоуст)
 
 21: **you will do**. Onesimus returned, and was accepted by Philemon. See Col 4:9: "Onesimus, our faithful and beloved brother, who is one of you". Another indirect proof that Philemon did as Paul had asked is that he had saved the letter which we are now reading. (MacArthur) 
 
 21: **confident of .. you will do even more**. Paul may have deliberately not given specific instructions to Philemon, giving him the freedom to decide which course of action would be best. (ESV)
+
+21: **зная, что ты сделаешь и более, нежели говорю**. Какой камень не смягчился бы от этих слов? Какой зверь не укротился бы от них и не оказал бы готовности к точному принятию прошения? (Свт. Иоанн Златоуст)
 
 23: **Ephapras**. Epaphras is one of Philemon’s fellow Colossians, whom God had used to plant the church in that city (Col 1:7: "Epaphras, our beloved fellow servant", Col 4:12: "Epaphras, who is one of you"). He is now in Rome, also a prisoner. (ESV)
 
