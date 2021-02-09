@@ -1385,6 +1385,8 @@ People were in panic, fleeing, and the water was getting them anyway.
 
 7:20: **на пятнадцать локтей поднялась над ними вода**. это должно понимать не в отношении к горам, ибо их высота различна, – но в отношении к ковчегу, который, всюду носясь по водам, нигде не касался горных вершин, покрытых водою, хотя погружался на 15 локтей. (Еп. Виссарион (Нечаев))
 
+### The Flood Subsides
+
 8: The chronology of the Flood:
 2/10, Sun: Announcement of the flood 7 days in advance (Gen 7:4,10)
 2/17, Sun: Flood begins; Noah and family enter the ark (Gen 7:11,13)
@@ -1443,6 +1445,9 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 8:13: **The face of the ground was dry**. Even though the earth looked dry, Noah did not leave the ark until God told him to do so in v. 16. This fact says that Noah trusted God’s direct guidance more than his own understanding.
 
 8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
+
+
+### God's Covenant with Noah
 
 8:20: **Noah**. This is the point where Noah’s name (rest) is fulfilled: God’s anger at human sin has been *noakh*ed: soothed/rest/tranquility.
 
@@ -1555,9 +1560,26 @@ It was, in fact, that blood which God designed to be a covering for sin (Lev 17:
 
 9:7: **increase greatly on the earth**. God wants humanity to flourish and not to be destroyed by violence or another flood. This positive view of population growth stands in sharp contrast to the Babylonian flood story, which ends with the gods taking measures to inhibit mankind from filling the earth. (ESV)
 
-9:9: This is the first **covenant** explicitly named in Genesis. A covenant formally binds two parties together in a relationship, on the basis of mutual personal commitment, with consequences for keeping or breaking the commitment. (ESV)
+9:9: **covenant**. This is the first covenant explicitly named in Genesis. A covenant formally binds two parties together in a relationship, on the basis of mutual personal commitment, with consequences for keeping or breaking the commitment. (ESV)
 
-9:13: Different **covenants** have appropriate signs or symbols linked to them. Circumcision is the sign of the covenant with Abraham (ch. 17), and the Sabbath is the sign of the covenant with Israel at Mount Sinai (Ex. 31:12–17). On this occasion God’s designated **sign** is the **rainbow** (Gen. 9:13). Its presence, when rain clouds are in the sky, will be a visible reminder of God’s everlasting covenant (v. 16). (ESV)
+9:13: **I have set my bow in the cloud**. Different covenants have appropriate signs or symbols linked to them. Circumcision is the sign of the covenant with Abraham (ch. 17), and the Sabbath is the sign of the covenant with Israel at Mount Sinai (Ex. 31:12–17). On this occasion God’s designated sign is the **rainbow**. Its presence, when rain clouds are in the sky, will be a visible reminder of God’s everlasting covenant (v. 16). (ESV)
+
+9:15; **I will remember**. Not simple recognition, but God's commitment to keep the promise. (MacArthur)
+
+9:16: **the everlasting covenant**. Other everlasting covenants include:
+1) Abrahamic (Gen. 17:7);
+2) priestly (Num. 25:10–13);
+3) Davidic (2 Sam. 23:5);
+4) new (Jer. 32:40). 
+Of the six explicitly mentioned covenants of this kind in Scripture, only the Mosaic or old covenant was nullified (which was not given as "everlasting")
+(MacArthur)
+
+
+
+
+
+
+### Noah's Descendants
 
 9:18: The objective of the story may have been to justify the subject status of the **Canaanites**, the descendants of **Ham**, to the Israelites, the descendants of Shem. The narrative's short five verses indicate that Canaan's Hamite paternity must have had great significance to the narrator or redactor, according to Sarna, who adds, "The curse on **Canaan**, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham."[13] (__[Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Curse_of_Ham&amp;sa=D&amp;ust=1582399365181000)__)
 
