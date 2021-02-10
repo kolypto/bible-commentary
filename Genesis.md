@@ -1562,9 +1562,15 @@ It was, in fact, that blood which God designed to be a covering for sin (Lev 17:
 
 9:9: **covenant**. This is the first covenant explicitly named in Genesis. A covenant formally binds two parties together in a relationship, on the basis of mutual personal commitment, with consequences for keeping or breaking the commitment. (ESV)
 
+9:10: **и со всякою душею живою**. Вот еще доказательство того, насколько тесна связь человека со всей природой: падает человек, падает и вся природа; гибнет человек, погибает и все живущее, наконец, восстает человек и с ним восстает и вся тварь (Рим. 8:20: "тварь покорилась суете не добровольно, но по воле покорившего ее, в надежде, что и сама тварь освобождена будет от рабства тлению"). (Лопухин А.П.)
+
+9:11: **не будет более истреблена всякая плоть водами потопа**. Так как праведник мог еще подвергаться беспокойству от опасения, как бы, если когда случится и небольшой дождь, опять не постиг вселенную такой же потоп, то, чтобы и он и все потомки его были спокойны касательно этого, то благой Бог, обещает ему более не наводить такого наказания, зная, что и малейшая неприятность будет в состоянии возмутить его (опыт прошлых несчастий может сделать человека весьма робким). (Свт. Иоанн Златоуст)
+
 9:13: **I have set my bow in the cloud**. Different covenants have appropriate signs or symbols linked to them. Circumcision is the sign of the covenant with Abraham (ch. 17), and the Sabbath is the sign of the covenant with Israel at Mount Sinai (Ex. 31:12–17). On this occasion God’s designated sign is the **rainbow**. Its presence, when rain clouds are in the sky, will be a visible reminder of God’s everlasting covenant (v. 16). (ESV)
 
-9:15; **I will remember**. Not simple recognition, but God's commitment to keep the promise. (MacArthur)
+9:15: **I will remember**. Clearly, God did not set Himself a reminder! The reminder is for people, the sign of the covenant.
+
+9:15: **I will remember**. Not simple recognition, but God's commitment to keep the promise. (MacArthur)
 
 9:16: **the everlasting covenant**. Other everlasting covenants include:
 1) Abrahamic (Gen. 17:7);
