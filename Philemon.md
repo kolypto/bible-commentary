@@ -1,5 +1,24 @@
 ## Philemon
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Introduction
 Paul is in prison, and writes to Philemon, a prominent member of the church in Colosse. Philemon was wealthy enough to have a large house (v. 2: "church in your house") and owned at least one slave, Onesimus. 
 Onesimus was not a believer at the time he stole some money (v. 18: "if he has wronged you, or owes you anything"). Like countless thousands of other runaway slave, Onesimus fled to Rome. There he met Paul and became a Christian.
@@ -10,16 +29,72 @@ As much as Paul would like to have retained the services of Onesimus, Paul knew 
 (ESV)
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Slavery
 Slaves in the Roman Empire were not legally considered persons: they could be bought, sold, inherited, exchanged, or seized to pay their master's debt. By the time of the NT there was a realization that a content slave was more productive, so masters tended to treat them more leniently. It was not uncommon for a master to teach a slave his own trade, and some masters and slaves became close friends. 
 In AD20 the Roman Senate granted slaves the right to a fair trial. It also became common for slaves to purchase their freedom.
 Some slaves enjoyed very favorable and profitable service under their masters and were better off than many freemen because they were assured of care and provision. Many freemen struggled in poverty.
 (MacArthur)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Christianity and Slavery
 The NT nowhere directly attacks slavery. Instead, Christianity undermined the evils of slavery by changing the hearts of slaves and masters. 
 Paul's instruction here provides the biblical definition of forgiveness, without ever using the word.
 (MacArthur)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### Greeting
 
@@ -46,6 +121,25 @@ Paul's instruction here provides the biblical definition of forgiveness, without
 3: **Grace .. and peace**. This greeting appears in all 13 of Paul's letters. It highlights salvation's means (grace) and its results (peace) and links the Father and Son, thus affirming the deity of Christ. (MacArthur)
 
 3: **Благодарь и мир**. **Благодать** - во спасение, и всякое добро — от нее. **Мир** – итог всех благ благодатного домостроительства спасения, именно умирение течения внутренней жизни, без того обычно возметаемой, как прах, действием властвующих там страстей. (Свт. Феофан Затворник)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### Philemon's Love and Faith
 
@@ -75,6 +169,25 @@ I pray that your participation in the faith may become effective (CSB)
 7: **я получил великую радость и утешение**.  Святой Павел был в таком живом союзе со всеми верующими, что все бывающее с ними принимал, как бы то с ним самим случалось: радовался, когда у них все шло благополучно, скорбел, когда кого угнетали горе и нужда, и утешался, когда кто облегчал участь скорбящих и нуждающихся. (Свт. Феофан Затворник)
 
 7: **успокоены сердца святых**. Любовь твоя деятельная радует меня и утешает, не потому только, что она есть зерцало твоего совершенства христианского, но паче потому, что ты упокоиваешь всех братии. (Свт. Феофан Затворник)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ### Paul's Plea for Onesimus
 

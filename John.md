@@ -2,6 +2,24 @@
 http://www.sinergia-lib.ru/index.php?section_id=982
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## John
 
 1:12: To **receive** Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)

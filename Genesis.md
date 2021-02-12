@@ -7,6 +7,22 @@ div {
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Genesis
 
 Introduction:
@@ -19,6 +35,7 @@ Parallel to Revelation:
 One special theme that sets this book apart: it corresponds closely with the final book. In the Book of Revelation, the paradise which was lost in Genesis will be regained. God rids His creation of the curse that started in Gen 3, "and there shall be no more curse" (Rev 22:3). In the final chapter of God’s Word, believers will find themselves back in the Garden of Eden, the eternal paradise of God, eating from the Tree of Life (Rev. 22:1–14). (MacArthur)
 
 Author: Moses both the OT and the NT [ascribe this composition to Moses](https://www.esv.org/Exodus+17:14;Numbers+33:2;Joshua+8:31;1+Kings+2:3;2+Kings+14:6;Ezra+6:18;Nehemiah+13:1;Daniel+9:11;Daniel+9:13;Malachi+4:4;Matthew+8:4;Mark+12:26;Luke+16:29;Luke+24:27;Luke+24:44;John+5:46;John+7:22;Acts+15:1;Romans+10:19;1+Corinthians+9:9;2+Corinthians+3:15/)
+
 
 
 
@@ -502,6 +519,8 @@ In ancient Israel, sons did not move away when they married, but lived near thei
 (Свт. Филарет (Дроздов))
 
 2:25: **не стыдились**. Не стыдились же они потому, что облечены были славой. Но когда после преступления заповеди эта слава была отнята от них, они устыдились того, что стали наги, и с поспешностью устремились оба прикрыть листьями не тела свои, но срамоту свою. (Прп. Ефрем Сирин)
+
+
 
 
 
@@ -1307,6 +1326,25 @@ One must be cautious about reading “giants” back into the present passage. T
 
 6:8: **Ной же обрел благодать пред очами Господа**. Спасаемый спасается не своим оправданием, но благодатиею Божиею, конечно, и погибающие погибают не от строгости суда, но от крайнего упорства против милующей благодати. (Свт. Филарет (Дроздов))
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Noah and the Flood
 6:9: **blameless**. The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
 
@@ -1385,6 +1423,25 @@ People were in panic, fleeing, and the water was getting them anyway.
 
 7:20: **на пятнадцать локтей поднялась над ними вода**. это должно понимать не в отношении к горам, ибо их высота различна, – но в отношении к ковчегу, который, всюду носясь по водам, нигде не касался горных вершин, покрытых водою, хотя погружался на 15 локтей. (Еп. Виссарион (Нечаев))
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### The Flood Subsides
 
 8: The chronology of the Flood:
@@ -1445,6 +1502,24 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 8:13: **The face of the ground was dry**. Even though the earth looked dry, Noah did not leave the ark until God told him to do so in v. 16. This fact says that Noah trusted God’s direct guidance more than his own understanding.
 
 8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### God's Covenant with Noah
@@ -1595,9 +1670,23 @@ Of the six explicitly mentioned covenants of this kind in Scripture, only the Mo
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Noah's Descendants
 
-9:18: The objective of the story may have been to justify the subject status of the **Canaanites**, the descendants of **Ham**, to the Israelites, the descendants of Shem. The narrative's short five verses indicate that Canaan's Hamite paternity must have had great significance to the narrator or redactor, according to Sarna, who adds, "The curse on **Canaan**, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham."[13] (__[Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Curse_of_Ham&amp;sa=D&amp;ust=1582399365181000)__)
+9:18: The objective of the story may have been to justify the subject status of the **Canaanites**, the descendants of **Ham**, to the Israelites, the descendants of Shem. The narrative's short five verses indicate that Canaan's Hamite paternity must have had great significance to the narrator or redactor, according to Sarna, who adds, "The curse on **Canaan**, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham." ([Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Curse_of_Ham&amp;sa=D&amp;ust=1582399365181000))
 
 9:18: The text emphasizes the origins of **Canaanites** by naming them twice. The reader who knows that Canaanites were pagan semitic tribes who have been conquered by Israel, and to that reader the text would explain the reason why this conquest has taken place. Descending from a father like **Ham** casts a shadow on on the whole nation.
 
