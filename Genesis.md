@@ -1686,48 +1686,54 @@ Of the six explicitly mentioned covenants of this kind in Scripture, only the Mo
 
 ### Noah's Descendants
 
-9:18: The objective of the story may have been to justify the subject status of the **Canaanites**, the descendants of **Ham**, to the Israelites, the descendants of Shem. The narrative's short five verses indicate that Canaan's Hamite paternity must have had great significance to the narrator or redactor, according to Sarna, who adds, "The curse on **Canaan**, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham." ([Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Curse_of_Ham&amp;sa=D&amp;ust=1582399365181000))
+9:18: **wenth forth from the ark**. By implication, there were no other humans on the whole earth, because all people descended from these three. No Nephilim or other human beings were around. (ESV)
 
-9:18: The text emphasizes the origins of **Canaanites** by naming them twice. The reader who knows that Canaanites were pagan semitic tribes who have been conquered by Israel, and to that reader the text would explain the reason why this conquest has taken place. Descending from a father like **Ham** casts a shadow on on the whole nation.
+9:18: **Ham was the father of Canaan**. The objective of the story may have been to justify the subject status of the Canaanites, the descendants of Ham, to the Israelites, the descendants of Shem. 
+The curse on Canaan, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham. ([Wikipedia](https://en.wikipedia.org/wiki/Curse_of_Ham))
 
-9:19: By implication, there were no other humans on the **whole earth**, because all people descended from **these three**. No Nephilim or other human beings were around. (ESV)
+9:18: **Ham was the father of Canaan**. The text emphasizes the origins of Canaanites by naming them twice (also in v. 22). The reader who knows that Canaanites were pagan semitic tribes who have been conquered by Israel, and to that reader the text would explain the reason why this conquest has taken place. Descending from a father like **Ham** casts a shadow on on the whole nation.
 
-9:21: **Nakedness** may associate Noah with the original sin, one manifestation of which was the awareness of nakedness.
+9:21: **lay uncovered**. Nakedness may associate Noah with the original sin, one manifestation of which was the awareness of nakedness.
 
-9:22: Though the text does not explicitly state what happened, it is clear that **Ham** humiliated and dishonored his father and that he apparently sought to make his brothers a party to that humiliation. Instead, Ham’s **brothers** make every effort to avoid seeing Noah’s **naked** body. (ESV)
+9:22: **saw the nakedness**. Though the text does not explicitly state what happened, it is clear that Ham humiliated and dishonored his father and that he apparently sought to make his brothers a party to that humiliation. Instead, Ham’s brothers make every effort to avoid seeing Noah’s naked body. (ESV)
 
-9:22: The expression "**look upon**" at times has sexual overtones in the Bible, as in Leviticus 20:11, "The man who lies with his father's wife has uncovered his father's nakedness..." As a result, interpreters have proposed a variety of possibilities as to what kind of transgression has been committed by Ham, including the possibility that maternal incest is implied. (Wikipedia)
+9:22: **saw the nakedness**. The expression "look upon" at times has sexual overtones in the Bible, as in Leviticus 20:11, "The man who lies with his father's wife has uncovered his father's nakedness...". As a result, interpreters have proposed a variety of possibilities as to what kind of transgression has been committed by Ham, including the possibility that paternal incest is implied. (Wikipedia)
 
-9:22: Later we learn that **Ham** was also the father of Sodomites (Gen 10:19). This fact may mean that there was a lot involved beyond just observing **his father’s nakedness**: it may have been a sexual act with a senseless drunken father, the obvious signs of which the father has discovered only when he woke up (v. 24).
+9:22: **saw the nakedness**. It may actually mean "watched".
 
-9:22: The majority of commentators, both ancient and modern, have felt that **Ham's seeing his father naked** was not a sufficiently serious crime to explain the punishment that follows. His brothers, however, take the episode seriously enough. 
+9:22: **Ham saw the nakedness**. Later we learn that **Ham** was also the father of Sodomites (Gen 10:19). This fact may mean that there was a lot involved beyond just observing **his father’s nakedness**: it may have been a sexual act with a senseless drunken father, the obvious signs of which the father has discovered only when he woke up (v. 24).
+
+9:22: **saw the nakedness**.  The majority of commentators, both ancient and modern, have felt that Ham's seeing his father naked was not a sufficiently serious crime to explain the punishment that follows. His brothers, however, take the episode seriously enough. 
 The Targum Onqelos (translation of Torah into the Aramaic) has Ham gossiping about his father's drunken disgrace "in the street" (a reading which has a basis in the original Hebrew), so that being held up to public mockery was what had angered Noah.
 The Babylonian Talmud (c. 500 AD) argues that Ham either castrated his father, or sodomised him. The same explanations are found in three Greek translations of the Bible, which replace the word "see" in verse 22 with another word denoting homosexual relations. 
-(__[Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Curse_of_Ham&amp;sa=D&amp;ust=1582399365182000)__)
+([Wikipedia](https://en.wikipedia.org/wiki/Curse_of_Ham))
 
-9:23: The response of Shem and Japheth is in sharp contrast to Ham’s actions, as the brothers honor their father despite his foolish behavior. (ESV)
+9:22: **saw the nakedness**. There is no reasonable support for the notion that some perverse activity has taken place. But clearly, the implication is that Ham looked with some sinful thought. Perhaps, he was glad to see his father's dignity and authority reduced to such weakness. Maybe he thought his brothers might share his feelings so he eagerly told them. If so, they did no share his attitude. (MacArthur)
 
-9:24: The designation of Ham as the **youngest son** is peculiar, given that he is always listed after Shem and before Japheth. Possibly, for some unexplained reason, the traditional order of names does not reflect the birth sequence of the boys. (ESV)
+9:23: **covered the nakedness**. The response of Shem and Japheth is in sharp contrast to Ham’s actions, as the brothers honor their father despite his foolish behavior. (ESV)
 
-9:24: The medieval commentator Rashi writes that the son was not “youngest” but “small” (הקטן), the ‘defective’ one and the 'disgraceful' one. '**small'** does not mean 'the youngest' since Ham was older than Shem. (Wikipedia)
+9:24: **his youngest son**. The designation of Ham as the youngest son is peculiar, given that he is always listed after Shem and before Japheth. Possibly, for some unexplained reason, the traditional order of names does not reflect the birth sequence of the boys. (ESV)
 
-9:25: Biblical scholar Philip R. Davies explains that the author of this narrative used **Noah** to **curse** **Canaan**, in order to provide justification for the later Israelites driving out and enslaving the Canaanites. (Wikipedia)
+9:24: **his youngest son**. The medieval commentator Rashi writes that the son was not “youngest” but “small” (הקטן), the ‘defective’ one and the 'disgraceful' one. '**small'** does not mean 'the youngest' since Ham was older than Shem. (Wikipedia)
 
-9:25: **Canaan** was Ham's fourth son. Noah’s curse does not target the offender, but one specific child of Ham
+9:25: **Cursed be Canaan**. Canaan was not Ham's only son: in fact, ht was Ham's fourth son. Noah’s curse does not target the offender, but one specific child of Ham
 
-9:25: Dead sea scrolls explain that since Ham had already been blessed by God (Genesis 9:1), he could not now be cursed by Noah. 
+9:25: **Cursed be Canaan**. God gave Israel the theological basis for the conquest of Canaan. (MacArthur)
+
+9:25: **Cursed be Canaan**. Dead sea scrolls explain that since Ham had already been blessed by God (Genesis 9:1), he could not now be cursed by Noah. 
 Josephus argued that Noah refrained from cursing Ham because of his nearness of kin, and so cursed Ham's son instead.
 The book of Jubilees explains further that Noah had allocated Canaan a land west of the Nile along with his brothers, but that he violated this agreement and instead chose to squat in the land delineated to Shem (and later Abraham), and so rightly deserved the curse of slavery.
 Another interpretation was that Noah's "youngest son" could not be Ham, who was the middle son: "for this reason they say that this youngest son was in fact Canaan, who had in fact been the first to see Noah, and had then gone and told his father, who then told his brothers in the street.
-According to one legend preserved in the Babylonian Talmud, God cursed Ham because he broke a prohibition on sex aboard the ark and "was smitten in his skin". This tradition explainins dark skin as the result of a curse on Ham.
-(__[Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Curse_of_Ham&amp;sa=D&amp;ust=1582399365183000)__)
+According to one legend preserved in the Babylonian Talmud, God cursed Ham because he broke a prohibition on sex aboard the ark and "was smitten in his skin". This tradition explains dark skin as the result of a curse on Ham.
+([Wikipedia](https://en.wikipedia.org/wiki/Curse_of_Ham))
 
-9:25: This passage was wrongly appealed to in past centuries to justify the enslavement of African people, resulting in grievous abuse, injustice, and inhumanity to people created in the image of God. Noah’s curse of Canaan, which focuses on his being a servant, anticipates the judgment that will later befall the Canaanites (Deut. 7:1–3: “When the LORD your God brings you into the land … and clears away many nations before you, [the descendants of Canaan], then you must devote them to complete destruction. You shall make no covenant with them and show no mercy to them. You shall not intermarry with them”). (ESV)
+9:25: **a servant of servants shall he be**. This passage was wrongly appealed to in past centuries to justify the enslavement of African people, resulting in grievous abuse, injustice, and inhumanity to people created in the image of God. Noah’s curse of Canaan, which focuses on his being a servant, anticipates the judgment that will later befall the Canaanites (Deut. 7:1–3: “When the LORD your God brings you into the land … and clears away many nations before you, \[the descendants of Canaan\], then you must devote them to complete destruction. You shall make no covenant with them and show no mercy to them. You shall not intermarry with them”). (ESV)
 
-9:25: While Genesis 9 never says that Ham was black, he became associated with black skin, through folk etymology deriving his name from a similar, but actually unconnected, word meaning "dark" or "brown". (Wikipedia)
+9:25: **Cursed be Canaan**. While Genesis 9 never says that Ham was black, he became associated with black skin, through folk etymology deriving his name from a similar, but actually unconnected, word meaning "dark" or "brown". (Wikipedia)
 
-9:27: **Shem** is given pride of place, as is implied by Noah’s remark that **Japheth** will dwell in the tents of **Shem**. Shem is first, Japheth is second, but both will prosper. (ESV)
+9:27: **Blessed be the Lord, the God of Shem**. Shem is given pride of place, as is implied by Noah’s remark that Japheth will dwell in the tents of Shem. Shem is first, Japheth is second, but both will prosper. (ESV)
 
+9:27: **Shem**. Shem, the ancestor of Israel, and the other "Shemites" (Semites) were to be the masters of Ham's descendants, the Canaanites. (MacArthur)
 
 
 
