@@ -1686,14 +1686,26 @@ Of the six explicitly mentioned covenants of this kind in Scripture, only the Mo
 
 ### Noah's Descendants
 
-9:18: **wenth forth from the ark**. By implication, there were no other humans on the whole earth, because all people descended from these three. No Nephilim or other human beings were around. (ESV)
+9:18: **went forth from the ark**. By implication, there were no other humans on the whole earth, because all people descended from these three (see v. 19). No Nephilim or other human beings were around. (ESV)
 
 9:18: **Ham was the father of Canaan**. The objective of the story may have been to justify the subject status of the Canaanites, the descendants of Ham, to the Israelites, the descendants of Shem. 
 The curse on Canaan, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham. ([Wikipedia](https://en.wikipedia.org/wiki/Curse_of_Ham))
 
 9:18: **Ham was the father of Canaan**. The text emphasizes the origins of Canaanites by naming them twice (also in v. 22). The reader who knows that Canaanites were pagan semitic tribes who have been conquered by Israel, and to that reader the text would explain the reason why this conquest has taken place. Descending from a father like **Ham** casts a shadow on on the whole nation.
 
+9:18: **Хам**. **Хамство**: тип поведения человека, отличающийся грубым, наглым и резким способом общения (Википедия)
+
+9:19: **от них населилась вся земля**. Не было никаких других людей, и нефилимов каких-нибудь, и Мафусаил тоже не пережил потопа каким-то образом. Только семья Ноя осталась.
+
+9:19: **от них населилась вся земля**. Здесь же можем лишь отметить, что потомство Сима (семиты) населило Армению, Месопотамию, Сирию и Аравию; потомство Хама эмигрировало главным образом в Африку, и, наконец, потомки Иафета распространились по северной части Азии, в Индии, проникли в Европу и даже, вероятно, в Америку (Лопухин А.П.)
+
+9:19: **from these, the people of whole earth**. [Descendants of Shem, Ham, Japeth](https://www.bible-history.com/old-testament/desc-shem-ham-japheth.jpg)
+
+9:21: **и опьянел**. Случившееся произошло по неопытности, а не от невоздержанности. Ной был первым из людей, взявшим сок от плода виноградной лозы, и не знал приемлемого количества напитка. (Блж. Феодорит Кирский)
+
 9:21: **lay uncovered**. Nakedness may associate Noah with the original sin, one manifestation of which was the awareness of nakedness.
+
+9:21: **лежал обнаженным в шатре своем**. Ной в таком виде лежал дома, не видимый многими. Не твердый же в мыслях, разумею Хама, сделал неприличие зрелища сего поводом к преступной насмешке, тогда как должен был бы одеть и даже защитить родителя, побежденного опьянением и подвергшегося дурным последствиям излишнего употребления вина. Но оставив это и пренебрегая почтением к родителю, он стремится сделать и других свидетелями этого зрелища и, сделав из старца как бы театральную сцену, убеждает и братьев к смеху. (Свт. Кирилл Александрийский)
 
 9:22: **saw the nakedness**. Though the text does not explicitly state what happened, it is clear that Ham humiliated and dishonored his father and that he apparently sought to make his brothers a party to that humiliation. Instead, Ham’s brothers make every effort to avoid seeing Noah’s naked body. (ESV)
 
