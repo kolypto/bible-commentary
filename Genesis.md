@@ -1762,6 +1762,10 @@ The Babylonian Talmud (c. 500 AD) argues that Ham either castrated his father, o
 
 9:24: **his youngest son**. The medieval commentator Rashi writes that the son was not “youngest” but “small” (הקטן), the ‘defective’ one and the 'disgraceful' one. '**small'** does not mean 'the youngest' since Ham was older than Shem. (Wikipedia)
 
+9:25: **и сказал**. Содержание этих слов и последовавший опыт показывают, что в них заключается суд не столько человеческий, сколько Божий; и не простые желания, но силою Духа Божия облеченные предсказания. (Свт. Филарет (Дроздов))
+
+9:25: **проклят Ханаан**. Желая изъяснить, каким образом за поступок Хама проклятие пало на сына его Ханаана, евреи говорят, что сей первый увидел наготу своего деда и сказал о том отцу своему (Bereschith rabba, 37). (Свт. Филарет (Дроздов))
+
 9:25: **Cursed be Canaan**. Canaan was not Ham's only son: in fact, ht was Ham's fourth son. Noah’s curse does not target the offender, but one specific child of Ham
 
 9:25: **Cursed be Canaan**. God gave Israel the theological basis for the conquest of Canaan. (MacArthur)
@@ -1774,6 +1778,13 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 ([Wikipedia](https://en.wikipedia.org/wiki/Curse_of_Ham))
 
 9:25: **проклят Ханаан**. В благословениях, которыми Ной благословил двух своих сыновей, он изрек и проклятие на своего внука, ибо пророческий Дух не хотел проклясть того сына, которого благословил Бог вместе с другими сынами. А так как наказание за грех должно было перейти на все поколение сына, осмеявшего наготу (отца), то он совершил проклятие, начиная с его сына. (Мч. Иустин Философ)
+
+9:25: **проклят Ханаан**. Я скажу то, что внушит мне благодать Божия для вашей пользы. Ной хотел и наказать Хама за его преступление и нанесенное ему оскорбление, и вместе не нарушить благословения, данного уже Богом: «благословил Бог Ноя и сынов его», когда они вышли из ковчега (Быт.9:1).
+Но почему за грех отца подвергается наказанию сын? Вы, конечно, знаете, как часто отцы готовы бывают вытерпеть наказание за детей своих, и как для них гораздо мучительнее видеть детей страдающими, нежели самим страдать. Итак, сделано это (т. е. вместо Хама наказан сын его) для того, чтобы и отец по естественной любви к сыну потерпел тягчайшую скорбь, и благословение Божие осталось ненарушимым, и сын, подвергшийся проклятию, понес наказание за собственные грехи, потому что, хотя он теперь подвергается проклятию за грех отца, но, вероятно, был наказан и за собственные грехи.
+Что ни отцы за детей, ни дети за отцов не подвергаются наказанию, но каждый наказывается за свои грехи, об этом говорят пророки во многих местах. 
+(Свт. Иоанн Златоуст)
+
+9:25: **проклят Ханаан**. Ной пощадил Хама, уважая благословение Божие, в котором сей участвовал по исшествии из ковчега, или желал сократить проклятие в одну отрасль рода вместо целого потомства. Дело объяснится совершенно, если с осуждением греха настоящего соединим в Ное предвидение будущих. Хам наказывается в том сыне, или в том племени, которому оставит в наследие свои грехи: наказание самое чувствительное для родоначальника, но не менее праведное в отношении к потомству; наказание даже милосердое, потому что двоякое преступление, родоначальника и рода, метится единожды. (Свт. Филарет (Дроздов))
 
 9:25: **a servant of servants shall he be**. This passage was wrongly appealed to in past centuries to justify the enslavement of African people, resulting in grievous abuse, injustice, and inhumanity to people created in the image of God. Noah’s curse of Canaan, which focuses on his being a servant, anticipates the judgment that will later befall the Canaanites (Deut. 7:1–3: “When the LORD your God brings you into the land … and clears away many nations before you, \[the descendants of Canaan\], then you must devote them to complete destruction. You shall make no covenant with them and show no mercy to them. You shall not intermarry with them”). (ESV)
 
