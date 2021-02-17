@@ -1835,15 +1835,19 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 10: In general, the descendants of Ham settled in North Africa and the eastern Mediterranean coast, the descendants of Shem in Mesopotamia and Arabia, and the descendants of Japheth in Europe and the greater area of Asia Minor. (ESV)
 
-10:6: **Ham** is the **father** of Philistia, **Egypt**, Assyria, Nineveh, and other enemies of Israel. He is the father of **Sodom**, **Canaan** and other nations which are seen in the Bible as base and sinful.
+10:5: **Each with his own language**. This act describes the situation after the Tower of Babel in the following chapter.
 
-10:6: **Ham’s** descendants receive considerably more attention than those of Japheth and Shem. Among them figure many of Israel’s enemies, such as the **Egyptians**, Babylonians, Philistines, and various **Canaanite** groups. (ESV)
+10:6: **The sons of Ham**. Ham is the father of Philistia, Egypt, Assyria, Nineveh, and other enemies of Israel. He is the father of Sodom, Canaan and other nations which are seen in the Bible as base and sinful.
 
-10:9: **Nimrod** is linked to the great cities of Babel (i.e., Babylon; see note on 11:9) and Nineveh in Assyria, whose inhabitants at a later stage would descend in destructive power on the kingdoms of Israel and Judah. (ESV)
+10:6: **The sons of Ham**. Ham's descendants receive considerably more attention than those of Japheth and Shem. Among them figure many of Israel’s enemies, such as the Egyptians, Babylonians, Philistines, and various Canaanite groups. (ESV)
 
-10:21: These are the people with whom Israelites felt the most affinity, for Abraham was descended from **Shem**. Insofar as they can be identified, many of these are Arabian tribes or kingdoms. (ESV)
+10:9: **Nimrod a mighty hunter**. Nimrod is linked to the great cities of Babel (i.e., Babylon; see note on 11:9) and Nineveh in Assyria, whose inhabitants at a later stage would descend in destructive power on the kingdoms of Israel and Judah. (ESV)
 
-10:21: **Eber** is mentioned even before Shem’s own sons are named. The designation “Hebrew” (Hb. ‘ibri; see 14:13) is derived from “**Eber**” (Hb. ‘eber). (ESV)
+10:10: **Babel**. The city was the beginning of what later would prove to be Babylon, the eventual destroyer of God's people and His city Jerusalem c. 605-539 B.C. (MacArthur)
+
+10:21: **The sons of Shem**. These are the people with whom Israelites felt the most affinity, for Abraham was descended from Shem. Insofar as they can be identified, many of these are Arabian tribes or kingdoms. (ESV)
+
+10:21: **Eber**. Eber is mentioned even before Shem’s own sons are named. The designation “Hebrew” (Hb. ‘ibri; see 14:13) is derived from “Eber” (Hb. ‘eber). (ESV)
 
 
 
