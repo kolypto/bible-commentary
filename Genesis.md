@@ -1861,13 +1861,29 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 10:5: **каждый по языку своему, по племенам своим**. Здесь рассматривается много веков истории, как три сына разделились на многие народы. Сначала у всех был один язык, но потом случилась история с Вавилонской Башней, и впоследствии, у каждого народа стал свой язык.
 
+10:5: **острова**. Евреи одним и тем же именем означали земли, лежащие на море, за морем и вообще отдаленные и малоизвестные, сие согласно с состоянием землеописания в древние времена и с положением собственной их земли. (Свт. Филарет (Дроздов))
+
 10:6: **The sons of Ham**. Ham is the father of Philistia, Egypt, Assyria, Nineveh, and other enemies of Israel. He is the father of Sodom, Canaan and other nations which are seen in the Bible as base and sinful.
 
 10:6: **The sons of Ham**. Ham's descendants receive considerably more attention than those of Japheth and Shem. Among them figure many of Israel’s enemies, such as the Egyptians, Babylonians, Philistines, and various Canaanite groups. (ESV)
 
+10:6: **Куш**. Эфиопия. Объяснение у Дроздова. (Свт. Филарет (Дроздов))
+
+10:6: **Мицраим**. Египет. (Свт. Филарет (Дроздов))
+
+10:6: **Фут**. Африканские народы и Ливия. (Свт. Филарет (Дроздов))
+
+10:8: **Нимрод**. Оно означает «бунтовщик, мятежник, возмутитель» (от евр. глагола marad - огорчать, досаждать, восставать, возмущаться); поэтому, некоторые экзегеты полагают, что оно было усвоено ему лишь позднее, на основании его насильнической деятельности. (Лопухин А.П.)
+
 10:9: **Nimrod a mighty hunter**. Nimrod is linked to the great cities of Babel (i.e., Babylon; see note on 11:9) and Nineveh in Assyria, whose inhabitants at a later stage would descend in destructive power on the kingdoms of Israel and Judah. (ESV)
 
+10:9: **Пред Господом**. Эти слова обозначают собой наивысшую степень того или другого качества, уже превышающую компетенцию человека, а доступную только оценке самого Бога. (Лопухин А.П.)
+
+10:9: **сильный зверолов, как Нимрод**. Суть данной поговорки состояла в том, что когда хотели кого-либо особенно похвалить и прославить, то его сравнивали по силе отваги и мужества с Нимродом. (Лопухин А.П.)
+
 10:10: **Babel**. The city was the beginning of what later would prove to be Babylon, the eventual destroyer of God's people and His city Jerusalem c. 605-539 B.C. (MacArthur)
+
+10:10: **Царство его вначале составляли**. Вот самое первое библейское известие о начале политической, государственной жизни на земле. По мнению большинства авторитетных ученых, Библия говорит здесь о так называемой в науке «первой халдейской конфедерации», т. е. о первом союзе халдейских городов, объединенных под властью знаменитого кушитянина Нимрода, известного и в древнехалдейских надписях под титулом «Арба-Лизуна», т. е. государя четырех языков. (Лопухин А.П.)
 
 10:21: **The sons of Shem**. These are the people with whom Israelites felt the most affinity, for Abraham was descended from Shem. Insofar as they can be identified, many of these are Arabian tribes or kingdoms. (ESV)
 
