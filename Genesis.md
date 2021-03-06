@@ -1913,7 +1913,13 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 10:23: **Уц**. Со значительной достоверностью предполагают, что он дал свое имя стране Уц, откуда впоследствии вышел Иoв (Иов. 1:1) и которая была расположена на юго-востоке Палестины, по пути к Аравийской пустыне. (Лопухин А.П.)
 
+10:24: **Евер**. того самого патриарха, имя которого впоследствии было усвоено богоизбранному народу еврейскому. Само по себе это имя означает человека, перешедшего через реку: вероятно, реки Евфрата. (Лопухин А.П.)
 
+10:24: **Иоактан**. Арабы называют его Кахтан и почитают отцом многих племен счастливой Аравии и самого языка арабского. Следы его имени показывает народ Катаниты у Птолемея и город Вайсаф–Иектан в окрестностях Мекки. (Свт. Филарет (Дроздов))
+
+10:26: **Иоктан родил**. В этом разделе дан довольно подробный перечень главнейших аравийских племен, большинство которых можно указывать лишь предположительно. (Лопухин А.П.)
+
+10:32: **острова**. в том смысле, что каждая из них существовала отдельно одна от другой, как острова на море, – не смешиваясь с другими ни границами, ни язы­ком, ни учреждениями, ни обычаями. Это разделение и рассеяние повсюду народов произошло, главным образом, от чуда смешения языка, которое описывается в следую­щих стихах. (Еп. Виссарион (Нечаев))
 
 
 
@@ -1927,24 +1933,45 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 ### The Tower of Babel
 
-11:4: It is commonly believed that a Ziggurat was being built in the Tower of Babel episode: a monumental temple-tower with stairways ascending to the top of the structure where a small temple/shrine sat on the summit. They were commonly built of sun-dried mud and straw bricks held in position with bitumen as mortar, and the text indicates that the builders of Babel had discovered the process of making mud bricks and that they employed “**bitumen for mortar**”. Based on that invention, the builders decided “to build … a tower with its top in the heavens”. (ESV)
+11:1: **один язык**. Какой же?
+Возможно, что еврейский. При помощи долголетней жизни Патриархов и их постоянства во мнениях и обыкновениях, язык Адамов без великого повреждения долженствовал сохраниться до Ноя, язык Ноев — до Авраама, язык же Авраамов есть еврейский. 
+Кроме того, в еврейском языке доселе преимущественно сохраняется то достоинство первоначального языка, что в его наименованиях видимы свойства вещей. В Св. Писании он из себя самого изъясняет древнейшие имена мест и лиц, кроме весьма немногих, коих корни утратились или сохранились только в других ближайших к нему языках. 
+А в сравнении с другими древними языками, более всех имеет он чистоты, простоты и правильности в своем образовании. Древнейшие имена народов, стран, божеств языческих и многие другие слова, коих начала невидимы в других языках, изъясняются из еврейского (Адам, Ева, Каин, Сиф, Вавилон; Вавилоняне, Халдеи, Кушиты). Вообще, в нем сближаются древности языков, как потоки при источнике. Древнейшие остатки человеческой культуры носят довольно ясные следы кушито-семитического влияния.
+(Свт. Филарет (Дроздов))
 
-11:4: Clearly nothing was wrong with the **city** and the **tower** itself: God was not going to delegitimize skyscrapers! There was definitely something wrong with the reasons why the tower was built, with its purpose or meaning, and originally, with the hearts of the men that have decided to build that tower, and their combined effort in achieving that wicked purpose, whatever it was. And it was wicked no doubt, judging by God’s reaction, and remembering that “the intention of man's heart is evil from his youth” (Gen 8:21).
+11:2: **from the east**. East of Eden.
 
-11:4: This episode is significantly more important than its length suggests. It presents a unified humanity using all its resources to establish **a city** that is the antithesis of what God intended when he created the world. The tower is a symbol of human autonomy, and the city builders see themselves as determining and establishing their own destiny without any reference to the Lord. (ESV)
+11:3: **they**. Under the leading of the powerful Nimrod (Gen 10:10: "the beginning of his kingdom was Babel, ..."). (MacArthur)
 
-11:4: The purpose of building the **city**: in order not to be **dispersed**; the purpose of building a tower: to **make a name** for themselves. The ultimate goals were security and praise. (ESV)
+11:3: **said to one another**. In this account, people never mention God. This indicates that man had turned against God in pride. (~MacArthur)
 
-11:4: The Babel enterprise is all about human independence and self-sufficiency apart from God. The **builders** believe that they have no need of God. Their technology and social unity give them confidence in their own ability. (ESV)
+11:3: **make bricks**. They had to make bricks, since there were few stones on the plain. (MacArthur)
 
-11:4: Contrary to God’s plan that people should fill the earth, the city-building project is designed to prevent the population from being **dispersed** over the face of the whole earth. (ESV)
+11:4: **Let us build .. a city and a tower**. Clearly nothing was wrong with the city and the tower itself: God was not going to delegitimize skyscrapers! There was definitely something wrong with the reasons why the tower was built, with its purpose or meaning, and originally, with the hearts of the men that have decided to build that tower, and their combined effort in achieving that wicked purpose, whatever it was. And it was wicked no doubt, judging by God’s reaction, and remembering that “the intention of man's heart is evil from his youth” (Gen 8:21).
 
-11:6: Here **God** clarifies His reasoning: it’s not only that something unacceptable was going on at that moment; it’s the path that the humans have taken that would lead them to even worse things.
+11:4: **build .. a city and a tower**. This episode is significantly more important than its length suggests. It presents a unified humanity using all its resources to establish **a city** that is the antithesis of what God intended when he created the world. The tower is a symbol of human autonomy, and the city builders see themselves as determining and establishing their own destiny without any reference to the Lord. (ESV)
 
-11:7: Acknowledging the potential danger of a unified, self-confident humanity (v. 6), God intervenes by **confusing their language** so that they cannot understand one another. This has the desired effect of dispersing the people throughout the world. (ESV)
+11:4: **whose top is in the heavens**. The tower would not actually reach the abode of God. They wanted it to be a high tower as a monument to their abilities, one that would enhance their fame. In this endeavor, they disobeyed God and attempted to steal His glory. (MacArthur)
+
+11:4: **lest we be dispersed**. Contrary to God’s plan that people should fill the earth, the city-building project is designed to prevent the population from being **dispersed** over the face of the whole earth. (ESV)
+
+11:4: **lest we be dispersed**. The purpose of building the **city**: in order not to be **dispersed**, and to **make a name** for themselves. The ultimate goals were security and praise. (ESV)
+
+11:4: **make a name for ourselves**. The Babel enterprise is all about human independence and self-sufficiency apart from God. The **builders** believe that they have no need of God. Their technology and social unity give them confidence in their own ability. (ESV)
+
+11:4: **A tower**. It is commonly believed that a Ziggurat was being built: a monumental temple-tower with stairways ascending to the top of the structure where a small temple/shrine sat on the summit. They were commonly built of sun-dried mud and straw bricks held in position with bitumen as mortar, and the text indicates that the builders of Babel had discovered the process of making mud bricks and that they employed “**bitumen for mortar**”. Based on that invention, the builders decided “to build … a tower with its top in the heavens”. (ESV)
+
+1:4: **построим .. башню**. Столпотворение.
+
+11:6: **nothing .. will be impossible to them**. Here **God** clarifies His reasoning: it’s not only that something unacceptable was going on at that moment; it’s the path that the humans have taken that would lead them to even worse things.
+
+11:7: **confuse their language**. Acknowledging the potential danger of a unified, self-confident humanity (v. 6), God intervenes by **confusing their language** so that they cannot understand one another. This has the desired effect of dispersing the people throughout the world. (ESV)
+
+11:8: **scattered them**. This is how the families of the earth "were divided" (10:5: "each with his own language, by their clans"). (MacArthur)
 
 11:9: **Babel** is also the name used in the OT for the city of Babylon. As a city, Babylon symbolizes humanity’s ambition to dethrone God and make the earth its own (see Revelation 17–18). (ESV)
 
+11:9: **рассеял по всей земле**. А город и башню мы всё-таки построили: общество, гордящееся достижениями науки и техники, и отошедшее от Бога: считающее веру пережитком прошлого и уделом неумных людей.
 
 
 
