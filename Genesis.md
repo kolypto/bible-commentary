@@ -1945,7 +1945,12 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:3: **said to one another**. In this account, people never mention God. This indicates that man had turned against God in pride. (~MacArthur)
 
-11:3: **make bricks**. They had to make bricks, since there were few stones on the plain. (MacArthur)
+11:3: **наделаем кирпичей и обожжем огнем**. На востоке для сооружений обыкновенно употребляли кирпичи из глины, высушенные на солнце. Но такой мате­риал был бы весьма непрочен для сооружений, предприни­маемых на местности низменной, заливаемой наводнения­ми Евфрата. 
+Виновники предприятия благоразумно реши­ли употребить кирпичи, выжженные огнем, а для связи, вместо извести или глины удоборазмываемых, – ас­фальт – земляную смолу, которой до сих пор обилует эта местность. 
+Развалины Вавилона, уцелевшие до нашего вре­мени, состоят из остатков обожженных кирпичей со смо­ляной спайкой. 
+(Еп. Виссарион (Нечаев))
+
+11:3: **they had brick for stone**. They had to make bricks, since there were few stones on the plain. (MacArthur)
 
 11:4: **Let us build .. a city and a tower**. Clearly nothing was wrong with the city and the tower itself: God was not going to delegitimize skyscrapers! There was definitely something wrong with the reasons why the tower was built, with its purpose or meaning, and originally, with the hearts of the men that have decided to build that tower, and their combined effort in achieving that wicked purpose, whatever it was. And it was wicked no doubt, judging by God’s reaction, and remembering that “the intention of man's heart is evil from his youth” (Gen 8:21).
 
@@ -1961,7 +1966,25 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:4: **A tower**. It is commonly believed that a Ziggurat was being built: a monumental temple-tower with stairways ascending to the top of the structure where a small temple/shrine sat on the summit. They were commonly built of sun-dried mud and straw bricks held in position with bitumen as mortar, and the text indicates that the builders of Babel had discovered the process of making mud bricks and that they employed “**bitumen for mortar**”. Based on that invention, the builders decided “to build … a tower with its top in the heavens”. (ESV)
 
-1:4: **построим .. башню**. Столпотворение.
+11:4: **построим .. башню**. Столпотворение.
+
+11:4: **город и башню**. Слова город и башня значат или совокупно укрепленный город, или раздельно город с одною башнею для укрепления и великолепия. См. Суд 9:51: "Среди города была крепкая башня, и убежали туда все мужчины и женщины и все жители города, и заперлись и взошли на кровлю башни" (Свт. Филарет (Дроздов))
+
+11:4: **построим город и башню**. в намерении строителей, вероятно, было и желание помешать осуществлению божественного пророчества о всеобщем рассеянии потомков Ноя созданием такого центра, который был бы виден для всех и снова объединил бы всех вокруг себя. (Лопухин А.П.)
+
+11:4: **построим себе город и башню**. Люди не поверили Богу, что потопа больше не будет, и решили построить град, который в верхах своих спас всех их от потопления, потому что одни из них видели, а другие слышали от очевидцев, что вода потопная покрывала самые высокие горы. Не могли они представить себе, что Бог всемогущ и вездесущ, что если Он захочет наказать человека, то ему нигде не укрыться от карающей Его десницы.
+(Прав. Иоанн Кронштадский)
+
+11:4: **построим город и башню**. Для строителей важны были город и башня, как места укрепленные и потому удобные не только для безопасности от нападений, но вместе для того, чтобы иметь в них точку опоры для нападения на других и для распространения и утверждения над ними власти. (Еп. Виссарион (Нечаев))
+
+11:4: **до небес**. Это гиперболическое выражение (не беспримерное в священных книгах) означает необыкно­венную высоту башни. Например, Втор 1:28: "города там большие и с укреплениями до небес". (Еп. Виссарион (Нечаев))
+
+11:4: **до небес**. Мнение, будто строители башни хотели сделать ее убежищем для спасения на случай нового потопа, неосно­вательно: воды всемирного потопа покрывали самые высокие горы на земном шаре: могли ли они мечтать, что могут возвести башню выше всех земных гор? (Еп. Виссарион (Нечаев))
+
+11:4: **сотворим себе имя**. Да заслужим, говорят, вечную память; пусть всегда помнят о нас; наше дело и создание будет таково, что никогда не забудется! (Свт. Иоанн Златоуст)
+
+11:4: **сотворим себе имя**. Сотворить имя, на языке Св. Писания значит снискать славу. Итак, одною из побудительных причин к столпотворению было славолюбие; другою причиною было желание воспрепятствовать рассеянию и разделению человеческого рода. Нетрудно судить, достойно ли было наказания предприятие, толико противное известной воле Божией. (Свт. Филарет (Дроздов))
+
 
 11:6: **nothing .. will be impossible to them**. Here **God** clarifies His reasoning: it’s not only that something unacceptable was going on at that moment; it’s the path that the humans have taken that would lead them to even worse things.
 
