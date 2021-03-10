@@ -1985,10 +1985,17 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:4: **сотворим себе имя**. Сотворить имя, на языке Св. Писания значит снискать славу. Итак, одною из побудительных причин к столпотворению было славолюбие; другою причиною было желание воспрепятствовать рассеянию и разделению человеческого рода. Нетрудно судить, достойно ли было наказания предприятие, толико противное известной воле Божией. (Свт. Филарет (Дроздов))
 
+11:5: **и сошёл Господь посмотреть**. Он не с самого начала останавливает их неистовство, но показывает великое долготерпение, и выжидает, чтобы они привели в исполнение весь злой замысел свой, дабы никто не мог сказать, что они и решились было, но не привели в исполнение свои замыслы. (Свт. Иоанн Златоуст) 
+
+11:5: **И сошел Господь посмотреть**. Всеведующему не нужно воочию видимое нисхождение, так как Ему открыты все, даже самые сокровенные помышления человеческого сердца, следовательно, это выражение - антропоморфическое. (Лопухин А.П.)
+
+11:5: **И сошел Господь посмотреть**. Он принимает это дело к особенному Своему сведению, имеет за ним особенное наблюдение, и решает явить особенное свое присутст­вие на месте начатых работ. (Еп. Виссарион (Нечаев))
 
 11:6: **nothing .. will be impossible to them**. Here **God** clarifies His reasoning: it’s not only that something unacceptable was going on at that moment; it’s the path that the humans have taken that would lead them to even worse things.
 
 11:7: **confuse their language**. Acknowledging the potential danger of a unified, self-confident humanity (v. 6), God intervenes by **confusing their language** so that they cannot understand one another. This has the desired effect of dispersing the people throughout the world. (ESV)
+
+11:7: **сойдем же и смешаем**. Множественное число; совет Троицы.
 
 11:8: **scattered them**. This is how the families of the earth "were divided" (10:5: "each with his own language, by their clans"). (MacArthur)
 
