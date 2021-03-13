@@ -2068,16 +2068,29 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 ### Terah's Descendants
 
-11:28: **Ur** was a city with a highly developed urban culture. (ESV)
+11:27: **Фарра**. Фарра был идолопоклонником. Нав 24:2-3: "за рекою жили отцы ваши издревле, Фарра, отец Авраама и отец Нахора, и служили иным богам."
 
-11:31: **Terah** has decided to leave **Ur** and move to **Canaan**, the land where, as the reader knows, Hebrews are ultimately supposed to settle. It’s not clear why Terah has decided to leave **Ur,** and why he has decided to **go into the land of Canaan**, but it happened only after Haran died (v. 28). Whatever the purpose was, in the middle of the road Terah has changed his mind, and the family has **settled** in **Haran**, “**settled**” meaning that he had no intention of travelling any further. He lived there until he died; it was **Abram** who continued the journey at the Lord’s prompting.
+11:28: **Ur of the Chaldeans** was a city with a highly developed urban culture. (ESV)
+
+11:28: **Умер Аран пред лицем Фарры**. Епифаний (de Hares L. I) думает, что редкая в древности смерть сына прежде отца была наказанием Фарры за идолопоклонство. (Свт. Филарет (Дроздов))
+
+11:29: **Аврам и Нахор взяли себе жен**. Аран умер. Его дочь взял в жёны его брат Нахор. А Сара, как видно из Быт 20:12 ("она дочь отца моего, только не дочь матери моей"), либо тоже дочь Арана, либо дочь Фарры от другой жены.
+
+11:31: **И взял Фарра**. Здесь вовсе не упоминаются ни Нахор, ни жена его Милка. В Быт 24:10 находим: "Он встал и пошел в Месопотамию, в город Нахора" (Быт 24:10). Он переселился сам. (~Блаж. Августин)
+
+11:31: **вышел с ними из Ура Халдейского, чтобы идти в землю Ханаанскую**. Сын Авраам был боголюбив, и Бог, явившись ему, повелел переселиться из Месопотамии (Деян 7:2: "Бог славы явился отцу нашему Аврааму в Месопотамии, прежде переселения его в Харран"). Узнав об этом, Фарра, отец его, хотя был и неверующий, по любви к сыну решился пойти вместе с ним, пришел в Харран, пожил там и скончался. Тогда-то уже патриарх, по повелению Божию, переселился в землю Ханаанскую. См. 
+
+11:31: **И взял Фарра Аврама, сына своего**. Причиною предпринятого Фаррою путешествия должно полагать повеление Божие, которое Моисей показывает ниже в истории Аврама (12:1). В такой же точно силе пересказывает оное и Стефан в книге Деяний апостольских (Деян. 7:1-4). И сам Бог говорит Авраму, что вывел его не из Харрана, но из Ура Халдейского (Быт. 15:7: "И сказал ему: Я Господь, Который вывел тебя из Ура Халдейского"). (Свт. Филарет (Дроздов))
+
+11:31: **went forth .. into the land of Canaan**. Terah has decided to leave Ur and move to Canaan, the land where, as the reader knows, Hebrews are ultimately supposed to settle. It’s not clear why Terah has decided to leave Ur, and why he has decided to go into the land of Canaan, but it happened only after Haran died (v. 28). 
+Whatever the purpose was, in the middle of the road Terah has changed his mind, and the family has settled in Haran, “settled” meaning that he had no intention of travelling any further. He lived there until he died; it was Abram who continued the journey at the Lord’s prompting.
 
 11:31: **Haran** is a region in the northern Mesopotamia and was an important crossroads and commercial center in the ancient Near East. This location in Turkey is now called Eskiharran, “old Harran”. (ESV)
 
-11:31: The spelling of the town name “**Haran**” in Hebrew is quite distinct from the name of Terah’s third son. (ESV)
+11:31: **Остановились там**. Семья отправилась в путь по откровению Божию, но по пути что-то их остановило. Возможно, старость Фарры. А возможно, и богатство края (12:5: "имение, которое они приобрели, и всех людей, которых они имели в Харране"), или семейный конфликт. Так или иначе, Аврам не продолжил путешествие, пока не умел его отец.
 
-11:32: If Abram was born when **Terah** was 70 years old (see v. 26), and if Abram was 75 years old when he departed for Canaan (see 12:4), then Terah **died** 60 years after Abram’s departure. 
-In Acts 7:4, however, Stephen says that Abram left **Haran** after the **death** of **Terah**. A simple way to resolve the chronological difficulty is to suppose that Stephen was following an alternative text (represented today in the Samaritan Pentateuch), which says that **Terah died** at the age of 145. (ESV)
+11:32: **The days of Terah were 205**. If Abram was born when Terah was 70 years old (v. 26: "When Terah had lived 70 years, he fathered Abram"), and if Abram was 75 years old when he departed for Canaan (see 12:4: "Abram was 75 years old when he departed from Haran"), then Terah died 60 years after Abram’s departure. 
+In Acts 7:4, however, Stephen says that Abram left Haran after the death of Terah. A simple way to resolve the chronological difficulty is to suppose that Stephen was following an alternative text (represented today in the Samaritan Pentateuch), which says that Terah died at the age of 145. (ESV)
 
 
 
