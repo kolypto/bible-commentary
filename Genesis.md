@@ -2113,33 +2113,45 @@ In Acts 7:4, however, Stephen says that Abram left Haran after the death of Te
 
 ### The Call of Abram
 
-12:1: God calls **Abram** to continue the journey that Terah, his father, had started but did not complete. (ESV)
+12:1: **The Lord said to Abram**. The Abrahamic covenant proper is introduced in vv.1-3, actually made in 15:18-21, reaffirmed in 17:1-21, then renewed also with Isaac (26:2-5) and Jacob (28:10-17). It is an everlasting covenant (17:7,8; 1 Chr. 16:17; Ps. 105:7-12; Is. 24:5). Its fulfilment extends all through Scripture (either in fact or expectation) and ultimately to Revelation 20. 
+Its national importance fo Israel is magnified by its repeated references and point of appeal throughout the OT (2 Kgs 13:23; 1 Chr 16:15–22; Neh 9:7,8). Its importance spiritually to all believers is expounded by Paul (Gal 3; Gal 4). Stephen quoted 12:1 in Acts 7:3.
+(MacArthur)
 
-12:1: **God** calls **Abram** to leave his **country** and his **kindred** in part because *they were pagan*. Josh 24:2-3: “Your fathers lived beyond the Euphrates, Terah, the father of Abraham and of Nahor; *and they served other gods*. Then I took your father Abraham from beyond the River and led him through all the land of Canaan, and made his offspring many.”.
+12:1-3: **go .. to the land. I will .. nation .. bless you .. you will be a blessing**. The covenant contains four elements:
+1. seed (17:2–7; cf. Gal. 3:8, 16 where it refers to Christ);
+2. land (15:18–21; 17:8); 
+3. a nation (v. 2; 17:4);
+4. divine blessing and protection (v. 3).
+(MacArthur)
 
-12:1: The divine speech that suddenly and unexpectedly introduces this section is exceptionally important, for it sets the agenda not only for **Abram’s** life but also for his descendants. The repetition of the verb **bless** (vv. 2-3) underscores the hope that through Abram people everywhere may experience God’s favor, reversing the predominantly negative experience of chs. 3–11. (ESV)
 
-12:1: **God’s** invitation to **Abram** challenges him to abandon the normal sources of personal identity and security: his family and **country**. To obey, Abram must abandon all that he has and trust God implicitly; all human support is largely removed. The promised outcomes are conditional on Abram’s obedience. (ESV)
+12:1: **Go from your country**. God calls Abram to continue the journey that Terah, his father, had started but did not complete. (ESV)
 
-12:2: **God’s** purpose for **Abram**, that he become a great nation, stands in obvious tension with Sarai’s barrenness and the summons to leave his homeland. **Abram** is challenged by **God** to establish a new humanity. (ESV)
+12:1: **Go from your country**. God calls Abram to leave his country and his kindred in part because *they were pagan* (Josh 24:2-3: “Your fathers lived beyond the Euphrates, Terah, the father of Abraham and of Nahor; *and they served other gods*. Then I took your father Abraham from beyond the River and led him through all the land of Canaan, and made his offspring many.”).
+
+12:1: **Go from your country**. God’s invitation to Abram challenges him to abandon the normal sources of personal identity and security: his family and country. To obey, Abram must abandon all that he has and trust God implicitly; all human support is largely removed. The promised outcomes are conditional on Abram’s obedience. (ESV)
+
+12:2: **I will make of you a great nation**. God’s purpose for Abram, that he become a great nation, stands in obvious tension with Sarai’s barrenness and the summons to leave his homeland. Abram is challenged by God to establish a new humanity. (ESV)
 
 12:2: **make your name great**. This was the failed aspiration of the tower builders (11:4). (ESV)
 
-12:3: Although **Abram** is called to be a **blessing** to others, much rests on how they treat him. Those who are positive toward Abram will experience God’s favor; the one who despises Abram will know God’s displeasure. (ESV)
+12:3: **in you all the families of the earth shall be blessed**. This divine speech sets the agenda not only for Abram’s life but also for his descendants. The repetition of the verb bless (vv. 2-3) underscores the hope that through Abram people everywhere may experience God’s favor, reversing the predominantly negative experience of chs. 3–11. (ESV)
 
-12:4: The brief report of **Abram’s** response presents his obedience as immediate and unquestioning. (ESV)
+12:3: **I will bless those who bless you**. Although Abram is called to be a blessing to others, much rests on how they treat him. Those who are positive toward Abram will experience God’s favor; the one who despises Abram will know God’s displeasure. (ESV)
 
-12:4: Abram may have been responsible for **Lot** following the death of Haran (11:27–28). Since by this stage Lot is a wealthy adult with considerable possessions (vv. 5-6), readers may assume that he desires to support Abram’s mission. (ESV)
+12:4: **So Abram went**. The brief report of Abram’s response presents his obedience as immediate and unquestioning. (ESV)
 
-12:6: **Abram** probably camped away from urban populations; these locations are identified by distinctive natural features, e.g. **trees**. (ESV)
+12:4: **Lot went with him**. Abram may have been responsible for Lot following the death of Haran (11:27–28). Since by this stage Lot is a wealthy adult with considerable possessions (vv. 5-6), readers may assume that he desires to support Abram’s mission. (ESV)
 
-12:6: **Abram** camped away from **Canaanites**, who are mentioned in the verse.
+12:6: **to the oak of Moreh**. Abram probably camped away from urban populations; these locations are identified by distinctive natural features, e.g. trees. (ESV)
 
-12:7: **God** has **appeared** to Abram: this marvellous event must have made a deep impression on him, so he builds an **altar** in response to this event. The repeated words, **who had appeared to him**, may indicate that the altar commemorates the event.
+12:6: **Canaanites were in the land**. Abram camped away from Canaanites, who are mentioned in the verse.
 
-12:7: Another source of joy for **Abram** is that God has implicitly promised that Abraham, who was already 75 and whose wife was barren, will have children. 
+12:7: **The Lord appeared to Abram**. This is the first of a number of manifestations of God to the patriarchs. These are often associated with divine promises. On this occasion God promises the land to the descendants of Abram, although he is still childless. In response, Abram builds an altar to the LORD. (ESV)
 
-12:7: This is the first of a number of manifestations of **God** to the patriarchs. These are often associated with divine promises. On this occasion **God** promises the **land** to the descendants of **Abram**, although he is still childless. In response, Abram **builds an altar to the LORD**. (ESV)
+12:7: **The Lord appeared to Abram**. God has appeared to Abram: this marvellous event must have made a deep impression on him, so he builds an altar in response to this event. The repeated words, who had appeared to him, may indicate that the altar commemorates the event.
+
+12:7: **To your offspring I will give this land**. Another source of joy for Abram is that God has implicitly promised that Abraham, who was already 75 and whose wife was barren, will have children. 
 
 12:9: **Negeb**. **Abram** moves further south, towards Egypt. (ESV)
 
