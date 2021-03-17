@@ -2118,12 +2118,13 @@ Its national importance fo Israel is magnified by its repeated references and po
 (MacArthur)
 
 12:1-3: **go .. to the land. I will .. nation .. bless you .. you will be a blessing**. The covenant contains four elements:
-1. seed (17:2–7; cf. Gal. 3:8, 16 where it refers to Christ);
-2. land (15:18–21; 17:8); 
-3. a nation (v. 2; 17:4);
-4. divine blessing and protection (v. 3).
+1. seed (17:2–7: "you shall be a father of the multitude of nations .. and I will establish my covenant between me and you and your offspring"; cf. Gal. 3:8, 16 where it refers to Christ: "God .. preached the gospel to Abraham, saying, In you shall all the nations be blessed");
+2. land (15:18–21: "to your offspring I give this land"; 17:8: "I will give you you and to your offspring after you the land"); 
+3. a nation (v. 2: "I will make of you a great nation"; 17:4: "You shall be a father of a multitude of nations");
+4. divine blessing and protection (v. 3: "I will bless those who bless you, and him who dishonors you I will curse").
 (MacArthur)
 
+12:1-3: **И сказал Господь Авраму**. Господь преподает ему торжественное благословение, в котором возвещает четыре рода обетований: 1) обещание многочисленного потомства; 2) дарование благ временных и вечных; 3) награду славы и бессмертия в потомстве и 4) превращение его личности в источник благословения для других. Все эти божественные обетования действительно и оправдались на последующей судьбе потомков Аврама, как плотских, т. е. евреев, так и еще более - духовных, т.е. христиан (Лопухин А.П.)
 
 12:1: **Go from your country**. God calls Abram to continue the journey that Terah, his father, had started but did not complete. (ESV)
 
@@ -2131,13 +2132,41 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:1: **Go from your country**. God’s invitation to Abram challenges him to abandon the normal sources of personal identity and security: his family and country. To obey, Abram must abandon all that he has and trust God implicitly; all human support is largely removed. The promised outcomes are conditional on Abram’s obedience. (ESV)
 
+12:1: **Go .. to the land**. Abram was still in Haran when the call was *repeated* to go to Canaan (Acts 7:2: "The God of glory appeared to our father Abraham when he was in Mesopotamia, before he lived in Haran"). (MacArthur)
+
+12:1: **И сказал Господь Авраму: пойди из земли твоей**. У Св. Стефана ясно видно, как он отличает два повеления: одно дано было «до переселения Аврама в Харран» (Деян. 7:2: "Бог славы явился отцу нашему Аврааму в Месопотамии, прежде переселения его в Харран"), о другом говорит Стефан «из Харрана… по смерти отца его, переселил его Бог в сию землю», т.е. в Ханаанскую – (Деян. 7:4), – переселил, очевидно, объявлением ему Своей воли о сем.
+В Быт. 12:5 видно что вследствие этого второго повеления Аврам покидает землю Харрана: "И взял Аврам с собою .. все [что] они имели в Харране".
+(Еп. Виссарион (Нечаев))
+
+12:1: **из дома отца твоего**. Дабы воспитать Аврама вдали от окружавшей его среды, зараженной языческими заблуждениями и идолопоклон­ством. Язычест­во проникло даже в семейство Фарры, как видно из свидетельства Иисуса Навина (Нав 24:2). Решимость Фарры следовать за сыном из Ура Халдейского еще может быть объяснена предположением, что Фарра или совсем оставил служение иным богам, или начал колебаться между языческими заблуждениями и истин­ною верою; но в семействе Нахора, брата Аврамова, идолопоклонство упорно продолжалось, как видно из того, что Рахиль, правнучка Нахорова, уезжая из роди­тельского дома в Ханаанскую землю с мужем своим Иаковом, «похитила идолов» отца своего Лавана (Быт. 31:19). (Еп. Виссарион (Нечаев))
+
+12:1: **пойди из земли твоей, от родства твоего и из дома отца твоего**.  Ему повелевалось оставить землю, где он жил столько времени, оставить все родство и весь отеческий дом, и идти, куда он не знал и не ведал. Бог ведь не сказал, в какую страну хочет переселить его. Подумай, возлюбленный, какой возвышенный, необладаемый никакою страстию или привычкою, дух потребен был для исполнения этого повеления. (Свт. Иоанн Златоуст)
+
+12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Смотри, как с самого начала праведник был приучаем предпочитать невидимое видимому и будущее тому, что уже находилось в руках. (Свт. Иоанн Златоуст)
+
+12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Он мог бы сказать, если бы был из числа людей обыкновенных: для чего посылаешь меня на чужбину и велишь мне идти в чужую землю? Для чего, если хочешь сделать меня великим, не делаешь таким здесь? Почему не даешь мне Своего благословения, когда я живу в отеческом доме? 
+Ничего такого однако ж не захотел он и подумать, но повиновался и был вполне уверен, что обетования Божии не ложны.
+(Свт. Иоанн Златоуст)
+
+12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Дух повеления Божия был тот, что Аврам должен оставить собственное, известное, близкое, любезное, дабы стремиться к отдаленному и неизвестному, которое было в руках Божиих. Авраам же со своей стороны не смущается этой неизвестностью, потому что он действует по вере, которая проста и не терпит пытливости. 
+Справедливо Святые любили взирать, как на образец, на эту покорность веры Авраама, который, по одному гласу Господа, оставляет все, что есть самого драгоценного для человека, что составляет отраду в жизни, - родину, родных друзей, дом - для того, чтобы, подобно изгнаннику, идти в страну чуждую, даже не зная, куда угодно было Господу привести его.
+(Свт. Филарет (Дроздов))
+
+12:1: **в землю, которую Я укажу тебе**. Справедливо, братья, верить Богу прежде, нежели воздаст нам чем-либо, ибо в чем-либо лгать или обманывать нас не может: ибо Он - Бог. (Блаж. Августин)
+
 12:2: **I will make of you a great nation**. God’s purpose for Abram, that he become a great nation, stands in obvious tension with Sarai’s barrenness and the summons to leave his homeland. Abram is challenged by God to establish a new humanity. (ESV)
 
 12:2: **make your name great**. This was the failed aspiration of the tower builders (11:4). (ESV)
 
-12:3: **in you all the families of the earth shall be blessed**. This divine speech sets the agenda not only for Abram’s life but also for his descendants. The repetition of the verb bless (vv. 2-3) underscores the hope that through Abram people everywhere may experience God’s favor, reversing the predominantly negative experience of chs. 3–11. (ESV)
+12:2: **make your name great**. Abram's magnificent reputation and legacy was fulfilled materially (Gen 13:2: "was very rich"; Gen 24:35: "the Lord has greatly blessed my master and he has become great"), spiritually (Gen 21:22: "God is with you in all what you do"), and socially (Gen 23:6: "you are a prince of God among us"). (MacArthur)
+
+12:2: **и будешь ты в благословение**. «Ты будешь благословен так, что каждый сочтет за величайшую честь вступить в родство с тобою.» (Свт. Иоанн Златоуст)
 
 12:3: **I will bless those who bless you**. Although Abram is called to be a blessing to others, much rests on how they treat him. Those who are positive toward Abram will experience God’s favor; the one who despises Abram will know God’s displeasure. (ESV)
+
+12:3: **in you all the families of the earth shall be blessed**. This divine speech sets the agenda not only for Abram’s life but also for his descendants. The repetition of the verb bless (vv. 2-3) underscores the hope that through Abram people everywhere may experience God’s favor, reversing the predominantly negative experience of chs. 3–11. (ESV)
+
+12:3: **in you all the families of the earth shall be blessed**. Paul identified these words as "the gospel preached to Abraham" (Gal 3:8: "The Scripture, foreseeing that God would justify the Gentiles by faith, preached the Gospel beforehand to Abraham"). (MacArthur)
 
 12:4: **So Abram went**. The brief report of Abram’s response presents his obedience as immediate and unquestioning. (ESV)
 
@@ -2147,11 +2176,15 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:6: **Canaanites were in the land**. Abram camped away from Canaanites, who are mentioned in the verse.
 
+12:6: **Canaanites were in the land**. Moses was writing approximately 700 years after Abram entered the land (c. 1405 B.C.). The Canaanites, of whom he wrote, were soon to be the opponents of Israel as they entered Canaan. (MacArthur)
+
 12:7: **The Lord appeared to Abram**. This is the first of a number of manifestations of God to the patriarchs. These are often associated with divine promises. On this occasion God promises the land to the descendants of Abram, although he is still childless. In response, Abram builds an altar to the LORD. (ESV)
 
 12:7: **The Lord appeared to Abram**. God has appeared to Abram: this marvellous event must have made a deep impression on him, so he builds an altar in response to this event. The repeated words, who had appeared to him, may indicate that the altar commemorates the event.
 
 12:7: **To your offspring I will give this land**. Another source of joy for Abram is that God has implicitly promised that Abraham, who was already 75 and whose wife was barren, will have children. 
+
+12:7: **So he built there an altar**. An open confession of his religion. This was the first true place of worship ever erected in the Promised Land. (MacArthur)
 
 12:9: **Negeb**. **Abram** moves further south, towards Egypt. (ESV)
 
