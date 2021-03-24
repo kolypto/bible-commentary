@@ -2262,7 +2262,19 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:10: **went down to Egypt**. Holding to God's promise, Abram did not return to Ur, though matters were extremely difficult. (MacArthur)
 
+12:11: **когда же он приближался к Египту**. Такой уговор у Аврама с Сарой сделан был гораздо раньше, еще перед самым выходом из Ура Халдейского (Быт. 20:13: "когда Бог повел меня странствовать из дома отца моего, то я сказал ей: сделай со мною сию милость, в какое ни придем мы место, везде говори обо мне: это брат мой"), так как Аврам, очевидно, знал нравственную распущенность всех племен, среди которых ему придется странствовать и жить. (Лопухин А.П.)
+
+12:11: **сказал Саре**.  Когда они прошли много пути и были уже близко Египта, то праведник почувствовал робость, и страшась и трепеща за самую, так сказать, жизнь, начинает говорить с женою. (Свт. Иоанн Златоуст)
+
 12:11: **beautiful**. At 65, Sarai was still young and exceptionally attractive, being only half the age she was to be when she died (127). The patriarchs lived long. (MacArthur)
+
+12:11: **прекрасная видом**. Хотя Саре в это время было уже 65 лет, но так как данный возраст составлял лишь половину всей ее жизни, и так как, с другой стороны, она была бездетна, то и неудивительно, что могла до сего времени сохранить привлекательную красоту. (Лопухин А.П.)
+
+12:11: **прекрасная видом**. Тем самым мы научаемся, что не слишком следует искать красоты супруги, которая часто может стать причиной смерти мужа. Ведь не столько красота жены, сколько ее добродетель и серьезность радуют мужа. (Свт. Амвросий Медиоланский)
+
+12:12: **убьют меня**. Убьют, чтобы не было обличителя их беззакония. (Свт. Иоанн Златоуст)
+
+12:13: **sister**. This was half-truth, since Sarai was Abram's half-sister (Gen 20:12: "the daughter of my father though not the daughter of my mother"). (MacArthur)
 
 12:13: **Say you are my sister**. The events described in this section raise many questions that go unanswered, creating a sense of ambiguity as to how the behavior of everyone involved should be judged. As is common in biblical stories, the narrator gives no direct evaluation of the participants’ actions, leaving the reader to figure out the ethical questions. (ESV)
 
@@ -2272,7 +2284,13 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:13: **Say you are my sister**. Abram also had to instruct all of his servants to conceal the truth.
 
-12:13: **sister**. This was half-truth, since Sarai was Abram's half-sister (Gen 20:12: "the daughter of my father though not the daughter of my mother"). (MacArthur)
+12:13: **скажи же, что ты мне сестра**. Авраму нужно было так же подговорить всех своих слуг, чтобы не сказали никому, кем ему приходится Сара на самом деле.
+
+12:13: **дабы жива была душа моя через тебя**. В великом был он страхе и от невоздержности египтян: вот, почему праведник соглашается на прелюбодеяние жены и как бы содействует прелюбодею обесчестить, чтобы избежать смерти. Видишь союз любви между мужем и женою? Видишь, что осмелился муж предложить жене, и какой совет принимает жена?  (Свт. Иоанн Златоуст)
+
+12:13: **дабы жива была душа моя через тебя**. Она вступила в чужую страну, объявила себя его сестрой, согласившись, раз уж это необходимо, подвергнуть опасности свою честь, а не безопасность мужа. (Свт. Амвросий Медиоланский)
+
+12:13: **скажи же, что ты мне сестра**. Там жену свою он назвал сестрой, ни в чем не солгав, ведь и это являлось правдой. Таким образом, он замолчал ее супружество, однако не отрицал его. Смотреть за целомудренностью супруги он доверил Богу, человеческих же козней по-человечески остерегался. (Блж. Августин)
 
 12:13: **Say you are my sister**. With the assumption that Abram actually loved his wife. Which he probably did, because when she died, he “mourned and weeped” (Gen 23:2).
 Abram believes that the land he enters is godless (Gen 20:11: “Abraham said, “I did it because I thought, ‘There is no fear of God at all in this place, and they will kill me because of my wife.”) and he doesn’t trust God to rescue him (v. 12: “**they will kill me, but they will let you live**”), but rather, even before he enters the city and learns about the Egyptians (v. 11: “**When he was about to enter Egypt**”; v. 13: “**Say you are my sister**”), he devises his own ruse based on a half-truth. The idea probably was that if everyone knew that she is his sister, no one would dare to take her by force (v. 13: “**my life may be spared for your sake**”): at worst, the Egyptians would propose to her, which he could safely reject. It is not known whether Abram’s judgment was correct: perhaps, there was no danger in Egypt at all.
