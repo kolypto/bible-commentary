@@ -2374,26 +2374,29 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### Abram and Lot Separate
 
-13:1: **Abram** did not leave **Egypt** voluntarily: after the situation around his wife, they were expelled from Egypt (12:20: “sent him away”).
+13:1: **from Egypt**. Abram did not leave Egypt voluntarily: after the situation around his wife, they were expelled from Egypt (12:20: “sent him away”).
 
-13:1: After waiting through the famine in **Egypt** for a while, **Abram** went north again, to the same region of **Negeb**, and then even further north (v. 3). Unlike the people of Canaan, Abram’s family has returned with more possessions that they had had. In fact, they were very, very wealthy (v. 6: the land couldn’t even sustain their livestock).
+13:8: **let there be no strife between you and me**. Abram leaves the right of choice to Lot, probably as a gesture of good will. Also, Abram, no doubt, trusted the Lord and thus did not hesitate to give up best 
 
-13:10: Abram had given **Lot** the right to choose, and Lot chose a land that looked best. But danger is already looming over Lot: even though the **well-watered land** is almost like the **garden of the Lord**, this fertile land would soon become home to such wickedness that **the Lord** himself would destroy it.
-It must be to emphasize the futility of Lot’s choice that the author has chosen to remind the reader of the fate of **Sodom** in this verse. It must be that Lot chose the land himself, without inquiring God about the best choice. **Abram, **however, has inquired (v. 4: “called upon the name of the Lord”).
+13:10: **destroyed Sodom and Gomorrah**. This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before Sodom and Gomorrah were destroyed with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
 
-13:10: This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before **Sodom and Gomorrah** were **destroyed** with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
+13:10: **destroyed Sodom and Gomorrah**. It must be to emphasize the futility of Lot’s choice that the author has chosen to remind the reader of the fate of Sodom in this verse. It must be that Lot chose the land himself, without inquiring God about the best choice. Abram, however, has inquired (v. 4: “called upon the name of the Lord”).
 
-13:13: Lot has chosen the land that was fertile, but was also home to **great wickedness**. The side note given here probably hints at the unreasonableness of Lot’s choice which was done not by faith but by sight.
+13:11: **Lot chose for himself all the Jordan Valley**. An excellent choice from a worldly point of view, but disastrous spiritually because it drew Lot into the wickedness of Sodom. (MacArthur)
 
-13:12-13: At first Lot may not have known what sort of people lived in **Sodom** (v. 13: “wicked”, “great sinners”), but we also see that he used to live in tents (v. 12: “moved his tent”) at first, and moved closer and closer to **Sodom**. Lot is later found living in the city (Gen 14:12), having abandoned his tent-dwelling lifestyle. This move indicates that he willingly chose to live among those wicked people, perhaps, for the sake of his business or comfort.
+13:13: **Sodom were wicked**. Lot has chosen the land that was fertile, but was also home to great wickedness. The side note given here probably hints at the unreasonableness of Lot’s choice which was done not by faith but by sight.
 
-13:14: Even though the land that **Abram** was left with did not look that good, it was the land on which **the Lord** promises that Abram’s descendants will live and become a great nation. A choice that seems to be inferior may become superior by God’s power for a person who follows God’s guidance and not his own wisdom. 
+13:12-13: **men of Sodom were wicked**. At first Lot may not have known what sort of people lived in Sodom (v. 13: “wicked”, “great sinners”), but we also see that he used to live in tents (v. 12: “moved his tent”) at first, and moved closer and closer to Sodom. Lot is later found living in the city (Gen 14:12), having abandoned his tent-dwelling lifestyle. This move indicates that he willingly chose to live among those wicked people, perhaps, for the sake of his business or comfort. (ESV)
 
-13:16: God promises Abram numerous **offspring**. At this stage, Abram still has no children. (ESV)
+13:14: **The Lord said to Abram**. Here we have this contrast: Lot "lifted up his eyes" (v. 10) and chose what he saw; Abraham's choice is guided by the Lord (v. 4: "called upon the name of the Lord").
 
-13:18: A cuneiform tablet discovered there from this time period indicates that **Hebron** was a capital city of a Canaanite kingdom. (ESV)
+13:15: **all the land that you see I will give to you**. Even though the land that Abram was left with did not look that good, it was the land on which the Lord promises that Abram’s descendants will live and become a great nation. A choice that seems to be inferior, may become superior by God’s power for a person who follows God’s guidance and not his own wisdom. 
 
-13:18: Repeated mentions of **building altars to the Lord** indicates that even though **Abram’s** faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
+13:16: **your offspring**. God promises Abram numerous offspring. At this stage, Abram still has no children. (ESV)
+
+13:18: **at Hebron**. A cuneiform tablet discovered there from this time period indicates that Hebron was a capital city of a Canaanite kingdom. (ESV)
+
+13:18: **built an altar**. Repeated mentions of building altars to the Lord indicates that even though Abram’s faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
 
 
 
