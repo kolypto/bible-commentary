@@ -2376,6 +2376,12 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:1: **from Egypt**. Abram did not leave Egypt voluntarily: after the situation around his wife, they were expelled from Egypt (12:20: “sent him away”).
 
+13:5: **у Лота .. также был**. Может быть, иное сам (патриарх), будучи щедр, подарил племяннику, а иное дали ему и другие из уважения к патриарху. (Свт. Иоанн Златоуст)
+
+13:5: **у Лота .. также был**. Так божественные благодеяния, данные Авраму, изливались и на его племянника Лота. (Лопухин А.П.)
+
+13:6: **непоместительна была земля для них**. Поскольку он уже начал намеренно уклоняться от дяди, земля их уже не сдерживала, ведь никакого пространства не может быть достаточно для несогласных. Для спокойных и мирных даже в тесноте просторно, а для различающихся нравами и обширное узко. (Свт. Амвросий Медиоланский)
+
 13:8: **let there be no strife between you and me**. Abram leaves the right of choice to Lot, probably as a gesture of good will. Also, Abram, no doubt, trusted the Lord and thus did not hesitate to give up best 
 
 13:10: **destroyed Sodom and Gomorrah**. This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before Sodom and Gomorrah were destroyed with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
