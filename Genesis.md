@@ -2382,6 +2382,9 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:6: **непоместительна была земля для них**. Поскольку он уже начал намеренно уклоняться от дяди, земля их уже не сдерживала, ведь никакого пространства не может быть достаточно для несогласных. Для спокойных и мирных даже в тесноте просторно, а для различающихся нравами и обширное узко. (Свт. Амвросий Медиоланский)
 
+13:8: **И сказал Аврам**. Как мудрый муж, Авраам заметил, что обычно из-за раздоров слуг разрушается согласие хозяев, и прервал нить разногласия, чтобы зараза не распространилась. Ибо он посчитал, что терпимее расторжение уз, нежели вред дружбе, как следует и тебе поступать, если ты по случайности попадешь в подобную ситуацию, а именно - уничтожь источник раздора, ведь ты не сильнее Авраама. 
+Он решил, что следует прервать ссору слуг, а не смотреть свысока на нее. Если же ты сильнее, смотри, как бы другой не оказался слабее и не стал прислушиваться к шушуканью слуг.  (Свт. Амвросий Медиоланский)
+
 13:8: **let there be no strife between you and me**. Abram leaves the right of choice to Lot, probably as a gesture of good will. Also, Abram, no doubt, trusted the Lord and thus did not hesitate to give up best 
 
 13:10: **destroyed Sodom and Gomorrah**. This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before Sodom and Gomorrah were destroyed with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
