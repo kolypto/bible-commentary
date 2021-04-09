@@ -2387,9 +2387,14 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:8: **let there be no strife between you and me**. Abram leaves the right of choice to Lot, probably as a gesture of good will. Also, Abram, no doubt, trusted the Lord and thus did not hesitate to give up best 
 
+13:9: **то я налево**. Преданный воле Божией предоставляет ближним все блага, которыми может и имеет право пользоваться, будучи расположен довольствоваться, так сказать, останками оных из рук Промысла. Но чем более он сокращает и отсекает собственные желания, дабы дать место воле Божией, тем более щедрит и обогащает его Бог своими дарами и обетованиями (Быт. 13:15: "ибо всю землю, которую ты видишь, тебе дам Я и потомству твоему навеки"). (Свт. Филарет (Дроздов))
+
 13:10: **destroyed Sodom and Gomorrah**. This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before Sodom and Gomorrah were destroyed with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
 
 13:10: **destroyed Sodom and Gomorrah**. It must be to emphasize the futility of Lot’s choice that the author has chosen to remind the reader of the fate of Sodom in this verse. It must be that Lot chose the land himself, without inquiring God about the best choice. Abram, however, has inquired (v. 4: “called upon the name of the Lord”).
+
+13:11: **и избрал себе Лот**. Естественный человек желает как собственностью обладать всем, что прельщает очи его; поставляя целью своей деятельности собственную выгоду и ощутительное удовольствие, мечтает найти рай Божий на земле, ищет пажити при годах египетских, духовной радости — в упоении самолюбия. 
+В сем состоянии он недалек от того, чтобы поставить в Содоме свой дом и отечество. (Свт. Филарет (Дроздов))
 
 13:11: **Lot chose for himself all the Jordan Valley**. An excellent choice from a worldly point of view, but disastrous spiritually because it drew Lot into the wickedness of Sodom. (MacArthur)
 
