@@ -2402,6 +2402,17 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:12-13: **men of Sodom were wicked**. At first Lot may not have known what sort of people lived in Sodom (v. 13: “wicked”, “great sinners”), but we also see that he used to live in tents (v. 12: “moved his tent”) at first, and moved closer and closer to Sodom. Lot is later found living in the city (Gen 14:12), having abandoned his tent-dwelling lifestyle. This move indicates that he willingly chose to live among those wicked people, perhaps, for the sake of his business or comfort. (ESV)
 
+13:13: **Жители же Содомские были злы**. Видишь ли, Лот обращает внимание только на свойство земли, а не смотрит на злонравие жителей? 
+Какая польза, скажи мне, в тучной и плодоносной земле, когда ее обитатели злонравны? И что за вред от пустыни и от самой бесплодной земли, когда живущие на ней благонравны? 
+Самое главное благо есть благонравие жителей. Но Лот смотрел только на одно – на плодородие земли. 
+(Свт. Иоанн Златоуст)
+
+13:13: **злы и грешны пред Господом**. В нравственном отношении Лот не потерпит вреда от общения с ними: он не увлечется примером их беззакония, останет­ся праведным и благочестивым, за что будет сохранен от постигшей их погибели; «но живя между ними, он ежеднев­н будет мучиться в праведной душе своей, видя и слыша дела беззаконныя» (2 Пет. 2:7-8). (Еп. Виссарион (Нечаев))
+
+13:13: **злы**. «Глубокий разврат сопровождается обыкновенно жестокостью и даже каким-то кровожадным сумасшествием. И надо предположить, что жители Содома пали так глубоко, что в них не осталось уже места для доброго чувства» (Властов). (Лопухин А.П.)
+
+13:13: **злы и грешны**. Иезекииль, обвиняя иудеев в подражании содомлянам, упоминает еще о следующих гре­хах жителей Содома: это гордость, сластолюбие, изнежен­ность в образе жизни, праздность и немилосердие к бедным (Иез. 16:49-50: "Вот в чем было беззаконие Содомы, сестры твоей и дочерей ее: в гордости, пресыщении и праздности, и она руки бедного и нищего не поддерживала. И возгордились они, и делали мерзости пред лицем Моим, и, увидев это, Я отверг их."). (Еп. Виссарион (Нечаев))
+
 13:14: **The Lord said to Abram**. Here we have this contrast: Lot "lifted up his eyes" (v. 10) and chose what he saw; Abraham's choice is guided by the Lord (v. 4: "called upon the name of the Lord").
 
 13:15: **all the land that you see I will give to you**. Even though the land that Abram was left with did not look that good, it was the land on which the Lord promises that Abram’s descendants will live and become a great nation. A choice that seems to be inferior, may become superior by God’s power for a person who follows God’s guidance and not his own wisdom. 
