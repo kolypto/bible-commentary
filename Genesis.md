@@ -2417,11 +2417,25 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:15: **all the land that you see I will give to you**. Even though the land that Abram was left with did not look that good, it was the land on which the Lord promises that Abram’s descendants will live and become a great nation. A choice that seems to be inferior, may become superior by God’s power for a person who follows God’s guidance and not his own wisdom. 
 
+13:15: **всю землю, которую ты видишь, тебе дам**. Ты, говорит, уступил племяннику часть земли: так вот Я обещаю тебе всю землю. Видишь щедрость, достойную благости Божией? Видишь, сколько (патриарх) уступил, и чего за то удостоился? (Свт. Иоанн Златоуст)
+
+13:14: **во веки**. Всё время своего само­стоятельного политического существования, – дотоле, пока «не оскудеет князь от Иуды». Когда избранный народ утратит свою самостоятельность, перестанет управляться природными своими властителями и будет под властью чужеземцев, тогда лишится и земли обетованной. (Еп. Виссарион (Нечаев))
+
 13:16: **your offspring**. God promises Abram numerous offspring. At this stage, Abram still has no children. (ESV)
+
+13:16: **как песок земной**. Рассеяние иудеев по всему свету после разрушения Иерусалима Титом угрожало этому народу тем, что он, оторванный от родной земли, или должен был вымереть, или выродиться чрез смешение с другими народами. Ни того, ни другого, однако, не случилось. Евреи, куда ни были заброшены судьбою, везде продолжали размножаться и жить своей особенной, своеобразной жизнью, нисколько не смешива­ясь ни с одной народностью. (Еп. Виссарион (Нечаев))
+
+13:17: **в долготу и в широту её**. Не назначив пределов земли обетованной, Бог повелевает пройти ее в долготу и широту. Сие можно разуметь так, что он повелевает Авраму проходить и обходить предлежащую ему страну по произволению с таким уверением, что всякое место, где он поставит свою ногу, будет принадлежать к земле обетованной. Бог внушает чрез сие Авраму, что мера обетования есть мера веры и что пределы земли обетованной суть колико подвижны, толико обширны и даже невидимы. (Свт. Филарет (Дроздов))
 
 13:18: **at Hebron**. A cuneiform tablet discovered there from this time period indicates that Hebron was a capital city of a Canaanite kingdom. (ESV)
 
 13:18: **built an altar**. Repeated mentions of building altars to the Lord indicates that even though Abram’s faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
+
+13:18: **создал там жертвенник Господу**. Едва поселился он под дубом мамврийским, как тотчас же и устроил там жертвенник Господу. Видишь благодарную душу? (Свт. Иоанн Златоуст)
+
+13:18: **у дубравы Мамре, что в Хевроне**. Местность Хеврона принадлежит доселе к лучшим в Палестине, – изобилует садами оливковыми и виноградными. (Еп. Виссарион (Нечаев))
+
+13:18: **Хеврон**. Нынешнее имя его «Эл-Халил» [друг] дано ему в честь Аврама, который доселе называется у арабов другом Божиим согласно с Писанием. (Еп. Виссарион (Нечаев))
 
 
 
@@ -2446,25 +2460,52 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:2: **Sodom and Gomorrah** is precisely the place where Lot has settled after separating with Abraham. The area is now invaded by an alliance of four kings who defeat a local confederation of five kings and take Lot captive. (ESV)
 
-14:3: Such alliances were a common and recurring aspect of politics in the ancient Near East. (ESV)
+14:3: **joined forces**. Such alliances were a common and recurring aspect of politics in the ancient Near East. (ESV)
 
-14:13: This is the first occurrence of the term “**Hebrew**” in the Bible and is probably used here to denote the ethnicity of **Abram** (ESV)
+14:4: **rebelled**. Vassal states, when they thought they could throw off the yoke of their suzerain with impunity, rebelled by not paying the assessed tribute and waiting for any military response. This time, their rebellion evoked a major military excursion by the offended suzerain, Chedorlaomer, and his allies. In the ensuing confrontation with Sodom and Gomorrah and their allies, the vassals miscalculated and they lost. Lot, by then a resident of Sodom, was taken captive. (MacArthur)
 
-14:15: A **nighttime** assault gives **Abram** an advantage. (ESV)
+14:7: **Amalekites**. Amalekites did not yet exist in Abram's time (Gen 36:12: "she bore Amalek to Eliphaz"), but they did when Moses wrote. (MacArthur)
 
-14:15: This episode provides an interesting insight into his future aspirations in light of God’s promises of the land. Although **Abram** can compete militarily against powerful kings, he rejects the use of power to achieve God’s purpose. Thus he does not use force to take control of the land of Canaan. The patriarch will not adopt violent strategies in order to obtain it. (ESV)
+14:13: **one who had escaped**. One as wealthy as Abram would not be hard to find, and was obviously thought to be one who could do something about the crisis which had affected his own close relatives. (MacArthur)
 
-14:18: **Melchizedek** (which means “king of righteousness”; Heb. 7:2: “He is first, by translation of his name, king of righteousness, and then he is also king of Salem, that is, king of peace.”) generously provides a meal for the returning victors. (ESV)
+14:13: **Hebrew**. This is the first occurrence of the term “Hebrew” in the Bible and is probably used here to denote the ethnicity of Abram (ESV)
 
-14:18: **Salem** is possibly a shortened version of “Jerusalem” (Ps. 76:2: God’s “abode has been established in Salem”) and is related to *shalom*, the Hebrew word for “peace”. (ESV)
+14:15: **by night**. A nighttime assault gives Abram an advantage. (ESV)
 
-14:18: **Melchizedek** is then a **priest-king** of Jerusalem. There appears to have been an expectation that later **kings of Jerusalem** should resemble him (Ps. 110:4: “You are a priest forever after the order of Melchizedek.”). The book of Hebrews presents Jesus Christ, from the royal line of David, as belonging to the “order of Melchizedek” and therefore superior to the Levitical priests (Heb. 5:5–10: ““You are a priest forever, after the order of Melchizedek.“; 6:20–7:17). (ESV)
+14:15: **defeated them and pursued them**. Although Abram can compete militarily against powerful kings, he rejects the use of power to achieve God’s purpose. Thus he does not use force to take control of the land of Canaan. The patriarch will not adopt violent strategies in order to obtain it. (ESV)
 
-14:18: **God Most High**: Heb. *’El ‘Elyon*. (ESV)
 
-14:20: Melchizedek’s blessing attributes Abram’s victory to the power of **God**. By giving a **tenth**, **Abram** affirms the truthfulness of Melchizedek’s words. (ESV)
 
-14:23: **Abram** affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+### Abram Blessed by Melchizedek
+
+14:18: Melchizedek (which means “king of righteousness”; Heb. 7:2: “He is first, by translation of his name, king of righteousness, and then he is also king of Salem, that is, king of peace.”) generously provides a meal for the returning victors. (ESV)
+
+14:18: Salem is possibly a shortened version of “Jerusalem” (Ps. 76:2: God’s “abode has been established in Salem”) and is related to *shalom*, the Hebrew word for “peace”. (ESV)
+
+14:18: Melchizedek is then a priest-king of Jerusalem. There appears to have been an expectation that later kings of Jerusalem should resemble him (Ps. 110:4: “You are a priest forever after the order of Melchizedek.”). The book of Hebrews presents Jesus Christ, from the royal line of David, as belonging to the “order of Melchizedek” and therefore superior to the Levitical priests (Heb. 5:5–10: ““You are a priest forever, after the order of Melchizedek.“; 6:20–7:17). (ESV)
+
+14:18: God Most High: Heb. *’El ‘Elyon*. (ESV)
+
+14:20: Melchizedek’s blessing attributes Abram’s victory to the power of God. By giving a tenth, Abram affirms the truthfulness of Melchizedek’s words. (ESV)
+
+14:23: Abram affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
 
 
 
