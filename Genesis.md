@@ -2458,11 +2458,21 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### Abram Rescues Lot and is blessed by Melchizedek
 
+14:2: **пошли они войною**. Очевидно, воинственный царь эламский, по обычаю всех азиатских владык, стремился к расширению своей монархии и, вероятно, искал даже дороги в богатый Египет; неудивительно, что на пути туда он успел поработить богатые и изнеженные ханаанские племена, и сделал это тем скорей и легче, что все эти племена жили одинокой, разобщенной жизнью и управлялись отдельными царьками, владения которых часто ограничивались пределами только одного города, и которые нередко враждовали между собой. (Лопухин А.П.)
+
 14:2: **Sodom and Gomorrah** is precisely the place where Lot has settled after separating with Abraham. The area is now invaded by an alliance of four kings who defeat a local confederation of five kings and take Lot captive. (ESV)
 
 14:3: **joined forces**. Such alliances were a common and recurring aspect of politics in the ancient Near East. (ESV)
 
+14:4: **были они в порабощении**. Здесь должно приметить то, что предсказание Ноя о рабстве Ханаана частию начинает уже исполняться. (Свт. Филарет (Дроздов))
+
 14:4: **rebelled**. Vassal states, when they thought they could throw off the yoke of their suzerain with impunity, rebelled by not paying the assessed tribute and waiting for any military response. This time, their rebellion evoked a major military excursion by the offended suzerain, Chedorlaomer, and his allies. In the ensuing confrontation with Sodom and Gomorrah and their allies, the vassals miscalculated and they lost. Lot, by then a resident of Sodom, was taken captive. (MacArthur)
+
+14:5: **и поразили Рефаимов, ...**. Здесь указан путь движения войск Кедорлаомера и перечисляется целый ряд попутно пораженных им хананейских племен. (Лопухин А.П.)
+
+14:6: **Рефаимов**. Из поражённых народов них прежде всего называются "рефаимы": народ исполинов или великанов, живший в Васане (Втор. 3:11-13: "одр железный, длина его девять локтей, а ширина его четыре локтя") и сохранившийся до времен Давида (2 Цар. 21:16,18: "копье было весом в триста сиклей меди"). Они кланялись золотому изваянию богини Астарты, по имени которой назывался и главный их город - Астерот-Карнаим, развалины которого известны и теперь под именем «Телль-Астерот» (Лопухин А.П.)
+
+14:6: **Хорреев**.  это троглодиты, т. е. пещерные обитатели Идумеи, изгнанные отсюда детьми Исава (Быт. 36:20). (Лопухин А.П.)
 
 14:7: **Amalekites**. Amalekites did not yet exist in Abram's time (Gen 36:12: "she bore Amalek to Eliphaz"), but they did when Moses wrote. (MacArthur)
 
