@@ -3475,6 +3475,8 @@ I am convinced that this *petra* is the word of God, and the *petra* of Mt 7:2
 
 16:19: What are **the keys of the kingdom of heaven**? You, My friend, are going to unlock the Kingdom.  Really?  Who preached the first great apostolic sermon?  Peter, the day of Pentecost.  To whom did he preach it?  To the Jews.  Who led the first Gentile to Christ?  Peter.  Who was it?  Acts 10, Cornelius.  He unlocked the Jews.  He unlocked, as it were, the Kingdom to the Gentiles.  He was the opening of the door.  And the Lord also gave that same promise, by the way, to the rest of His apostles and extended it all through the ages to all those who, by the proclamation of the gospel, opened the door to the Kingdom.  Every time I preach the gospel, I hold that key in my hand. (MacArthur)
 
+16:22: **будь милостив к Себе, Господи! да не будет этого с Тобою**. «Пожалей Себя, да не будет с Тобою этого!» (Осипов)
+
 16:24: Somewhere along your pilgrimage as a Christian you need to learn to die for yourself regularly. It saves you from being defensive, revengeful, retaliatory, hostile, accumulating the list of of things against you. (MacArthur)
 
 16:20-23: **Get behind me, satan**. Boy, Peter’s feeling his oats now. Man, he’s gotten revelations. When he opens his mouth he might be speaking or God might be speaking. And that’s pretty exciting. Not only that, the Lord says, you’ve got the key, you’re going to unlock it. And he is feeling like a leader.  
