@@ -2492,11 +2492,17 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:13: **Hebrew**. This is the first occurrence of the term “Hebrew” in the Bible and is probably used here to denote the ethnicity of Abram (ESV)
 
+14:14: **триста восемнадцать**. Священный историк точно указывает эту цифру, по-видимому, с тем намерением, чтобы, при виде такого слабого и малочисленного, по сравнению с громадными союзными войсками Кедорлаомера, отряда, очевидней и осязательнее сделать божественную помощь Авраму. (Лопухин А.П.)
+
 14:15: **by night**. A nighttime assault gives Abram an advantage. (ESV)
+
+14:15: **разделившись напал на них ночью**. Это довольно обычный и известный из Библии стратегический прием, посредством которого малые отряды одерживали блестящие победы над большими войсками. Суть его состояла в том, что маленький отряд делился на несколько групп; и когда неприятель предавался мирному отдыху или сну, все эти отряды с военными кликами бросались на него и старались произвести панику, в чем часто и успевали, как это мы видим еще и на примере Гедеона с мадианитянами (Суд 7:16: "И разделил триста человек на три отряда и дал в руки всем им трубы и пустые кувшины и в кувшины светильники"). (Лопухин А.П.)
 
 14:15: **defeated them and pursued them**. Although Abram can compete militarily against powerful kings, he rejects the use of power to achieve God’s purpose. Thus he does not use force to take control of the land of Canaan. The patriarch will not adopt violent strategies in order to obtain it. (ESV)
 
+14:15: **поразил их**. Усматривай и безмерную силу Божию из того, как легко одержана победа. Они уже одолели амаликитян и всех прочих, потом напали на содомлян, но Аврам всё равно одолел их силою 318 мужей! Вышняя десница ему помогала и споборала. (Свт. Иоанн Златоуст)
 
+14:16: **возвратил все имущество**. Аврам не только возвратил Лота, но и отнял у неприятеля всех пленных мужского и женского пола и всю добычу, и сделал это совершенно бескорыстно, ибо сам он из всей добычи не воспользуется ни одной веревочкой, ни одним ремнем сапожным, – все возвратит царю Содомскому и соседним с ним. Одним союзникам своим, участвовавшим в походе, Аврам предо­ставит взять свою долю из добычи (Быт. 14:23-24: "даже нитки и ремня от обуви не возьму из всего твоего, чтобы ты не сказал: я обогатил Аврама"). (Еп. Виссарион (Нечаев))
 
 
 
@@ -2517,17 +2523,23 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### Abram Blessed by Melchizedek
 
-14:18: Melchizedek (which means “king of righteousness”; Heb. 7:2: “He is first, by translation of his name, king of righteousness, and then he is also king of Salem, that is, king of peace.”) generously provides a meal for the returning victors. (ESV)
+14:18: **Melchizedek**. Melchizedek means “king of righteousness”. See Heb. 7:2: “He is first, by translation of his name, king of righteousness, and then he is also king of Salem, that is, king of peace.”) generously provides a meal for the returning victors. (ESV)
 
-14:18: Salem is possibly a shortened version of “Jerusalem” (Ps. 76:2: God’s “abode has been established in Salem”) and is related to *shalom*, the Hebrew word for “peace”. (ESV)
+14:18: **king of Salem**. Salem is possibly a shortened version of “Jerusalem” (Ps. 76:2: God’s “abode has been established in Salem”) and is related to *shalom*, the Hebrew word for “peace”. (ESV)
 
-14:18: Melchizedek is then a priest-king of Jerusalem. There appears to have been an expectation that later kings of Jerusalem should resemble him (Ps. 110:4: “You are a priest forever after the order of Melchizedek.”). The book of Hebrews presents Jesus Christ, from the royal line of David, as belonging to the “order of Melchizedek” and therefore superior to the Levitical priests (Heb. 5:5–10: ““You are a priest forever, after the order of Melchizedek.“; 6:20–7:17). (ESV)
+14:18: **Melchizedek king of Salem**. Melchizedek is then a priest-king of Jerusalem. There appears to have been an expectation that later kings of Jerusalem should resemble him (Ps. 110:4: “You are a priest forever after the order of Melchizedek.”). The book of Hebrews presents Jesus Christ, from the royal line of David, as belonging to the “order of Melchizedek” and therefore superior to the Levitical priests (Heb. 5:5–10: ““You are a priest forever, after the order of Melchizedek.“; 6:20–7:17). (ESV)
 
-14:18: God Most High: Heb. *’El ‘Elyon*. (ESV)
+14:18: **Melchizedek**. There is lack of biographical and genealogical particulars for this ruler, but his superior status is witnessed by 1) king of Sodom deferring to Melchizedek before continuing with his request (v. 17: "king of Sodom went out to meet him", v. 21: "And the king of Sodom said..."), and 2) Abram, without demur, both accepting a blessing from and also giving a tithe to this priest-king. (MacArthur)
 
-14:20: Melchizedek’s blessing attributes Abram’s victory to the power of God. By giving a tenth, Abram affirms the truthfulness of Melchizedek’s words. (ESV)
+14:18: **brought out bread and wine**. Melchizedek generously provides a meal for the returning victors. (ESV)
 
-14:23: Abram affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
+14:18: **God Most High**: Heb. *El Elyon*, Sovereign Lord. This title indicated that Melchizedek worshiped, served, and represented no Canaanite deity, but the same one whom Abram also called Yahweh El Elyon (v. 22). That this was so is confirmed by the added description, “Possessor of heaven and earth,” being used by both Abram and Melchizedek (v. 19, 22). (ESV)
+
+14:20: **who has delivered your enemies into your hand**. Melchizedek’s blessing attributes Abram’s victory to the power of God. By giving a tenth, Abram affirms the truthfulness of Melchizedek’s words. (ESV)
+
+14:23: **lest you should say, 'I have made Abram rich'**. Abram affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
+
+14:23: **lest you should say, 'I have made Abram rich'**. If ABram acceeded to the king of Sodom's request, he would have distorted the clear testimony of the Lord's blessing on his life. To accept such payment would belie his trust in God. (MacArthur)
 
 
 
