@@ -63,7 +63,7 @@ Author: Moses both the OT and the NT [ascribe this composition to Moses](https:/
 
 1:1: **God**. Although the Hebrew word for “**God**” (*Elohim*) is plural in form (possibly to express majesty), the verb “create” is singular, indicating that God is thought of as one being. (ESV)
 
-1:1: **The heavens and the Earth** means “everything”, because in Hebrew there was no word for “universe”. Genesis is therefore the beginning of everything that exists. (MacArthur)
+1:1: **The heavens and the Earth** means “everything”, because in Hebrew there was no word for “universe”. Genesis is therefore the beginning of everything that exists. (MacArthur)
 
 1:1: **В начале**. К этому моменту уже существовали сыны Божии, и "все сыны Божии восклицали от радости", когда творился мир. (Иов. 38:7)
 
@@ -87,9 +87,9 @@ Author: Moses both the OT and the NT [ascribe this composition to Moses](https:/
 1:1: **в начале**. Что есть начало всего, если не Господь наш и Спаситель всех (1 Тим. 4:10) Иисус Христос, рожденный прежде всякой твари (Кол. 1:15)? Итак, в этом Начале, то есть в Своем Слове, сотворил Бог небо и землю. 
 Итак, здесь не идет речь о каком-то временном начале; но говорится, что небо и земля и все сотворенное создано «в Начале», то есть в Спасителе. "Все чрез Него начало быть, и без Него ничто не начало быть" (Ин. 1:3). (Ориген)
 
-1:2: **without form and void**.  The initial description of **earth** being **without form and void** implies that it lacked order and content. (ESV) 
+1:2: **without form and void**.  The initial description of **earth** being **without form and void** implies that it lacked order and content. (ESV) 
 
-1:2: **darkness**. The reference to **darkness** points to the absence of light. (ESV) 
+1:2: **darkness**. The reference to **darkness** points to the absence of light. (ESV) 
 
 1:2: **земля**. Не земной шар, который был образован при разделении вод (ст. 6), а вещество сего мира вообще. (Свт. Филарет (Дроздов))
 
@@ -201,7 +201,7 @@ What had been a disembodied blanket of diffused supernatural light was supersede
 
 1:16: **and the stars**. The immense universe the God created is mentioned here only in a brief phrase, almost as if it were an afterthought. (ESV)
 
-1:16: **Two great lights**. By referring to them as **the greater light** and **lesser light** (v. 16), the text avoids using terms that were also proper names for pagan deities linked to the sun and the moon. (ESV)
+1:16: **Two great lights**. By referring to them as **the greater light** and **lesser light** (v. 16), the text avoids using terms that were also proper names for pagan deities linked to the sun and the moon. (ESV)
 
 1:16: **Two great lights**. Israel had originally come from Mesopotamia, where the celestial bodies were worshiped, and more recently from Egypt, where the sun was worshiped as a primary deity. God was revealing to them that all which Israel's neighbors had falsely worshiped were the products of His creation. (MacArthur)
 
@@ -226,7 +226,7 @@ Genesis depicts God as creating large sea creatures, but they are not in rebelli
 
 1:25: **сотворим человека**. Человек создан в тот же день, в который все животные. Здесь есть некоторая связь, и некоторое различие, между одушевлёнными существами. (Блж. Августин)
 
-1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
+1:25: **It was good**. At the end of verse, the creation of all these creatures gets a comment from **God**: He said that it was good. God has been saying this all along, by the way (v. 4: God said the light was good; v. 10: the land and the seas were good, v. 12: the plants were good; v. 18: stellar bodies were good too; v. 21 the sea creatures and the birds in the air were good; and finally, after he made man, he said that it was *very* good). Everything God made was good. No deformities, no mutations, no inferiorities, no natural selection, no survival of the fittest, because there were no unfit animals. (MacArthur)
 
 
 1:26: **God**. The very name of God, Elohim (v. 1), is a plural form of El. (MacArthur)
@@ -235,14 +235,14 @@ Genesis depicts God as creating large sea creatures, but they are not in rebelli
 
 1:26: **Us**. This plurality suggests both communion and consultation among the members of the Trinity, perfect agreement and clear purpose. (MacArthur)
 
-1:26: **Us**. “**Us**” may refer to the heavenly court (sons of God, or angels), but a significant objection is that man is not made in the **image** of angels. God is speaking to Himself, since God alone does the making. This would be the first hint of the Trinity in the Bible. (ESV)
+1:26: **Us**. “**Us**” may refer to the heavenly court (sons of God, or angels), but a significant objection is that man is not made in the **image** of angels. God is speaking to Himself, since God alone does the making. This would be the first hint of the Trinity in the Bible. (ESV)
 
-1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
+1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
 
 1:26: **In Our image, after Our likeness**. It establishes a personal relationship between God and man that does not exist with any other aspect of creation. 
 It suggests that God was, in essence, the pattern for man: a person that only functions in the context of relationships. Man's capacity for intimate, personal relationships, was designed to be fulfilled with God/ (MacArthur)
 
-1:26: **image**. Traditionally, the **image** has been seen as the capacities that set man apart from the other animals—ways in which humans resemble God, such as in the characteristics of reason, morality, language, a capacity for relationships governed by love and commitment, and creativity in all forms of art. (ESV)
+1:26: **image**. Traditionally, the **image** has been seen as the capacities that set man apart from the other animals—ways in which humans resemble God, such as in the characteristics of reason, morality, language, a capacity for relationships governed by love and commitment, and creativity in all forms of art. (ESV)
 
 1:26: **по образу Нашему и по подобию**. Подобию ли телесному, как будто у Бога есть тело, руки, ноги? Бог не имеет очертаний, не ограничен величиной и формой, не связан временем; Он познаётся в могуществе.
 По какому же тогда образу? По образу разума. 
@@ -333,7 +333,7 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:4: **These are the generations**. Here starts the complementary account that zooms in on the sixth day of creation: a literary flashback that supplies more detail. (ESV)
 
-2:4: **The Lord**. Until now, the Creator was called by a generic word “God” (*Elohim*). In 2:4, the reader is now introduced to God’s personal name, “Yahweh” that  underlines the personal and relational nature of God. (ESV)
+2:4: **The Lord**. Until now, the Creator was called by a generic word “God” (*Elohim*). In 2:4, the reader is now introduced to God’s personal name, “Yahweh” that  underlines the personal and relational nature of God. (ESV)
 
 2:4: **The Lord**. “Yahweh” is translated as “**LORD**” because of the ancient Jewish tradition of saying *Adonay* (Lord) instead of reading *Yahweh* from the biblical text. The Septuagint customarily used “Lord” (Gk. *Kyrios*), and in this form it was quoted many times by the NT authors who also used “Lord” rather than “Yahweh”. This established the precedent for our modern translations. (ESV)
 
@@ -341,7 +341,7 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:6: **mist**. Properly translated "flow". Water came up from beneath the ground as springs. (MacArthur)
 
-2:7: “**formed**” (Hb. yatsar) conveys the picture of a potter’s fashioning clay into a particular shape. The close relationship between the man and the ground is reflected in the Hebrew words used to denote them, *’adam* and *’adamah*, respectively. (ESV)
+2:7: “**formed**” (Hb. yatsar) conveys the picture of a potter’s fashioning clay into a particular shape. The close relationship between the man and the ground is reflected in the Hebrew words used to denote them, *’adam* and *’adamah*, respectively. (ESV)
 
 2:7: **вылепил**. Сколько исследований посвящено этому вопросу! Труды медиков по физиологии, составленные учителями гимнастики руководства, где говорится о соотношении частей тела, об их симметричности и о распределении мышц, — все это свидетельствует о лепке человека. Где я найду такие слова, которыми с точностью мог бы передать, как много содержится в одном только выражении: «Он вылепил»?  (Свт. Василий Великий)
 
@@ -353,15 +353,15 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:7: **дыхание**. Слово дыхание указывает на то, что душа наша каждое мгновение нуждается в Духе Божием для истинной своей жизни, как телесные органы – легкие – нуждаются для дыхания в воздухе. (Прав. Иоанн Кронштадтский)
 
-2:7: **the breath of life** — physical, mental, and spiritual — placed into the man made in God’s image. (ESV)
+2:7: **the breath of life** — physical, mental, and spiritual — placed into the man made in God’s image. (ESV)
 
-2:7: **A living creature**. Man is called **a living creature** — the same word applied to animals in 1:20,24. While human beings have much in common with other living beings, God gives humans alone a royal and priestly status and makes them alone “in his own image”, giving him alone **the breath of life**. (ESV)
+2:7: **A living creature**. Man is called **a living creature** — the same word applied to animals in 1:20,24. While human beings have much in common with other living beings, God gives humans alone a royal and priestly status and makes them alone “in his own image”, giving him alone **the breath of life**. (ESV)
 
 2:7: **и стал человек душею живою**. Соединение высшего божественного начала (дыхания Божья) с низшим материальным (прахом от земли) дало в результате человека как живую душу, т. е. как сознательную личность, одаренную разумом и свободной волей. (Лопухин А.П.)
 
-2:8: **Eden**. The name “**Eden**,” would have conveyed the sense of “luxury, pleasure”. Septuagint used the word *paradeisos* (from which comes the English term “paradise”) on the understanding that it resembled a royal park. (ESV)
+2:8: **Eden**. The name “**Eden**,” would have conveyed the sense of “luxury, pleasure”. Septuagint used the word *paradeisos* (from which comes the English term “paradise”) on the understanding that it resembled a royal park. (ESV)
 
-2:8: **Eden**. Notice that **Eden** is not the name of the garden, but the name of the area the garden was located in. Moreover, in v. 10 it’s explicitly said that Eden and the garden were two different places: “flowed out of **Eden** to water the garden”. (ESV)
+2:8: **Eden**. Notice that **Eden** is not the name of the garden, but the name of the area the garden was located in. Moreover, in v. 10 it’s explicitly said that Eden and the garden were two different places: “flowed out of **Eden** to water the garden”. (ESV)
 
 2:8: **Эдем**. Эдем значит – земля; Адам – земной, перстный, из земли рожденный. (Свт. Иоанн Златоуст)
 
@@ -393,7 +393,7 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:10: **A river flowed out of Eden**. Eden itself is not the paradise; it was the land in which the garden was planted (v. 8: "planted a garden in Eden").
 
-2:10-14: **Pishon .. Gihon**. While the **Pishon** and the **Gihon** are unknown, the nearly universal identification of Tigris and Euphrates suggests a possible location for Eden at either their northern or southern extremes. (ESV)
+2:10-14: **Pishon .. Gihon**. While the **Pishon** and the **Gihon** are unknown, the nearly universal identification of Tigris and Euphrates suggests a possible location for Eden at either their northern or southern extremes. (ESV)
 
 2:10: **Из Эдема выходила река**. Географические признаки рая исключают любые попытки толковать рай как аллегорию и удостоверяет факт его полной реальности. Рай действительно некогда существовал на земле. (Лопухин А.П.)
 
@@ -403,9 +403,9 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:15: **work**. This was an easy and pleasant assignment because it was a sweatless, weedless, curse-free environment. Such an occupation can hardly be called "work". (MacArthur)
 
-2:15: **возделывать его и хранить его**. Что же, скажут, рай нуждался в возделывании со стороны человека? Не говорю этого, но Бог хотел, чтобы человек имел, хотя малое и умеренное, попечение о хранении и возделывании его, чтобы человек от чрезмерного покоя не развратился. (Свт. Иоанн Златоуст)
+2:15: **возделывать его и хранить его**. Что же, скажут, рай нуждался в возделывании со стороны человека? Не говорю этого, но Бог хотел, чтобы человек имел, хотя малое и умеренное, попечение о хранении и возделывании его, чтобы человек от чрезмерного покоя не развратился. (Свт. Иоанн Златоуст)
 
-2:15: **возделывать его и хранить его**. никак не должно понимать этих слов в плотском смысле, как бы о возделывании и хранении сада для его украшения и очищения от недостатков. Рай насажден рукою Божиею; недостатков нет в нем. (Свт. Игнатий Брянчанинов)
+2:15: **возделывать его и хранить его**. никак не должно понимать этих слов в плотском смысле, как бы о возделывании и хранении сада для его украшения и очищения от недостатков. Рай насажден рукою Божиею; недостатков нет в нем. (Свт. Игнатий Брянчанинов)
 
 2:16: **заповедал: .. не ешь**. Больше никаких заповедей не было: не было никакой речи о вражде, ссорам, зависти, гневе, ненависти, непотребстве, пьянстве, и так далее. Человек по своей природе был неспособен к этому.
 Потому Бог разрешил всё. "Делай всё что хочешь". Единственная же, и очень нетрудная, заповедь была: "не ешь с этого дерева".
@@ -418,7 +418,7 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:16: **не ешь**. воздержание Бог назначил служить символом повиновения и покорности Ему со стороны человека, в силу чего соблюдение этой заповеди выражало со стороны человека чувство любви, благодарности и преданности Богу; тогда как нарушение ее, совершенно наоборот, свидетельствовало о недоверии к Богу, пренебрежении к Его словам и черной неблагодарности к Творцу, вместе с желанием жить по своей воле, а не по заповедям Бога. Вот почему такое, по-видимому, ничтожное преступление получало такое огромное моральное значение! (Лопухин А.П.)
 
-2:17: **the tree of knowledge of good and evil**. The fruit of this **tree** has been variously understood as giving (1) sexual awareness, (2) moral discrimination, (3) moral responsibility, and (4) moral experience. The last is the most likely: through their obedience or disobedience the human couple will come to know **good and evil** by experience. (ESV)
+2:17: **the tree of knowledge of good and evil**. The fruit of this **tree** has been variously understood as giving (1) sexual awareness, (2) moral discrimination, (3) moral responsibility, and (4) moral experience. The last is the most likely: through their obedience or disobedience the human couple will come to know **good and evil** by experience. (ESV)
 
 2:17: **the tree of knowledge of good and evil**. There is no reason given for the prohibition of eating from this tree, other than it was a test. There was nothing magical about that tree, but since evil can be defined as disobeying God -- eating from it would indeed give man the knowledge of evil. (MacArthur)
 
@@ -448,11 +448,11 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 Лучше перевёл Симмах. У него говорится: «Ты будешь смертным».
 (Лопухин А.П.)
 
-2:18: **Not good** is a jarring contrast to 1:31, where everything *was good*. Clearly, the situation here has not yet arrived to *very good*. It means that the woman was made on the same day with the man, before the creation became *very good*. (ESV)
+2:18: **Not good** is a jarring contrast to 1:31, where everything *was good*. Clearly, the situation here has not yet arrived to *very good*. It means that the woman was made on the same day with the man, before the creation became *very good*. (ESV)
 
 2:18: **не хорошо быть человеку одному**. Это не то значит, что для совер­шенства природы Адамовой не доставало жены, – жена, без сомнения, ничего не могла прибавить к тому совершен­ству, с каким он сотворен, и есть даже обстоятельства, в которых «хорошо человеку не прикасатися к жене» (1 Кор. 7:1; Мф. 18:12). Господь признал неудобною жизнь Адама в одиночестве, по предведению, что сам Адам при обозрении животных, как увидим после, почувствует это неудобство и потребность в сожитии с существом, подобным ему. (Еп. Виссарион (Нечаев))
 
-2:18: **Helper**. A **helper** is one who supplies strength in the area that is lacking in “the helped”. A wife is **fit for him**, which means she is not exactly like him, but complements him. (ESV)
+2:18: **Helper**. A **helper** is one who supplies strength in the area that is lacking in “the helped”. A wife is **fit for him**, which means she is not exactly like him, but complements him. (ESV)
 
 2:19: **out of the ground .. beast**. This was not a new creation of animals. Here, the Lord is calling attention to the origin of those animals: "out of the ground", as He did man. (MacArthur)
 
@@ -495,7 +495,7 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 2:23: **будет называться женою**. Наш язык не показывает силы сего имени: она видна в словах еврейских: איש ,אשה, иш, иша. (Свт. Филарет (Дроздов))
 
-2:24: **a man shall leave his father and his mother**. The kinship between husband and **wife** creates obligations that override even duty to one’s **parents**. 
+2:24: **a man shall leave his father and his mother**. The kinship between husband and **wife** creates obligations that override even duty to one’s **parents**. 
 In ancient Israel, sons did not move away when they married, but lived near their parents and inherited their father’s land. They “left” their parents in the sense of putting their wife’s welfare before that of their parents. 
 (ESV)
 
@@ -588,13 +588,13 @@ This means that satan's words seemed credible and reliable, like everything else
 
 3:3: **чтобы вам не умереть**. Из слов Евы он заметил, что она очень удивляется строгости запо­веди Божией и от нарушения ее удерживается больше страхом смерти, чем любовию и преданностью к Давшему заповедь, строгую по непонятной причине. (Еп. Виссарион (Нечаев))
 
-3:4: **The serpent said**. In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
+3:4: **The serpent said**. In both cases, the **serpent** questions the word of **God**: in v.2, he questions Eve’s understanding; in v.4, he openly contradicts God’s words, misinterpreting them, or even suggesting insincerity in God’s intention.
 
-3:4: **you will not surely die**. The **serpent** not only directly contradicts what God has said about the harm, but goes on to present the fruit of the tree as something worth obtaining (ESV)
+3:4: **you will not surely die**. The **serpent** not only directly contradicts what God has said about the harm, but goes on to present the fruit of the tree as something worth obtaining (ESV)
 
 3:4: **you will not surely die**. The serpent speaks half-truths, promising much but delivering little. Eating the fruit transforms the couple, but not for the better. They did not die immediately, true. They  came to know evil by experience, were enslaved by it, and in their guilt they have became afraid to meet God, all resulting in them being cut off from the source of life and the tree of life. They moved into in the realm of the dead. (ESV)
 
-3:4: **you will not surely die**. The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like God, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
+3:4: **you will not surely die**. The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like God, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
 
 3:4: **не умрёте**. Примечая, что страх смерти держит Еву в послушании Богу, он отъемлет прежде всего сию опору: **не умрете**. (Свт. Филарет (Дроздов))
 
@@ -610,7 +610,7 @@ This means that satan's words seemed credible and reliable, like everything else
 3:5: **you will be like God**. The irony should not be overlooked: the couple has been made in the image of God (Gen 1:26–27) and are in this way already like God. Moreover, they are expected to exercise authority over all the beasts of the field, which includes the serpent. 
 Those who were meant to govern the earth on God’s behalf instead rebel against their divine King and obey one of his creatures. (ESV)
 
-3:5: **You will be like God** (the whole phrase in Hb. *kelohim*)— not become completely like Him, but acquire a particular quality that God had, but they hadn’t: **knowing good and evil**. Ultimately, in their desire become *more* like God, just the opposite happened: they have become *less like God*.
+3:5: **You will be like God** (the whole phrase in Hb. *kelohim*)— not become completely like Him, but acquire a particular quality that God had, but they hadn’t: **knowing good and evil**. Ultimately, in their desire become *more* like God, just the opposite happened: they have become *less like God*.
 
 3:5: **Будете как Бог**. Но сделались ли они богами? (Свт. Иоанн Златоуст)
 
@@ -629,7 +629,7 @@ Those who were meant to govern the earth on God’s behalf instead rebel against
 
 3:6: **И увидела жена**. Увидела, признав слова врага и противника нашего спасения более достойным доверия, нежели слова Божии. Видишь ли, как диавол заставил мечтать о себе выше своего достоинства, чтобы она, увлекшись пустыми надеждами, потеряла и то, что уже было ей даровано. (Свт. Иоанн Златоуст)
 
-3:6: **When the woman saw**. After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one. (~ESV)
+3:6: **When the woman saw**. After the serpent’s comment, **the woman** started **seeing** the tree differently: she started thinking about it not as a taboo, but as something good and desirable, making up her mind to come and taste something that she had used to see as forbidden and unapproachable. The serpent has somehow made the woman discontent with the permitted trees, focusing her desire on this one. (~ESV)
 
 3:6: **И увидела жена**. Самое грехопадение прародителей, по сказанию Моисея, начинается во внутренности, открывается внешним действием и непосредственно сопровождается новым чувствованием состояния греховного.  (Свт. Филарет (Дроздов))
 
@@ -713,7 +713,7 @@ It is possible, however, that Adam, who has not known punishment yet, didn't eve
 
 3:14: **The serpent**. God addresses the **serpent **first (ESV)
 
-3:14: **The serpent**. Verse 1 declared the **serpent** “more crafty” (Hb. ‘arum); now **God** declares it more **cursed** (Hb. ’arur) (ESV)
+3:14: **The serpent**. Verse 1 declared the **serpent** “more crafty” (Hb. ‘arum); now **God** declares it more **cursed** (Hb. ’arur) (ESV)
 
 3:14: **cursed are you above .. all beasts**. The cattle and all the rest of creation were cursed, but the serpent was uniquely cursed by being made to slither on its belly. It probably had legs before this curse. Now, snakes represent all that is odious, disgusting, and low. They are branded with infamy and avoided with fear. (MacArthur)
 
@@ -729,14 +729,14 @@ It is possible, however, that Adam, who has not known punishment yet, didn't eve
 
 3:15: **семя**. Иисус назван **семенем жены**, потому что Он родился на земле без мужского семени от Пресвятой Девы Марии. (Православный Катехизис)
 
-3:15: **he shall bruise your head**. The verse has traditionally been understood as pointing forward to the defeat of the **serpent** by a future **descendant** of the **woman**: a “Protoevangelium”, the first announcement of the gospel, the good news. This interpretation requires that the **serpent** be viewed as more than a mere snake, something which the narrative itself implies, given the serpent’s ability to speak and the vile things he says. This inference is legitimate and is clearly what the apostle John has in view in Rev. 12:9 (“the great dragon was thrown down, that ancient serpent, who is called the devil and Satan, the deceiver of the whole world”) and 20:2 (“ the dragon, that ancient serpent, who is the devil and Satan”). (ESV)
+3:15: **he shall bruise your head**. The verse has traditionally been understood as pointing forward to the defeat of the **serpent** by a future **descendant** of the **woman**: a “Protoevangelium”, the first announcement of the gospel, the good news. This interpretation requires that the **serpent** be viewed as more than a mere snake, something which the narrative itself implies, given the serpent’s ability to speak and the vile things he says. This inference is legitimate and is clearly what the apostle John has in view in Rev. 12:9 (“the great dragon was thrown down, that ancient serpent, who is called the devil and Satan, the deceiver of the whole world”) and 20:2 (“ the dragon, that ancient serpent, who is the devil and Satan”). (ESV)
 
 3:15: **Seed**. The two **seed**s can be seen in a simple sense as collective; that is, they may refer to all those who are part of satan's progeny and to all those who a part of Eve's. That view sees the war between the two as raging for all time, with the people of righteousness eventually gaining victory over the people of evil. 
 But "**seed**" can also be singular, in that it refers to one great, final, glorious product of a woman, who will be the Lord Himself: born without male seed. In that sense, the prediction is messianic. In may be that the prophecy looks to both the collective and the individual meanings. (MacArthur)
 
 3:15: **He shall bruise your head**. right in the middle of the curse, God promises that the times will change, and someone will come, he will restore paradise, and crush the serpent's. And immediately after this, God provides a covering for their shame. This is a loving God speaking. (MacArthur)
 
-3:15: **you shall bruise his heel**. The serpent will still be able to hurt the seed, but the **bruising of the heel** is far less serious than the fatal injury the serpent suffers itself: **the bruising of the head**. (ESV)
+3:15: **you shall bruise his heel**. The serpent will still be able to hurt the seed, but the **bruising of the heel** is far less serious than the fatal injury the serpent suffers itself: **the bruising of the head**. (ESV)
 
 3:15: **Enmity, .. bruise your head, .. bruise his heel**. God speaks to satan here: “You thought that mankind will be your friends now, but I tell you: it isn’t going to be that way. The woman will not belong to you: she will be your enemy and you will be her enemy. And out of her loins are going to come those who belong to Me. They will be the enemies of those who belong to you, and in the end, out of her loins is going to come the One who will crush your head, and all you’ll be able to do is bruise His heel.” (MacArthur)
 
@@ -765,7 +765,7 @@ The curse strikes to the very heart of what the person is doing.
 
 3:16: **умножая умножу скорбь**. Яснее: "скорбь на скорбь наведу я тебе". (Свт. Филарет (Дроздов))
 
-3:16: **pain in childbearing**. By way of punishing the woman for her sin of disobedience, God pronounces that she will **suffer pain** (Hb. *‘itstsabon*) in the **bearing of children**. This strikes at the very heart of the woman’s distinctiveness, for she is the “mother of all living” (v. 20) (ESV)
+3:16: **pain in childbearing**. By way of punishing the woman for her sin of disobedience, God pronounces that she will **suffer pain** (Hb. *‘itstsabon*) in the **bearing of children**. This strikes at the very heart of the woman’s distinctiveness, for she is the “mother of all living” (v. 20) (ESV)
 
 3:16: **childbearing**. A woman gave birth to sin in the human race and genetically passes it on to all her children. She can be delivered from this curse by raising godly children. See not on 1 Tim 2:15. (MacArthur)
 
@@ -795,7 +795,7 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 3:16: **он будет господствовать над тобою**. Если и раньше жена, в качестве только помощницы мужа, ставилась в некоторую зависимость от него, то теперь, после того, как первая жена доказала неуменье пользоваться свободой, Бог определенным законом поставляет ее действие под верховный контроль мужа. Лучшей иллюстрацией этого служит вся история дохристианского мира, в особенности же древнего Востока. И только лишь в христианстве жене снова возвращены отнятые у неё права (Еф. 5:25: "мужья, любите своих жён"). (Лопухин А.П.)
 
-3:17: **cursed is the ground**. Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15: "garden .. to work it and keep it"), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
+3:17: **cursed is the ground**. Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15: "garden .. to work it and keep it"), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
 
 3:17: **cursed is the ground**. Adam was condemned to a life of labor, tilling the cursed earth. The ground will yield reluctantly, yet richly, and through his hard work. (MacArthur)
 
@@ -822,7 +822,7 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 3:19: **в поте лица твоего будешь есть хлеб**. И до грехопадения, живя в раю, Адам должен был трудиться, но тогда, вследствие плодородия почвы и кре­пости телесных сил, труд был легок и благодарен. Для приобретения пропитания Адам осуждается теперь на из­нурительный до пота и менее плодотворный труд, борьбу с непокорной ему природой. И семя смерти уже проникло в телесный состав. Какой удар для гордости человеческой! (Еп. Виссарион (Нечаев))
 
-3:19: **To dust you shall return**. That the man **is dust** was not news to the man, but his the **returning to the dust** was. Death sounds normal and natural to us, but to Adam, it was the introduction of a new fearful concept into his world.
+3:19: **To dust you shall return**. That the man **is dust** was not news to the man, but his the **returning to the dust** was. Death sounds normal and natural to us, but to Adam, it was the introduction of a new fearful concept into his world.
 
 3:19: **прах ты есть, и в прах возвратишься**. Хотя Адам и Ева прожили много лет, но с той уже минуты, как услышали: «земля еси, и в землю отыдеши», они получили смертный приговор, сделались смертными и, можно сказать, умерли. Указывая на это, Писание и сказало: «в день в который ты вкусишь от него, смертью умрёшь» – вместо того, чтобы сказать: получите приговор – быть уже смертными. (Свт. Иоанн Златоуст)
 
@@ -869,7 +869,7 @@ This was also a graphic object lesson showing that only God can provide a suitab
 
 3:22: **Адам стал как один из Нас**. Событие показало, в каком смыс­ле понимал свое обещание диавол. Адам действительно сделался подобным Богу, если под сим уподоблением ра­зуметь приобретение знакомства с добром и злом без от­ношения к тому, как приобретено это знакомство. Оно приобретено чрез порабощение злу, с утратою невинности и правоты. Не достойно ли, посему, величайшего сожале­ния, что Адам, увлеченный желанием равнобожия, не до­гадался, что ему обещано диаволом только мечтательное равнобожие? Не достойно ли сожаления, что он по своей вине впал в сети диавола? (Еп. Виссарион (Нечаев))
 
-3:22: **lest he .. lives forever**. **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, living forever in such a sorry state would remove the possibility of repentance, resulting in eternal separation from God?
+3:22: **lest he .. lives forever**. **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, living forever in such a sorry state would remove the possibility of repentance, resulting in eternal separation from God?
 
 3:22: **live forever**. Driving the man and his wife out of the garden was an act of merciful grace to prevent them from being sustained forever by the tree of life and live forever in this pitiful cursed condition. (MacArthur)
 
@@ -952,17 +952,17 @@ This was also a graphic object lesson showing that only God can provide a suitab
 4:4: **firstborn .. fat portions**. While Cain brought just some offering, not caring much about what to bring, Abel brought the best that he had. Actions express attitudes: Abel had greater devotion in his heart, and it was visible through his actions.
 Note that external devotion does not mean internal devotion even exists. But true internal devotion always finds its expression by external means.
 
-4:4: **The firstborn of his flock** is a more costly offering, expressing greater devotion. (ESV)
+4:4: **The firstborn of his flock** is a more costly offering, expressing greater devotion. (ESV)
 
 4:4: **the fruit of the ground**. The Midrash suggest that although Abel brought the best meat from his flock, Cain did not set aside for God the best of his harvest. ([Wiki](https://en.wikipedia.org/wiki/Cain))
 
 4:4: **the Lord had regard for Abel and his offering**. It was not the offering itself that pleased God, but Abel's heart: Lord's regard was not to the **offering** alone, but **for Abel** *and* **his offering**.
 
-4:4: **the Lord had regard .. had no regard**. The key to understanding the **Lord’s regard** for Abel’s gift is not in the gift itself, but the attitude of the heart that undergirds the actions and the response to them. God knows what’s in the heart of man, doesn’t He? And so in v. 7 ("if you do not do well") God explained to Cain that his gift was rejected not because God doesn’t like farmers, but rather, because Cain has done something wrong while offering the gift. Probably, he lacked sincerity.
+4:4: **the Lord had regard .. had no regard**. The key to understanding the **Lord’s regard** for Abel’s gift is not in the gift itself, but the attitude of the heart that undergirds the actions and the response to them. God knows what’s in the heart of man, doesn’t He? And so in v. 7 ("if you do not do well") God explained to Cain that his gift was rejected not because God doesn’t like farmers, but rather, because Cain has done something wrong while offering the gift. Probably, he lacked sincerity.
 
-4:4: **offering**. At no point does the Bible suggest that **offerings** work *automatically*, as if the worshiper’s faith and contrition did not matter; and Cain’s fundamentally bad heart can be seen in his resentment toward his brother and in his uncooperative answers to God in the rest of the passage. (ESV)
+4:4: **offering**. At no point does the Bible suggest that **offerings** work *automatically*, as if the worshiper’s faith and contrition did not matter; and Cain’s fundamentally bad heart can be seen in his resentment toward his brother and in his uncooperative answers to God in the rest of the passage. (ESV)
 
-4:4: **had no regard**. God has rejected one **gift** and **accepted** the other “because [Cain’s] own deeds were evil and his brother's righteous” (1 Jn 3:12). "By faith Abel offered to God a more acceptable sacrifice than Cain" (Heb 11:4).
+4:4: **had no regard**. God has rejected one **gift** and **accepted** the other “because [Cain’s] own deeds were evil and his brother's righteous” (1 Jn 3:12). "By faith Abel offered to God a more acceptable sacrifice than Cain" (Heb 11:4).
 
 4:4: **На Каина и на дар его не призрел**. Каин не позаботился о класах добрых или о плодах лучших. В душе приносящего жертву не было любви к Приемлющему приношения. И поскольку с небрежением принес он жертву, то Бог отверг ее, чтобы Каин не подумал, что Богу неизвестно его небрежение, или что Ему дары приятнее самих приносящих. (Прп. Ефрем Сирин)
 
@@ -1050,7 +1050,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:12: **скитаться по земле.**. **Странствованием** житие свое на земле почитают и праведники; но между ними и грешными есть та разность, что первые нигде на земле не ищут отечества и везде находят его, а последние везде ищут и нигде не находят. (Свт. Филарет (Дроздов))
 
-4:13: **greater than I can bear**. Cain is immediately conscious of the severity of his **punishment**: he is to be alienated from both the ground and God. While this may seem like a very lenient sentence, it meant that Cain would become a fugitive and a wanderer on the earth. (ESV)
+4:13: **greater than I can bear**. Cain is immediately conscious of the severity of his **punishment**: he is to be alienated from both the ground and God. While this may seem like a very lenient sentence, it meant that Cain would become a fugitive and a wanderer on the earth. (ESV)
 
 4:13: **наказание моё больше, нежели снести можно**. Нераскаивающийся Каин укоряет Господа жестокостью Его правосудия. И отчаяние, и хула проистекают из общего источника — закоснения в грехе и неверия. (Свт. Филарет (Дроздов))
 
@@ -1062,7 +1062,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:15: **отмстится всемеро**. Почему такая строгость? Потому, что надобно быть слишком дерзким и нечестивым, чтобы решиться на убийство после того, как из примера Каина стало известно, что это злодеяние нельзя совершать безна­казанно. (Еп. Виссарион (Нечаев))
 
-4:15: **The mark**. In spite of much scholarly speculation, the precise nature of **the mark** is uncertain. It must have been something visible, but that is all that can be said. (ESV)
+4:15: **The mark**. In spite of much scholarly speculation, the precise nature of **the mark** is uncertain. It must have been something visible, but that is all that can be said. (ESV)
 
 4:15: **mark**. Some sort of identifiable sign that he was under divine protection which was mercifully given to Cain by God. At the same time, the mark that saved him was the lifelong sign on his shame. (MacArthur)
 
@@ -1114,7 +1114,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:22: **ковачом всех орудий из меди и железа**. До изобретения Тувалкаинова сосуды и орудия приготов­ляемы были из дерева и камня. Фовел нашел более пригод­ными для многих изделий железо и медь, по большей их прочности и твердости. Видно, что он очень хорошо изучил свойства этих металлов, умел разрабатывать железную и медную руду, изобрел литейное и плавильное искусство. (Еп. Виссарион (Нечаев))
 
-4:23: **I have killed a man for wounding me**. Seven generations on from Cain, **Lamech** resembles his ancestor, but seems to be worse. His response is out of proportion to the injury, showing his inordinate vengefulness. (ESV)
+4:23: **I have killed a man for wounding me**. Seven generations on from Cain, **Lamech** resembles his ancestor, but seems to be worse. His response is out of proportion to the injury, showing his inordinate vengefulness. (ESV)
 
 4:23: **for wounding**. God’s wisdom is not to take revenge but forgive; Lamech’s wisdom is the opposite: take revenge in such a way that it’s worse than the initial offense. It's not even justice. It's more severe.
 
@@ -1134,9 +1134,9 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 4:25: **Seth**. With Abel dead, and Cain removed, God graciously gave Adam and Eve a godly son, through whom the seed of redemption would be passed all the way to Jesus Christ. (MacArthur)
 
-4:25: **God has appointed**. It is noteworthy that there’s been no mention of **God** while the text was talking about Cain’s descendants; likely because they were wicked and godless.
+4:25: **God has appointed**. It is noteworthy that there’s been no mention of **God** while the text was talking about Cain’s descendants; likely because they were wicked and godless.
 
-4:26: **began to call upon the name of the Lord**. Details are not given, but the implication may be that this **calling on the Lord’s name** began in Adam’s own family circle. (ESV)
+4:26: **began to call upon the name of the Lord**. Details are not given, but the implication may be that this **calling on the Lord’s name** began in Adam’s own family circle. (ESV)
 
 4:26: **men began to call upon the name of the Lord**. As men realized their inherent sinfulness, with no human means to improve,  they turned to God for mercy and grace in hopes of a restored personal relationship. (MacArthur)
 
@@ -1167,7 +1167,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 5:1: **сотворил человека, по подобию Божию**. Не без цели упоминает о создании родоначальника и жены его по образу Божию. Быть может, он хотел внушить читателю, что перечисляемые потомки Адама через него ведут свой род как бы от самого Бога. (Лопухин А.П.)
 
-5:3: **fathered a son in his own likeness**. While this implies that **Seth** is made, like **Adam**, in the divine **image**, it also suggests that he images his father as well; Seth’s line, however, is certainly portrayed more positively than that of Cain. (ESV)
+5:3: **fathered a son in his own likeness**. While this implies that **Seth** is made, like **Adam**, in the divine **image**, it also suggests that he images his father as well; Seth’s line, however, is certainly portrayed more positively than that of Cain. (ESV)
 
 5:3: **по подобию своему по образу своему, и нарек ему имя: Сиф**. Здесь знаем, что что этот сын не будет таким же, как Каин. Потому и мать, давая имя этому сыну, дает его с благодарностию, и рождение дитяти приписывает не природе и собственной способности рождать, но силе Божией. (Свт. Иоанн Златоуст)
 
@@ -1179,7 +1179,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 5:4: **родил сынов и дочерей**. У Адама было не трое детей, а больше. (Лопухин А.П.)
 
-5:5: **Lived 930 years**. You complain that you have to work a lot and you can only retire when you are 60? Give me a break! Adam lived in toil *for 900 years*! And that -- after living in the Garden, where everything was growing by itself! (MacArthur)
+5:5: **Lived 930 years**. You complain that you have to work a lot and you can only retire when you are 60? Give me a break! Adam lived in toil *for 900 years*! And that -- after living in the Garden, where everything was growing by itself! (MacArthur)
 
 5:5: **and he died**. Two recurring phrases carry redemption history forward: "and he had sons and daughters", "and he died". These repeated lines echo two contrasted realities: "you shall surely die" (2:17) and "be fruitful and multiply" (1:28). (MacArthur)
 
@@ -1189,15 +1189,15 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 5:22: **ходил Еног пред Богом**. Подобное выражение встречается в Библии неоднократно (Быт. 6:9; Мих. 6:8; Мал. 2:6 и пр.) и везде оно означает высшую степень нравственного направления жизни человека, когда он стал глубоко проникаться благоговейным чувством божественного вездеприсутствия, что очами веры как бы постоянно видит Бога пред собою, и в строгом соответствии с этим согласует весь образ своего поведения и каждый шаг своей жизни (Лопухин А.П.)
 
-5:23: **all the days of Enoch were 365 years**. The number **365** had no special significance to Hebrews.
+5:23: **all the days of Enoch were 365 years**. The number **365** had no special significance to Hebrews.
 
 5:23: **all the days of Enoch were 365 years**. Adam would have been dead by the time Enoch was take to heaven.
 
-5:24: **God took him**. Unlike all the other members of this genealogy, **Enoch** did not die, but was **taken** by God.
+5:24: **God took him**. Unlike all the other members of this genealogy, **Enoch** did not die, but was **taken** by God.
 
-5:24: **God took him**. **Enoch** is one of the three people in the Bible who were raised to Heaven in a bodily form: Enoch, Elijah, and Jesus Christ.
+5:24: **God took him**. **Enoch** is one of the three people in the Bible who were raised to Heaven in a bodily form: Enoch, Elijah, and Jesus Christ.
 
-5:24: **walked with God**. The Hebrew verb for “**walked**” is a distinctive form that conveys the sense of an ongoing intimacy with **God**. Remarkably, because of this special relationship, **Enoch** does not die. (ESV)
+5:24: **walked with God**. The Hebrew verb for “**walked**” is a distinctive form that conveys the sense of an ongoing intimacy with **God**. Remarkably, because of this special relationship, **Enoch** does not die. (ESV)
 
 5:24: **Enoch .. God took him**. This line is clearly presented as offering an alternative to the line of seven generations linked to Cain: whereas Cain’s line leads to a killer in the seventh generation, the comparable generation in Seth’s line produces Enoch, who walked with God and did not die. (ESV)
 
@@ -1207,7 +1207,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 5:27: **Methuselah**. There’s an English expression that dates back to 1300s: “old as **Methuselah**”
 
-5:27: **Methuselah .. died**. **Methuselah** died in the year 1656 after creation; because he hasn’t been in the Ark, the flood must have taken place after he died. Further, Arphaxad, the son of Shem, was born in the year 1658 after creation, and because there is no mention of him when Noah’s family had entered the ark, the flood must have taken place before his birth.
+5:27: **Methuselah .. died**. **Methuselah** died in the year 1656 after creation; because he hasn’t been in the Ark, the flood must have taken place after he died. Further, Arphaxad, the son of Shem, was born in the year 1658 after creation, and because there is no mention of him when Noah’s family had entered the ark, the flood must have taken place before his birth.
 In the end, the flood must have happened in the years 1656-1658 after creation. It is indeed possible that Methuselah, who outlived his son Lamech, has died in the flood.
 ([Chronology charts](https://www.google.com/url?q=https://www.google.com/search?tbm%3Disch%26q%3D%2528chronology%257Ctimeline%2529%2Badam%2Babraham&amp;sa=D&amp;ust=1582399365175000))
 
@@ -1222,9 +1222,9 @@ In the end, the flood must have happened in the years 1656-1658 after creation. 
 
 5:29: **он утешит нас**. Эти слова не были сказаны в отношении сбывшегося Потопа: потому что смерть Ламеха предшествовала Потопу. (Свт. Григорий Палама)
 
-5:31: **days of Lamech were 777 years**. The number **777** does not look that nice in Hebrew: שֶׁ֤בַע (še·ḇa‘). 
+5:31: **days of Lamech were 777 years**. The number **777** does not look that nice in Hebrew: שֶׁ֤בַע (še·ḇa‘). 
 
-5:31: **days of Lamech were 777 years**. **Lamech’s 777** years provides an interesting point of contact with his namesake in Ch. 4, where another Lamech, a descendant of Cain, boasted for murdering a man for striking him, and talking about a seventy-sevenfold vengeance (Gen 4:23-24: “Lamech said to his wives: ... I have killed a man for wounding me, a young man for striking me. If Cain's revenge is sevenfold, then Lamech's is seventy-sevenfold”). (77 is similar to 777 in Hebrew: וְשִׁבְעָֽה׃ (wə·šiḇ·‘āh))
+5:31: **days of Lamech were 777 years**. **Lamech’s 777** years provides an interesting point of contact with his namesake in Ch. 4, where another Lamech, a descendant of Cain, boasted for murdering a man for striking him, and talking about a seventy-sevenfold vengeance (Gen 4:23-24: “Lamech said to his wives: ... I have killed a man for wounding me, a young man for striking me. If Cain's revenge is sevenfold, then Lamech's is seventy-sevenfold”). (77 is similar to 777 in Hebrew: וְשִׁבְעָֽה׃ (wə·šiḇ·‘āh))
 
 
 
@@ -1275,7 +1275,7 @@ However, apostle Peter renders this interpretation invalid. See note on 6:2.
 
 6:3: **not .. forever; .. 120 years**. God announces that because of the immoral nature of people, **their days shall be 120 years**. There are two possible interpretations of this number of years: either the lives of human beings will no longer exceed 120 years, or the coming of the flood is anticipated in 120 years. (ESV)
 
-6:3: **120 years**. Some interpreters take **120 years** as the countdown to the Flood.
+6:3: **120 years**. Some interpreters take **120 years** as the countdown to the Flood.
 
 6:3: **потому что они плоть**. Пренебрежение к Духу Божию есть крайняя степень упорства против Духа Святого: оставление без внимания всех Божественных, духовных и нравственных внушений чрез слово, природу и совесть. Поелику в сем состоянии человек действует так, как бы он имел только чувственную природу и никакой другой высшей, то весьма сообразно с сим состоянием называется он плотию. (Свт. Филарет (Дроздов))
 
@@ -1287,8 +1287,8 @@ However, apostle Peter renders this interpretation invalid. See note on 6:2.
 
 6:3: **120 лет**. Очевидно, речь идет не о сокращении человеческой жизни, – она и после потопа продолжалась до 500 лет, – а о том сроке времени, после которого, если люди не покаются, они будут непременно истреблены. Подобное долготерпение Господь являл и в других случаях. Так, Он объявил Аврааму, что истребление аммореев отлагает на 400 лет, пока не исполнится мера беззакония их (Быт. 15:16); ниневитянам Он дал на покаяние 40 дней (Ион. 3:4); Навуходоносору – один год (Дан. 4), иудеям, отвергшим Христа, – 37 лет до разрушения Иерусалима. (Еп. Виссарион (Нечаев))
 
-6:4: **The Nephilim**. Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it *gigantes*, “giants”. This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”. 
-One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
+6:4: **The Nephilim**. Although in Hebrew **the Nephilim** means “fallen ones,” the earliest Greek translators rendered it *gigantes*, “giants”. This idea may have been mistakenly deduced from Num. 13:33: “we saw the Nephilim ... and we seemed to ourselves like grasshoppers”. 
+One must be cautious about reading “giants” back into the present passage. The **Nephilim** were **mighty men** or warriors and, as such, may well have contributed to the violence that filled the earth. (ESV)
 
 6:4: **The Nephilim**. "Nephilim" comes from the word "to fall", indicating that they were strong men who "fell" on others in the sense of overpowering them. They were already in the earth when the "mighty men" and "men of renown" were born. The fallen ones are not the offspring from the union in verses 1 and 2. (MacArthur)
 
@@ -1304,7 +1304,7 @@ One must be cautious about reading “giants” back into the present passage. T
 
 6:5: **Видел же Господь, что .. всякий образ помышлений сердца их одно зло во всю жизнь**. Бог, яко первая причина всего, судит человека не по наружным действиям, но по их причинам и основаниям и находит повреждение самое глубокое, начинающееся от помышлений сердца; повреждение самое пагубное, простирающееся отсюда на всю деятельность; повреждение всеобщее, простирающееся на все вырождения помышлений сердца. Таким образом, когда самые основания добра повреждены, то нет уже места исправлению, но только разрушению. (Свт. Филарет (Дроздов))
 
-6:6: **it grieved Him**. **God** is **grieved** over his creation, which he at first saw as very good (1:31) but which is now filled with sin. (ESV)
+6:6: **it grieved Him**. **God** is **grieved** over his creation, which he at first saw as very good (1:31) but which is now filled with sin. (ESV)
 
 6:6: **grieved Him to His heart**. Sin sorrowed God who is holy and without blemish. (MacArthur)
 
@@ -1320,7 +1320,7 @@ One must be cautious about reading “giants” back into the present passage. T
 Как при благочестивой жизни человека и тварь участвует в человеческом благоденствии, так и теперь, когда человек за множество грехов своих должен понести наказание и подвергнуться конечной погибели, вместе с ним и скоты.
 (Свт. Иоанн Златоуст)
 
-6:8: **But Noah found favor**. **Noah** is distinguished from the rest of humanity. Apart from Noah, the only other person in the OT who is described as **finding favor in the eyes of the LORD** is Moses, in Ex. 33:17. (ESV)
+6:8: **But Noah found favor**. **Noah** is distinguished from the rest of humanity. Apart from Noah, the only other person in the OT who is described as **finding favor in the eyes of the LORD** is Moses, in Ex. 33:17. (ESV)
 
 6:8: **Ной же обрел благодать пред очами Господа**. если в таком множестве Он найдет хотя одного делающего угодное Ему, то не оставляет его без внимания, но удостаивает Своего попечения. (Свт. Иоанн Златоуст)
 
@@ -1346,7 +1346,7 @@ One must be cautious about reading “giants” back into the present passage. T
 
 
 ### Noah and the Flood
-6:9: **blameless**. The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
+6:9: **blameless**. The Hebrew for **blameless** conveys the sense of being perfect, without evident flaw (although not necessarily sinless). The positive attributes listed here are rarely ascribed to human beings in the OT.  (ESV)
 
 6:9: **в роде своём**. Иероним (In trad. Hebr.) замечает, что сия похвала ослабляется приложением знаменательных слов в свои времена, так как бы Ной казался совершенным только в сравнении с своими современниками. Напротив того, не больше ли открывается его достоинство тем, что он был совершен в свои времена, то есть во времена всеобщего развращения? (Свт. Филарет (Дроздов))
 
@@ -1362,7 +1362,7 @@ One must be cautious about reading “giants” back into the present passage. T
 В 1609 г. один нидерландский меннонит, некто Петр Янсен построил по типу ковчега, только в уменьшенном масштабе, особое судно, откуда опытно убедился, что хотя подобный корабль и мало приспособлен к плаванию, но он гораздо поместительнее, чем всякий другой корабль (почти на целую треть) иного типа с тем же кубическим объемом.
 (Лопухин А.П.)
 
-6:17: **everything that is on the earth shall die**. It is possible that the flood, while universal from their viewpoint, did not cover the entire globe. Indeed, Genesis implies that prior to the Tower of Babel incident (see 11:1–9), people had not yet spread throughout the **earth**. Many interpreters, therefore, argue that a huge regional flood may have been all that was necessary for God to destroy all human beings.
+6:17: **everything that is on the earth shall die**. It is possible that the flood, while universal from their viewpoint, did not cover the entire globe. Indeed, Genesis implies that prior to the Tower of Babel incident (see 11:1–9), people had not yet spread throughout the **earth**. Many interpreters, therefore, argue that a huge regional flood may have been all that was necessary for God to destroy all human beings.
 In support of the view that the flood covered all the **earth**, other interpreters point out that the text says that “all the high mountains under the whole heaven were covered” (7:19) and that the water was “fifteen cubits” above the tops of the mountains. If the mountain range of Ararat was covered, that would be sufficient to cover the entire globe.
 (ESV)
 
@@ -1396,7 +1396,7 @@ It may also be that Noah still wanted to improve a thing or two, but God stopped
 
 7:1: **Go into the ark**. After many years of construction, having only faith in that a flood will come, and animals will be provided... finally! the day comes. God says, "it is now". The confirmation of the expectation. Noah now not only believes, but knows, that the flood is imminent.
 
-7:1: **righteous**. The reason for **the Lord’s** choosing of **Noah** is that he was **righteous**: the fact that has already been emphasized twice (Gen 6:8, 9, implicitly 13).
+7:1: **righteous**. The reason for **the Lord’s** choosing of **Noah** is that he was **righteous**: the fact that has already been emphasized twice (Gen 6:8, 9, implicitly 13).
 
 7:1: **ибо тебя увидел Я праведным предо Мною**. тебя одного Я нашел благопризнательным; тебя увидел усердно заботящимся о добродетели; ты один явился праведным предо Мною, между тем как все эти губили себя, тебе повелеваю войти, со всем домом твоим, в ковчег. (Свт. Иоанн Златоуст)
 
@@ -1501,7 +1501,7 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 
 8:13: **The face of the ground was dry**. Even though the earth looked dry, Noah did not leave the ark until God told him to do so in v. 16. This fact says that Noah trusted God’s direct guidance more than his own understanding.
 
-8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
+8:17: **be fruitful and multiply**. God’ instructions to **be fruitful and multiply** are reminiscent of the words God had said to Adam. (ESV)
 
 
 
@@ -1534,9 +1534,9 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 Таким образом, жер­тва Ноева была благодарственная, и вместе покаянная и умилостивительная, и как все жертвы, без сомнения, про­образовала собою крестную жертву Искупителя, и от ней, как единственно удовлетворительной пред правосудием Божиим, получала свою силу. 
 (Еп. Виссарион (Нечаев))
 
-8:20: **built an altar**. Noah’s practice and ceremonial functions parallel the festival of Shavuot and sheds light on his priestly functions: God’s first priest. (Wikipedia)
+8:20: **built an altar**. Noah’s practice and ceremonial functions parallel the festival of Shavuot and sheds light on his priestly functions: God’s first priest. (Wikipedia)
 
-8:20: **every clean bird**. The Lord had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clear, but God had foreseen this episode.
+8:20: **every clean bird**. The Lord had made a provision for this sacrifice when told Noah to take more than one pair of those ritually clean birds. Whether God had commanded Noah to make an offering is not clear, but God had foreseen this episode.
 
 8:21: **the pleasing aroma**. Not the aroma of the meat itself, but the "aroma" of a worshipful human heart who loves God and is obedient to Him. This aroma is pleasing indeed!
 
@@ -1549,7 +1549,7 @@ Dates repeat: 10, 17, 27; do not repeat: 1, 24
 
 8:21: **приятное благоухание**. Добрейший Господь обыкновенно, обращает внимание не столько на наши жертвы, сколько на внутреннее расположение, с каким мы их совершаем, и, судя по нему, или приемлет, или отвергает наши жертвы. (Свт. Иоанн Златоуст)
 
-8:21: **the intention of man's heart is evil from his youth**. Notice how this verse echoes very closely 6:5 (“every intention of the thoughts of his heart was only evil continually”). In spite of the human propensity to sin, atonement through sacrifice is possible, securing a peaceful relationship between the Lord and humanity. (ESV)
+8:21: **the intention of man's heart is evil from his youth**. Notice how this verse echoes very closely 6:5 (“every intention of the thoughts of his heart was only evil continually”). In spite of the human propensity to sin, atonement through sacrifice is possible, securing a peaceful relationship between the Lord and humanity. (ESV)
 
 8:21: **never again .., never will I**. Regardless of how sinful mankind would become in the future, God promised not to engage in global catastrophe by flood again (see 9:11: the sign on the covenant). See 2 Pet 3:3-10: in the future, the earth will be destroyed by fire. (MacArthur)
 
@@ -1583,7 +1583,7 @@ Earth has become much better.
 
 8:22: **Во все дни земли**. Сим показывается, что изображенное обетование не вечно, а имеет свой предел. Дни земли, наконец, должны уступить место дням небес (Пс 88:30: "И положу в век века семя Его."), и тогда не только времен года, но и нощи не будет (Откр. 21:25: "Ворота его не будут запираться днем; а ночи там не будет"). (Свт. Филарет (Дроздов))
 
-9:1: **be fruitful and multiply**. God says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
+9:1: **be fruitful and multiply**. God says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
 
 9:1: **плодитесь и размножайтесь**. Нельзя здесь не подивиться безмерной благости Господа. Смотри, в самом деле, праведник этот удостаивается того же самого благословения, какого (удостоился) Адам, и утраченное Адамом владычество возвращает себе своею добродетелью, или – лучше сказать – по неизреченному человеколюбию Господа. (Свт. Иоанн Златоуст)
 
@@ -1591,7 +1591,7 @@ Earth has become much better.
 Но не добавлено, как некогда Адаму: «и обладайте ею» так как человек через грехопадение утратил эту богоподобную силу или, по крайней мере, сильно умалил и сократил её.
 (Лопухин А.П.)
 
-9:2: **the fear of you .. upon everything**. To Adam was given the dominion; in Noah’s time animals started to fear the human. (ESV)
+9:2: **the fear of you .. upon everything**. To Adam was given the dominion; in Noah’s time animals started to fear the human. (ESV)
 
 9:2: **Да страшатся и да трепещут вас**. Сего не было в благословении, данном Адаму: он был владыкою твари, но не страшным. Когда же внутреннее достоинство человека уже не покоряет ему тварей, Бог обуздывает их страхом. Сей страх освобождает нас от опасностей со стороны сильнейших, нежели мы, животных и заставляет их служить нам. (Свт. Филарет (Дроздов))
 
@@ -1621,7 +1621,7 @@ It was, in fact, that blood which God designed to be a covering for sin (Lev 17:
 
 9:5: **взыщу также душу человека от руки человека, от руки брата его**. Но если животные, которым не­свойственно грешить, должны отвечать за человекоубий­ство, то еще меньше может надеяться на безнаказанность человек, дерзнувший посягнуть на жизнь того, с кем связан братскими узами, как происшедший от одной с ним крови, в самой единокровности имевший сильное побуждение к человеколюбию. (Еп. Виссарион (Нечаев))
 
-9:6: **sheds blood, .. by his blood shall be shed**. Here the principle of *talion*, a life for a life, is applied. Human life is to be valued so highly that it is protected by this system of punishment because God made man in his own image, and so to murder another human being is to murder what is most like God, and is thus implicitly an attack on God himself.  (ESV)
+9:6: **sheds blood, .. by his blood shall be shed**. Here the principle of *talion*, a life for a life, is applied. Human life is to be valued so highly that it is protected by this system of punishment because God made man in his own image, and so to murder another human being is to murder what is most like God, and is thus implicitly an attack on God himself.  (ESV)
 
 9:6: **того кровь прольется рукою человека**.  Что же, скажешь, если кто совершит бесчисленные убийства, и прольет множество крови, – такой человек будет ли достойно наказан, когда будет пролита только кровь его одного? Не рассуждай так, любезный, но подумай о том, что этот человек, недолго спустя, получит нетленное тело, которое будет в состоянии терпеть непрестанное и вечное мучение. (Свт. Иоанн Златоуст)
 
@@ -1635,7 +1635,7 @@ It was, in fact, that blood which God designed to be a covering for sin (Lev 17:
 
 9:7: **increase greatly on the earth**. God wants humanity to flourish and not to be destroyed by violence or another flood. This positive view of population growth stands in sharp contrast to the Babylonian flood story, which ends with the gods taking measures to inhibit mankind from filling the earth. (ESV)
 
-9:9: **covenant**. This is the first covenant explicitly named in Genesis. A covenant formally binds two parties together in a relationship, on the basis of mutual personal commitment, with consequences for keeping or breaking the commitment. (ESV)
+9:9: **covenant**. This is the first covenant explicitly named in Genesis. A covenant formally binds two parties together in a relationship, on the basis of mutual personal commitment, with consequences for keeping or breaking the commitment. (ESV)
 
 9:10: **и со всякою душею живою**. Вот еще доказательство того, насколько тесна связь человека со всей природой: падает человек, падает и вся природа; гибнет человек, погибает и все живущее, наконец, восстает человек и с ним восстает и вся тварь (Рим. 8:20: "тварь покорилась суете не добровольно, но по воле покорившего ее, в надежде, что и сама тварь освобождена будет от рабства тлению"). (Лопухин А.П.)
 
@@ -1643,7 +1643,7 @@ It was, in fact, that blood which God designed to be a covering for sin (Lev 17:
 
 9:12: **вот знамение завета**. Будут покрывать небо темные облака, лить сильные дожди, особенно в жарких странах: но это не должно тревожить обитателей земли, они не должны опасаться возобновления всемирного потопа. Радуга будет напоминать им не только о гневе Божием, как сопутствующая дождю, от которого был потоп, но вместе о милости Божией, как произведение солнечного света, величественное и радующее взоры. (Еп. Виссарион (Нечаев))
 
-9:13: **I have set my bow in the cloud**. Different covenants have appropriate signs or symbols linked to them. Circumcision is the sign of the covenant with Abraham (ch. 17), and the Sabbath is the sign of the covenant with Israel at Mount Sinai (Ex. 31:12–17). On this occasion God’s designated sign is the **rainbow**. Its presence, when rain clouds are in the sky, will be a visible reminder of God’s everlasting covenant (v. 16). (ESV)
+9:13: **I have set my bow in the cloud**. Different covenants have appropriate signs or symbols linked to them. Circumcision is the sign of the covenant with Abraham (ch. 17), and the Sabbath is the sign of the covenant with Israel at Mount Sinai (Ex. 31:12–17). On this occasion God’s designated sign is the **rainbow**. Its presence, when rain clouds are in the sky, will be a visible reminder of God’s everlasting covenant (v. 16). (ESV)
 
 9:13: **Я полагаю радугу Мою в облаке**. Мнения экзегетов здесь расходятся. 
 Одни думают, что радуга с этого момента появляется только впервые и что раньше ее не существовало совершенно потому, что не было вовсе дождя, а земля орошалась только туманом и росою, как это можно предполагать на основании (Быт. 2:6). 
@@ -1691,7 +1691,7 @@ Of the six explicitly mentioned covenants of this kind in Scripture, only the Mo
 9:18: **Ham was the father of Canaan**. The objective of the story may have been to justify the subject status of the Canaanites, the descendants of Ham, to the Israelites, the descendants of Shem. 
 The curse on Canaan, invoked in response to an act of moral depravity, is the first intimation of the theme of the corruption of the Canaanites, which is given as the justification for their being dispossessed of their land and for the transfer of that land to the descendants of Abraham. ([Wikipedia](https://en.wikipedia.org/wiki/Curse_of_Ham))
 
-9:18: **Ham was the father of Canaan**. The text emphasizes the origins of Canaanites by naming them twice (also in v. 22). The reader who knows that Canaanites were pagan semitic tribes who have been conquered by Israel, and to that reader the text would explain the reason why this conquest has taken place. Descending from a father like **Ham** casts a shadow on on the whole nation.
+9:18: **Ham was the father of Canaan**. The text emphasizes the origins of Canaanites by naming them twice (also in v. 22). The reader who knows that Canaanites were pagan semitic tribes who have been conquered by Israel, and to that reader the text would explain the reason why this conquest has taken place. Descending from a father like **Ham** casts a shadow on on the whole nation.
 
 9:18: **Хам**. **Хамство**: тип поведения человека, отличающийся грубым, наглым и резким способом общения (Википедия)
 
@@ -1715,19 +1715,19 @@ The curse on Canaan, invoked in response to an act of moral depravity, is the fi
 В ковчеге Ной не пил вина год. В тот месяц, когда Ной вышел из ковчега, нельзя было насаждать виноград. А потом насаженный виноград даст плоды только на третий или четвёртый год. Поэтому праведник не вкушал вина в течение шести лет.
 (Прп. Ефрем Сирин)
 
-9:21: **lay uncovered**. Nakedness may associate Noah with the original sin, one manifestation of which was the awareness of nakedness.
+9:21: **lay uncovered**. Nakedness may associate Noah with the original sin, one manifestation of which was the awareness of nakedness.
 
 9:21: **лежал обнажённым**. Во время сна, беспокоимый ощущением внутреннего жара, обыкновенным в состоянии опьянения, Ной непроизволь­но сбросил с себя одежду, в которой лег, и представил неблагообразное зрелище наготы. (Еп. Виссарион (Нечаев))
 
 9:21: **лежал обнаженным в шатре своем**. Ной в таком виде лежал дома, не видимый многими. Не твердый же в мыслях, разумею Хама, сделал неприличие зрелища сего поводом к преступной насмешке, тогда как должен был бы одеть и даже защитить родителя, побежденного опьянением и подвергшегося дурным последствиям излишнего употребления вина. Но оставив это и пренебрегая почтением к родителю, он стремится сделать и других свидетелями этого зрелища и, сделав из старца как бы театральную сцену, убеждает и братьев к смеху. (Свт. Кирилл Александрийский)
 
-9:22: **saw the nakedness**. Though the text does not explicitly state what happened, it is clear that Ham humiliated and dishonored his father and that he apparently sought to make his brothers a party to that humiliation. Instead, Ham’s brothers make every effort to avoid seeing Noah’s naked body. (ESV)
+9:22: **saw the nakedness**. Though the text does not explicitly state what happened, it is clear that Ham humiliated and dishonored his father and that he apparently sought to make his brothers a party to that humiliation. Instead, Ham’s brothers make every effort to avoid seeing Noah’s naked body. (ESV)
 
 9:22: **saw the nakedness**. The expression "look upon" at times has sexual overtones in the Bible, as in Leviticus 20:11, "The man who lies with his father's wife has uncovered his father's nakedness...". As a result, interpreters have proposed a variety of possibilities as to what kind of transgression has been committed by Ham, including the possibility that paternal incest is implied. (Wikipedia)
 
 9:22: **saw the nakedness**. It may actually mean "watched".
 
-9:22: **Ham saw the nakedness**. Later we learn that **Ham** was also the father of Sodomites (Gen 10:19). This fact may mean that there was a lot involved beyond just observing **his father’s nakedness**: it may have been a sexual act with a senseless drunken father, the obvious signs of which the father has discovered only when he woke up (v. 24).
+9:22: **Ham saw the nakedness**. Later we learn that **Ham** was also the father of Sodomites (Gen 10:19). This fact may mean that there was a lot involved beyond just observing **his father’s nakedness**: it may have been a sexual act with a senseless drunken father, the obvious signs of which the father has discovered only when he woke up (v. 24).
 
 9:22: **saw the nakedness**.  The majority of commentators, both ancient and modern, have felt that Ham's seeing his father naked was not a sufficiently serious crime to explain the punishment that follows. His brothers, however, take the episode seriously enough. 
 The Targum Onqelos (translation of Torah into the Aramaic) has Ham gossiping about his father's drunken disgrace "in the street" (a reading which has a basis in the original Hebrew), so that being held up to public mockery was what had angered Noah.
@@ -1760,7 +1760,7 @@ The Babylonian Talmud (c. 500 AD) argues that Ham either castrated his father, o
 
 9:24: **his youngest son**. The designation of Ham as the youngest son is peculiar, given that he is always listed after Shem and before Japheth. Possibly, for some unexplained reason, the traditional order of names does not reflect the birth sequence of the boys. (ESV)
 
-9:24: **his youngest son**. The medieval commentator Rashi writes that the son was not “youngest” but “small” (הקטן), the ‘defective’ one and the 'disgraceful' one. '**small'** does not mean 'the youngest' since Ham was older than Shem. (Wikipedia)
+9:24: **his youngest son**. The medieval commentator Rashi writes that the son was not “youngest” but “small” (הקטן), the ‘defective’ one and the 'disgraceful' one. '**small'** does not mean 'the youngest' since Ham was older than Shem. (Wikipedia)
 
 9:25: **и сказал**. Содержание этих слов и последовавший опыт показывают, что в них заключается суд не столько человеческий, сколько Божий; и не простые желания, но силою Духа Божия облеченные предсказания. (Свт. Филарет (Дроздов))
 
@@ -1800,7 +1800,7 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 **Благословен Бог Симов**. Из трех племен Ноя благословится Бог в племени Сима, то есть оно‑то сохранит истинное Богопознание и Богослужение. Бог не только будет ведом и почитаем в племени Сима, но и будет принадлежать ему чрез воплощение от него.
 (Свт. Филарет (Дроздов))
 
-9:27: **Blessed be the Lord, the God of Shem**. Shem is given pride of place, as is implied by Noah’s remark that Japheth will dwell in the tents of Shem. Shem is first, Japheth is second, but both will prosper. (ESV)
+9:27: **Blessed be the Lord, the God of Shem**. Shem is given pride of place, as is implied by Noah’s remark that Japheth will dwell in the tents of Shem. Shem is first, Japheth is second, but both will prosper. (ESV)
 
 9:27: **Shem**. Shem, the ancestor of Israel, and the other "Shemites" (Semites) were to be the masters of Ham's descendants, the Canaanites. (MacArthur)
 
@@ -1863,9 +1863,9 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 10:5: **острова**. Евреи одним и тем же именем означали земли, лежащие на море, за морем и вообще отдаленные и малоизвестные, сие согласно с состоянием землеописания в древние времена и с положением собственной их земли. (Свт. Филарет (Дроздов))
 
-10:6: **The sons of Ham**. Ham is the father of Philistia, Egypt, Assyria, Nineveh, and other enemies of Israel. He is the father of Sodom, Canaan and other nations which are seen in the Bible as base and sinful.
+10:6: **The sons of Ham**. Ham is the father of Philistia, Egypt, Assyria, Nineveh, and other enemies of Israel. He is the father of Sodom, Canaan and other nations which are seen in the Bible as base and sinful.
 
-10:6: **The sons of Ham**. Ham's descendants receive considerably more attention than those of Japheth and Shem. Among them figure many of Israel’s enemies, such as the Egyptians, Babylonians, Philistines, and various Canaanite groups. (ESV)
+10:6: **The sons of Ham**. Ham's descendants receive considerably more attention than those of Japheth and Shem. Among them figure many of Israel’s enemies, such as the Egyptians, Babylonians, Philistines, and various Canaanite groups. (ESV)
 
 10:6: **Куш**. Эфиопия. Объяснение у Дроздова. (Свт. Филарет (Дроздов))
 
@@ -1958,11 +1958,11 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:4: **whose top is in the heavens**. The tower would not actually reach the abode of God. They wanted it to be a high tower as a monument to their abilities, one that would enhance their fame. In this endeavor, they disobeyed God and attempted to steal His glory. (MacArthur)
 
-11:4: **lest we be dispersed**. Contrary to God’s plan that people should fill the earth, the city-building project is designed to prevent the population from being **dispersed** over the face of the whole earth. (ESV)
+11:4: **lest we be dispersed**. Contrary to God’s plan that people should fill the earth, the city-building project is designed to prevent the population from being **dispersed** over the face of the whole earth. (ESV)
 
-11:4: **lest we be dispersed**. The purpose of building the **city**: in order not to be **dispersed**, and to **make a name** for themselves. The ultimate goals were security and praise. (ESV)
+11:4: **lest we be dispersed**. The purpose of building the **city**: in order not to be **dispersed**, and to **make a name** for themselves. The ultimate goals were security and praise. (ESV)
 
-11:4: **make a name for ourselves**. The Babel enterprise is all about human independence and self-sufficiency apart from God. The **builders** believe that they have no need of God. Their technology and social unity give them confidence in their own ability. (ESV)
+11:4: **make a name for ourselves**. The Babel enterprise is all about human independence and self-sufficiency apart from God. The **builders** believe that they have no need of God. Their technology and social unity give them confidence in their own ability. (ESV)
 
 11:4: **A tower**. It is commonly believed that a Ziggurat was being built: a monumental temple-tower with stairways ascending to the top of the structure where a small temple/shrine sat on the summit. They were commonly built of sun-dried mud and straw bricks held in position with bitumen as mortar, and the text indicates that the builders of Babel had discovered the process of making mud bricks and that they employed “**bitumen for mortar**”. Based on that invention, the builders decided “to build … a tower with its top in the heavens”. (ESV)
 
@@ -1991,9 +1991,9 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:5: **И сошел Господь посмотреть**. Он принимает это дело к особенному Своему сведению, имеет за ним особенное наблюдение, и решает явить особенное свое присутст­вие на месте начатых работ. (Еп. Виссарион (Нечаев))
 
-11:6: **nothing .. will be impossible to them**. Here **God** clarifies His reasoning: it’s not only that something unacceptable was going on at that moment; it’s the path that the humans have taken that would lead them to even worse things.
+11:6: **nothing .. will be impossible to them**. Here **God** clarifies His reasoning: it’s not only that something unacceptable was going on at that moment; it’s the path that the humans have taken that would lead them to even worse things.
 
-11:7: **confuse their language**. Acknowledging the potential danger of a unified, self-confident humanity (v. 6), God intervenes by **confusing their language** so that they cannot understand one another. This has the desired effect of dispersing the people throughout the world. (ESV)
+11:7: **confuse their language**. Acknowledging the potential danger of a unified, self-confident humanity (v. 6), God intervenes by **confusing their language** so that they cannot understand one another. This has the desired effect of dispersing the people throughout the world. (ESV)
 
 11:7: **сойдем же и смешаем**. Множественное число; совет Троицы.
 
@@ -2013,7 +2013,7 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:8: **рассеял**. Смешением языка и рассеянием племен предотвращалось зло, которое могло произой­ти в случае успеха этого дела, – именно, общества чело­веческие предохранялись от крайнего угнетения и насилия, неизбежного в случае, если бы господствовала во всем свете одна власть, и притом была в руках людей нечести­вых. Кроме того, нравственное зло, к которой естественным образом склонны люди, было бы несравненно сильнее, если бы существовала все­мирная столица, как средоточие нечестия и разврата, и если бы существовал повсюду один язык: тогда бы весь мир сделался тем, чем впоследствии сделалась Ханаанская земля, мерзостями своими истощившая долготерпение Господа. (Еп. Виссарион (Нечаев))
 
-11:9: **Babel** is also the name used in the OT for the city of Babylon. As a city, Babylon symbolizes humanity’s ambition to dethrone God and make the earth its own (see Revelation 17–18). (ESV)
+11:9: **Babel** is also the name used in the OT for the city of Babylon. As a city, Babylon symbolizes humanity’s ambition to dethrone God and make the earth its own (see Revelation 17–18). (ESV)
 
 11:9: **рассеял их Господь по всей земле**. Если святые собраны вместе, их собрание благословенно; но если бы грешники собрались вместе, то были бы наихудшим собранием. Ибо чем более их собрано вместе, тем они хуже. Рассеяние пошло на пользу тем, которые были рассеяны, ибо согласие их было дурным. (Блаж. Иероним Стридонский)
 
@@ -2070,7 +2070,7 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:27: **Фарра**. Фарра был идолопоклонником. Нав 24:2-3: "за рекою жили отцы ваши издревле, Фарра, отец Авраама и отец Нахора, и служили иным богам."
 
-11:28: **Ur of the Chaldeans** was a city with a highly developed urban culture. (ESV)
+11:28: **Ur of the Chaldeans** was a city with a highly developed urban culture. (ESV)
 
 11:28: **Умер Аран пред лицем Фарры**. Епифаний (de Hares L. I) думает, что редкая в древности смерть сына прежде отца была наказанием Фарры за идолопоклонство. (Свт. Филарет (Дроздов))
 
@@ -2082,15 +2082,15 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 11:31: **И взял Фарра Аврама, сына своего**. Причиною предпринятого Фаррою путешествия должно полагать повеление Божие, которое Моисей показывает ниже в истории Аврама (12:1). В такой же точно силе пересказывает оное и Стефан в книге Деяний апостольских (Деян. 7:1-4). И сам Бог говорит Авраму, что вывел его не из Харрана, но из Ура Халдейского (Быт. 15:7: "И сказал ему: Я Господь, Который вывел тебя из Ура Халдейского"). (Свт. Филарет (Дроздов))
 
-11:31: **went forth .. into the land of Canaan**. Terah has decided to leave Ur and move to Canaan, the land where, as the reader knows, Hebrews are ultimately supposed to settle. It’s not clear why Terah has decided to leave Ur, and why he has decided to go into the land of Canaan, but it happened only after Haran died (v. 28). 
-Whatever the purpose was, in the middle of the road Terah has changed his mind, and the family has settled in Haran, “settled” meaning that he had no intention of travelling any further. He lived there until he died; it was Abram who continued the journey at the Lord’s prompting.
+11:31: **went forth .. into the land of Canaan**. Terah has decided to leave Ur and move to Canaan, the land where, as the reader knows, Hebrews are ultimately supposed to settle. It’s not clear why Terah has decided to leave Ur, and why he has decided to go into the land of Canaan, but it happened only after Haran died (v. 28). 
+Whatever the purpose was, in the middle of the road Terah has changed his mind, and the family has settled in Haran, “settled” meaning that he had no intention of travelling any further. He lived there until he died; it was Abram who continued the journey at the Lord’s prompting.
 
-11:31: **Haran** is a region in the northern Mesopotamia and was an important crossroads and commercial center in the ancient Near East. This location in Turkey is now called Eskiharran, “old Harran”. (ESV)
+11:31: **Haran** is a region in the northern Mesopotamia and was an important crossroads and commercial center in the ancient Near East. This location in Turkey is now called Eskiharran, “old Harran”. (ESV)
 
 11:31: **Остановились там**. Семья отправилась в путь по откровению Божию, но по пути что-то их остановило. Возможно, старость Фарры. А возможно, и богатство края (12:5: "имение, которое они приобрели, и всех людей, которых они имели в Харране"), или семейный конфликт. Так или иначе, Аврам не продолжил путешествие, пока не умел его отец.
 
-11:32: **The days of Terah were 205**. If Abram was born when Terah was 70 years old (v. 26: "When Terah had lived 70 years, he fathered Abram"), and if Abram was 75 years old when he departed for Canaan (see 12:4: "Abram was 75 years old when he departed from Haran"), then Terah died 60 years after Abram’s departure. 
-In Acts 7:4, however, Stephen says that Abram left Haran after the death of Terah. A simple way to resolve the chronological difficulty is to suppose that Stephen was following an alternative text (represented today in the Samaritan Pentateuch), which says that Terah died at the age of 145. (ESV)
+11:32: **The days of Terah were 205**. If Abram was born when Terah was 70 years old (v. 26: "When Terah had lived 70 years, he fathered Abram"), and if Abram was 75 years old when he departed for Canaan (see 12:4: "Abram was 75 years old when he departed from Haran"), then Terah died 60 years after Abram’s departure. 
+In Acts 7:4, however, Stephen says that Abram left Haran after the death of Terah. A simple way to resolve the chronological difficulty is to suppose that Stephen was following an alternative text (represented today in the Samaritan Pentateuch), which says that Terah died at the age of 145. (ESV)
 
 
 
@@ -2128,9 +2128,9 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:1: **Go from your country**. God calls Abram to continue the journey that Terah, his father, had started but did not complete. (ESV)
 
-12:1: **Go from your country**. God calls Abram to leave his country and his kindred in part because *they were pagan* (Josh 24:2-3: “Your fathers lived beyond the Euphrates, Terah, the father of Abraham and of Nahor; *and they served other gods*. Then I took your father Abraham from beyond the River and led him through all the land of Canaan, and made his offspring many.”).
+12:1: **Go from your country**. God calls Abram to leave his country and his kindred in part because *they were pagan* (Josh 24:2-3: “Your fathers lived beyond the Euphrates, Terah, the father of Abraham and of Nahor; *and they served other gods*. Then I took your father Abraham from beyond the River and led him through all the land of Canaan, and made his offspring many.”).
 
-12:1: **Go from your country**. God’s invitation to Abram challenges him to abandon the normal sources of personal identity and security: his family and country. To obey, Abram must abandon all that he has and trust God implicitly; all human support is largely removed. The promised outcomes are conditional on Abram’s obedience. (ESV)
+12:1: **Go from your country**. God’s invitation to Abram challenges him to abandon the normal sources of personal identity and security: his family and country. To obey, Abram must abandon all that he has and trust God implicitly; all human support is largely removed. The promised outcomes are conditional on Abram’s obedience. (ESV)
 
 12:1: **Go .. to the land**. Abram was still in Haran when the call was *repeated* to go to Canaan (Acts 7:2: "The God of glory appeared to our father Abraham when he was in Mesopotamia, before he lived in Haran"). (MacArthur)
 
@@ -2142,19 +2142,19 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:1: **пойди из земли твоей, от родства твоего и из дома отца твоего**.  Ему повелевалось оставить землю, где он жил столько времени, оставить все родство и весь отеческий дом, и идти, куда он не знал и не ведал. Бог ведь не сказал, в какую страну хочет переселить его. Подумай, возлюбленный, какой возвышенный, необладаемый никакою страстию или привычкою, дух потребен был для исполнения этого повеления. (Свт. Иоанн Златоуст)
 
-12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Смотри, как с самого начала праведник был приучаем предпочитать невидимое видимому и будущее тому, что уже находилось в руках. (Свт. Иоанн Златоуст)
+12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Смотри, как с самого начала праведник был приучаем предпочитать невидимое видимому и будущее тому, что уже находилось в руках. (Свт. Иоанн Златоуст)
 
-12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Он мог бы сказать, если бы был из числа людей обыкновенных: для чего посылаешь меня на чужбину и велишь мне идти в чужую землю? Для чего, если хочешь сделать меня великим, не делаешь таким здесь? Почему не даешь мне Своего благословения, когда я живу в отеческом доме? 
+12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Он мог бы сказать, если бы был из числа людей обыкновенных: для чего посылаешь меня на чужбину и велишь мне идти в чужую землю? Для чего, если хочешь сделать меня великим, не делаешь таким здесь? Почему не даешь мне Своего благословения, когда я живу в отеческом доме? 
 Ничего такого однако ж не захотел он и подумать, но повиновался и был вполне уверен, что обетования Божии не ложны.
 (Свт. Иоанн Златоуст)
 
-12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Дух повеления Божия был тот, что Аврам должен оставить собственное, известное, близкое, любезное, дабы стремиться к отдаленному и неизвестному, которое было в руках Божиих. Авраам же со своей стороны не смущается этой неизвестностью, потому что он действует по вере, которая проста и не терпит пытливости. 
+12:1: **пойди из земли твоей .. в землю, которую Я укажу тебе**. Дух повеления Божия был тот, что Аврам должен оставить собственное, известное, близкое, любезное, дабы стремиться к отдаленному и неизвестному, которое было в руках Божиих. Авраам же со своей стороны не смущается этой неизвестностью, потому что он действует по вере, которая проста и не терпит пытливости. 
 Справедливо Святые любили взирать, как на образец, на эту покорность веры Авраама, который, по одному гласу Господа, оставляет все, что есть самого драгоценного для человека, что составляет отраду в жизни, - родину, родных друзей, дом - для того, чтобы, подобно изгнаннику, идти в страну чуждую, даже не зная, куда угодно было Господу привести его.
 (Свт. Филарет (Дроздов))
 
-12:1: **в землю, которую Я укажу тебе**. Справедливо, братья, верить Богу прежде, нежели воздаст нам чем-либо, ибо в чем-либо лгать или обманывать нас не может: ибо Он - Бог. (Блаж. Августин)
+12:1: **в землю, которую Я укажу тебе**. Справедливо, братья, верить Богу прежде, нежели воздаст нам чем-либо, ибо в чем-либо лгать или обманывать нас не может: ибо Он - Бог. (Блаж. Августин)
 
-12:2: **I will make of you a great nation**. God’s purpose for Abram, that he become a great nation, stands in obvious tension with Sarai’s barrenness and the summons to leave his homeland. Abram is challenged by God to establish a new humanity. (ESV)
+12:2: **I will make of you a great nation**. God’s purpose for Abram, that he become a great nation, stands in obvious tension with Sarai’s barrenness and the summons to leave his homeland. Abram is challenged by God to establish a new humanity. (ESV)
 
 12:2: **make your name great**. This was the failed aspiration of the tower builders (11:4). (ESV)
 
@@ -2168,9 +2168,9 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:2: **И возвеличу имя твое**. Не один избранный народ, но и другие народы, имеющие произойти от него, будут вменять себе в честь называть себя потомками его, будут величать имя его, как имя своего родоначальника, и назы­вать его, как особенно близкого к Богу, другом Божиим (Иак. 2:23: "веровал Авраам Богу, и это вменилось ему в праведность, и он наречен другом Божиим"), под каковым именем он доселе известен на Востоке. Для самих христиан имя Аврама священно, как имя отца всех верующих (Рим.4:11: "он стал отцом всех верующих в необрезании, чтобы и им вменилась праведность"). Сам Бог будет назы­вать себя «Богом Аврама» (Исх. 3:6).
 
-12:3: **I will bless those who bless you**. Although Abram is called to be a blessing to others, much rests on how they treat him. Those who are positive toward Abram will experience God’s favor; the one who despises Abram will know God’s displeasure. (ESV)
+12:3: **I will bless those who bless you**. Although Abram is called to be a blessing to others, much rests on how they treat him. Those who are positive toward Abram will experience God’s favor; the one who despises Abram will know God’s displeasure. (ESV)
 
-12:3: **in you all the families of the earth shall be blessed**. This divine speech sets the agenda not only for Abram’s life but also for his descendants. The repetition of the verb bless (vv. 2-3) underscores the hope that through Abram people everywhere may experience God’s favor, reversing the predominantly negative experience of chs. 3–11. (ESV)
+12:3: **in you all the families of the earth shall be blessed**. This divine speech sets the agenda not only for Abram’s life but also for his descendants. The repetition of the verb bless (vv. 2-3) underscores the hope that through Abram people everywhere may experience God’s favor, reversing the predominantly negative experience of chs. 3–11. (ESV)
 
 12:3: **in you all the families of the earth shall be blessed**. Paul identified these words as "the gospel preached to Abraham" (Gal 3:8: "The Scripture, foreseeing that God would justify the Gentiles by faith, preached the Gospel beforehand to Abraham"). (MacArthur)
 
@@ -2182,9 +2182,9 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:3: **И благословятся в тебе все племена земные**. Всеобщее благословение Аврамово противополагается всеобщему проклятию Адамову. Сам Бог изъяснил, что благословение в Авраме есть благословение в семени его (Быт 22:18: "и благословятся в семени твоем все народы земли за то, что ты послушался гласа Моего"), а Апостол отождествляет это семя с Иисусом Христом, через Которого к вере были присоединены язычники (Гал. 3:14: "дабы благословение Авраамово через Христа Иисуса распространилось на язычников"; Гал 3:16: "сказано: и потомкам, как бы о многих, но как об одном: и семени твоему, которое есть Христос") (Свт. Филарет (Дроздов))
 
-12:4: **So Abram went**. The brief report of Abram’s response presents his obedience as immediate and unquestioning. (ESV)
+12:4: **So Abram went**. The brief report of Abram’s response presents his obedience as immediate and unquestioning. (ESV)
 
-12:4: **Lot went with him**. Abram may have been responsible for Lot following the death of Haran (11:27–28). Since by this stage Lot is a wealthy adult with considerable possessions (vv. 5-6), readers may assume that he desires to support Abram’s mission. (ESV)
+12:4: **Lot went with him**. Abram may have been responsible for Lot following the death of Haran (11:27–28). Since by this stage Lot is a wealthy adult with considerable possessions (vv. 5-6), readers may assume that he desires to support Abram’s mission. (ESV)
 
 12:4: **с ним пошёл Лот**. Лот последовал за Аврамом не столько как за ближайшим после смерти отца родственником, а потому, что дорожил обществом его, как избранника Божия, следствен­но, по любви к благочестию, – иначе едва ли бы взял его с собой тот, кто должен был по слову Божию оставить сродство. (Еп. Виссарион (Нечаев))
 
@@ -2196,9 +2196,9 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:5: **и всех людей, которых они имели в Харране**. это рабы, или куплен­ные ими в Харране, или народившиеся здесь от прежних их рабов. (Еп. Виссарион (Нечаев))
 
-12:6: **to the oak of Moreh**. Abram probably camped away from urban populations; these locations are identified by distinctive natural features, e.g. trees. (ESV)
+12:6: **to the oak of Moreh**. Abram probably camped away from urban populations; these locations are identified by distinctive natural features, e.g. trees. (ESV)
 
-12:6: **Canaanites were in the land**. Abram camped away from Canaanites, who are mentioned in the verse.
+12:6: **Canaanites were in the land**. Abram camped away from Canaanites, who are mentioned in the verse.
 
 12:6: **Canaanites were in the land**. Moses was writing approximately 700 years after Abram entered the land (c. 1405 B.C.). The Canaanites, of whom he wrote, were soon to be the opponents of Israel as they entered Canaan. (MacArthur)
 
@@ -2207,11 +2207,11 @@ Its national importance fo Israel is magnified by its repeated references and po
 Нет, праведник и в этом положении не позволял себе сказать что-либо подобное, или придти в сомнение, напротив, положившись на обетования Божии всем сердцем и с полною верою, остался непоколебим духом, за что вскоре и удостоился утешения свыше. 
 (Свт. Иоанн Златоуст)
 
-12:7: **The Lord appeared to Abram**. This is the first of a number of manifestations of God to the patriarchs. These are often associated with divine promises. On this occasion God promises the land to the descendants of Abram, although he is still childless. In response, Abram builds an altar to the LORD. (ESV)
+12:7: **The Lord appeared to Abram**. This is the first of a number of manifestations of God to the patriarchs. These are often associated with divine promises. On this occasion God promises the land to the descendants of Abram, although he is still childless. In response, Abram builds an altar to the LORD. (ESV)
 
-12:7: **The Lord appeared to Abram**. God has appeared to Abram: this marvellous event must have made a deep impression on him, so he builds an altar in response to this event. The repeated words, who had appeared to him, may indicate that the altar commemorates the event.
+12:7: **The Lord appeared to Abram**. God has appeared to Abram: this marvellous event must have made a deep impression on him, so he builds an altar in response to this event. The repeated words, who had appeared to him, may indicate that the altar commemorates the event.
 
-12:7: **To your offspring I will give this land**. Another source of joy for Abram is that God has implicitly promised that Abraham, who was already 75 and whose wife was barren, will have children. 
+12:7: **To your offspring I will give this land**. Another source of joy for Abram is that God has implicitly promised that Abraham, who was already 75 and whose wife was barren, will have children. 
 
 12:7: **So he built there an altar**. An open confession of his religion. This was the first true place of worship ever erected in the Promised Land. (MacArthur)
 
@@ -2233,7 +2233,7 @@ Its national importance fo Israel is magnified by its repeated references and po
 
 12:9: **И поднялся Аврам и продолжал идти к югу**. Видишь как он легко переменял место и образ жизни в старости и имея при себе жену и столько рабов? А мне особенно удивительным представляется мужество жены его. Как подумаю я о немощи женского пола, и тут же помыслю, как легко (Сара) переселялась вместе с праведником, и ни сама не тяготилась, ни праведнику не делала препятствия, то изумляюсь и заключаю, что и она, подобно самому праведнику, имела душу возвышенную и мужественную. (Свт. Иоанн Златоуст)
 
-12:9: **Negeb**. **Abram** moves further south, towards Egypt. (ESV)
+12:9: **Negeb**. **Abram** moves further south, towards Egypt. (ESV)
 
 
 
@@ -2389,9 +2389,9 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:9: **то я налево**. Преданный воле Божией предоставляет ближним все блага, которыми может и имеет право пользоваться, будучи расположен довольствоваться, так сказать, останками оных из рук Промысла. Но чем более он сокращает и отсекает собственные желания, дабы дать место воле Божией, тем более щедрит и обогащает его Бог своими дарами и обетованиями (Быт. 13:15: "ибо всю землю, которую ты видишь, тебе дам Я и потомству твоему навеки"). (Свт. Филарет (Дроздов))
 
-13:10: **destroyed Sodom and Gomorrah**. This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before Sodom and Gomorrah were destroyed with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
+13:10: **destroyed Sodom and Gomorrah**. This remark is probably given to inform the reader that the land that he knows is currently barren used to be fertile in the times before Sodom and Gomorrah were destroyed with fire and brimstone, which may have adversely affected the suitability of this area for flocks and herds. (ESV)
 
-13:10: **destroyed Sodom and Gomorrah**. It must be to emphasize the futility of Lot’s choice that the author has chosen to remind the reader of the fate of Sodom in this verse. It must be that Lot chose the land himself, without inquiring God about the best choice. Abram, however, has inquired (v. 4: “called upon the name of the Lord”).
+13:10: **destroyed Sodom and Gomorrah**. It must be to emphasize the futility of Lot’s choice that the author has chosen to remind the reader of the fate of Sodom in this verse. It must be that Lot chose the land himself, without inquiring God about the best choice. Abram, however, has inquired (v. 4: “called upon the name of the Lord”).
 
 13:11: **и избрал себе Лот**. Естественный человек желает как собственностью обладать всем, что прельщает очи его; поставляя целью своей деятельности собственную выгоду и ощутительное удовольствие, мечтает найти рай Божий на земле, ищет пажити при годах египетских, духовной радости — в упоении самолюбия. 
 В сем состоянии он недалек от того, чтобы поставить в Содоме свой дом и отечество. (Свт. Филарет (Дроздов))
@@ -2400,7 +2400,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:13: **Sodom were wicked**. Lot has chosen the land that was fertile, but was also home to great wickedness. The side note given here probably hints at the unreasonableness of Lot’s choice which was done not by faith but by sight.
 
-13:12-13: **men of Sodom were wicked**. At first Lot may not have known what sort of people lived in Sodom (v. 13: “wicked”, “great sinners”), but we also see that he used to live in tents (v. 12: “moved his tent”) at first, and moved closer and closer to Sodom. Lot is later found living in the city (Gen 14:12), having abandoned his tent-dwelling lifestyle. This move indicates that he willingly chose to live among those wicked people, perhaps, for the sake of his business or comfort. (ESV)
+13:12-13: **men of Sodom were wicked**. At first Lot may not have known what sort of people lived in Sodom (v. 13: “wicked”, “great sinners”), but we also see that he used to live in tents (v. 12: “moved his tent”) at first, and moved closer and closer to Sodom. Lot is later found living in the city (Gen 14:12), having abandoned his tent-dwelling lifestyle. This move indicates that he willingly chose to live among those wicked people, perhaps, for the sake of his business or comfort. (ESV)
 
 13:13: **Жители же Содомские были злы**. Видишь ли, Лот обращает внимание только на свойство земли, а не смотрит на злонравие жителей? 
 Какая польза, скажи мне, в тучной и плодоносной земле, когда ее обитатели злонравны? И что за вред от пустыни и от самой бесплодной земли, когда живущие на ней благонравны? 
@@ -2415,7 +2415,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:14: **The Lord said to Abram**. Here we have this contrast: Lot "lifted up his eyes" (v. 10) and chose what he saw; Abraham's choice is guided by the Lord (v. 4: "called upon the name of the Lord").
 
-13:15: **all the land that you see I will give to you**. Even though the land that Abram was left with did not look that good, it was the land on which the Lord promises that Abram’s descendants will live and become a great nation. A choice that seems to be inferior, may become superior by God’s power for a person who follows God’s guidance and not his own wisdom. 
+13:15: **all the land that you see I will give to you**. Even though the land that Abram was left with did not look that good, it was the land on which the Lord promises that Abram’s descendants will live and become a great nation. A choice that seems to be inferior, may become superior by God’s power for a person who follows God’s guidance and not his own wisdom. 
 
 13:15: **всю землю, которую ты видишь, тебе дам**. Ты, говорит, уступил племяннику часть земли: так вот Я обещаю тебе всю землю. Видишь щедрость, достойную благости Божией? Видишь, сколько (патриарх) уступил, и чего за то удостоился? (Свт. Иоанн Златоуст)
 
@@ -2427,9 +2427,9 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 13:17: **в долготу и в широту её**. Не назначив пределов земли обетованной, Бог повелевает пройти ее в долготу и широту. Сие можно разуметь так, что он повелевает Авраму проходить и обходить предлежащую ему страну по произволению с таким уверением, что всякое место, где он поставит свою ногу, будет принадлежать к земле обетованной. Бог внушает чрез сие Авраму, что мера обетования есть мера веры и что пределы земли обетованной суть колико подвижны, толико обширны и даже невидимы. (Свт. Филарет (Дроздов))
 
-13:18: **at Hebron**. A cuneiform tablet discovered there from this time period indicates that Hebron was a capital city of a Canaanite kingdom. (ESV)
+13:18: **at Hebron**. A cuneiform tablet discovered there from this time period indicates that Hebron was a capital city of a Canaanite kingdom. (ESV)
 
-13:18: **built an altar**. Repeated mentions of building altars to the Lord indicates that even though Abram’s faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
+13:18: **built an altar**. Repeated mentions of building altars to the Lord indicates that even though Abram’s faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
 
 13:18: **создал там жертвенник Господу**. Едва поселился он под дубом мамврийским, как тотчас же и устроил там жертвенник Господу. Видишь благодарную душу? (Свт. Иоанн Златоуст)
 
@@ -2460,7 +2460,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:2: **пошли они войною**. Очевидно, воинственный царь эламский, по обычаю всех азиатских владык, стремился к расширению своей монархии и, вероятно, искал даже дороги в богатый Египет; неудивительно, что на пути туда он успел поработить богатые и изнеженные ханаанские племена, и сделал это тем скорей и легче, что все эти племена жили одинокой, разобщенной жизнью и управлялись отдельными царьками, владения которых часто ограничивались пределами только одного города, и которые нередко враждовали между собой. (Лопухин А.П.)
 
-14:2: **Sodom and Gomorrah** is precisely the place where Lot has settled after separating with Abraham. The area is now invaded by an alliance of four kings who defeat a local confederation of five kings and take Lot captive. (ESV)
+14:2: **Sodom and Gomorrah** is precisely the place where Lot has settled after separating with Abraham. The area is now invaded by an alliance of four kings who defeat a local confederation of five kings and take Lot captive. (ESV)
 
 14:3: **joined forces**. Such alliances were a common and recurring aspect of politics in the ancient Near East. (ESV)
 
@@ -2494,11 +2494,11 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:14: **триста восемнадцать**. Священный историк точно указывает эту цифру, по-видимому, с тем намерением, чтобы, при виде такого слабого и малочисленного, по сравнению с громадными союзными войсками Кедорлаомера, отряда, очевидней и осязательнее сделать божественную помощь Авраму. (Лопухин А.П.)
 
-14:15: **by night**. A nighttime assault gives Abram an advantage. (ESV)
+14:15: **by night**. A nighttime assault gives Abram an advantage. (ESV)
 
 14:15: **разделившись напал на них ночью**. Это довольно обычный и известный из Библии стратегический прием, посредством которого малые отряды одерживали блестящие победы над большими войсками. Суть его состояла в том, что маленький отряд делился на несколько групп; и когда неприятель предавался мирному отдыху или сну, все эти отряды с военными кликами бросались на него и старались произвести панику, в чем часто и успевали, как это мы видим еще и на примере Гедеона с мадианитянами (Суд 7:16: "И разделил триста человек на три отряда и дал в руки всем им трубы и пустые кувшины и в кувшины светильники"). (Лопухин А.П.)
 
-14:15: **defeated them and pursued them**. Although Abram can compete militarily against powerful kings, he rejects the use of power to achieve God’s purpose. Thus he does not use force to take control of the land of Canaan. The patriarch will not adopt violent strategies in order to obtain it. (ESV)
+14:15: **defeated them and pursued them**. Although Abram can compete militarily against powerful kings, he rejects the use of power to achieve God’s purpose. Thus he does not use force to take control of the land of Canaan. The patriarch will not adopt violent strategies in order to obtain it. (ESV)
 
 14:15: **поразил их**. Усматривай и безмерную силу Божию из того, как легко одержана победа. Они уже одолели амаликитян и всех прочих, потом напали на содомлян, но Аврам всё равно одолел их силою 318 мужей! Вышняя десница ему помогала и споборала. (Свт. Иоанн Златоуст)
 
@@ -2525,9 +2525,9 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:18: **Melchizedek**. Melchizedek means “king of righteousness”. See Heb. 7:2: “He is first, by translation of his name, king of righteousness, and then he is also king of Salem, that is, king of peace.”) generously provides a meal for the returning victors. (ESV)
 
-14:18: **king of Salem**. Salem is possibly a shortened version of “Jerusalem” (Ps. 76:2: God’s “abode has been established in Salem”) and is related to *shalom*, the Hebrew word for “peace”. (ESV)
+14:18: **king of Salem**. Salem is possibly a shortened version of “Jerusalem” (Ps. 76:2: God’s “abode has been established in Salem”) and is related to *shalom*, the Hebrew word for “peace”. (ESV)
 
-14:18: **Melchizedek king of Salem**. Melchizedek is then a priest-king of Jerusalem. There appears to have been an expectation that later kings of Jerusalem should resemble him (Ps. 110:4: “You are a priest forever after the order of Melchizedek.”). The book of Hebrews presents Jesus Christ, from the royal line of David, as belonging to the “order of Melchizedek” and therefore superior to the Levitical priests (Heb. 5:5–10: ““You are a priest forever, after the order of Melchizedek.“; 6:20–7:17). (ESV)
+14:18: **Melchizedek king of Salem**. Melchizedek is then a priest-king of Jerusalem. There appears to have been an expectation that later kings of Jerusalem should resemble him (Ps. 110:4: “You are a priest forever after the order of Melchizedek.”). The book of Hebrews presents Jesus Christ, from the royal line of David, as belonging to the “order of Melchizedek” and therefore superior to the Levitical priests (Heb. 5:5–10: ““You are a priest forever, after the order of Melchizedek.“; 6:20–7:17). (ESV)
 
 14:18: **Melchizedek**. There is lack of biographical and genealogical particulars for this ruler, but his superior status is witnessed by 1) king of Sodom deferring to Melchizedek before continuing with his request (v. 17: "king of Sodom went out to meet him", v. 21: "And the king of Sodom said..."), and 2) Abram, without demur, both accepting a blessing from and also giving a tithe to this priest-king. (MacArthur)
 
@@ -2535,9 +2535,9 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:18: **God Most High**: Heb. *El Elyon*, Sovereign Lord. This title indicated that Melchizedek worshiped, served, and represented no Canaanite deity, but the same one whom Abram also called Yahweh El Elyon (v. 22). That this was so is confirmed by the added description, “Possessor of heaven and earth,” being used by both Abram and Melchizedek (v. 19, 22). (ESV)
 
-14:20: **who has delivered your enemies into your hand**. Melchizedek’s blessing attributes Abram’s victory to the power of God. By giving a tenth, Abram affirms the truthfulness of Melchizedek’s words. (ESV)
+14:20: **who has delivered your enemies into your hand**. Melchizedek’s blessing attributes Abram’s victory to the power of God. By giving a tenth, Abram affirms the truthfulness of Melchizedek’s words. (ESV)
 
-14:23: **lest you should say, 'I have made Abram rich'**. Abram affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
+14:23: **lest you should say, 'I have made Abram rich'**. Abram affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
 
 14:23: **lest you should say, 'I have made Abram rich'**. If ABram acceeded to the king of Sodom's request, he would have distorted the clear testimony of the Lord's blessing on his life. To accept such payment would belie his trust in God. (MacArthur)
 
@@ -2562,11 +2562,11 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### God’s Covenant with Abram
 
-15:1: **After these things.** **Abram** rejected the offer from the king of Sodom for the victory spoils as a reward. In response, God now states that Abram’s reward shall be very great. By rejecting the use of human wealth to achieve greatness, Abram demonstrates his willingness to wait for God to provide. (ESV)
+15:1: **After these things.** **Abram** rejected the offer from the king of Sodom for the victory spoils as a reward. In response, God now states that Abram’s reward shall be very great. By rejecting the use of human wealth to achieve greatness, Abram demonstrates his willingness to wait for God to provide. (ESV)
 
-15:2: **Eliezer** (means, God is help) is a trusted member of Abram’s household, possibly a slave, who came from **Damascus**. (ESV)
+15:2: **Eliezer** (means, God is help) is a trusted member of Abram’s household, possibly a slave, who came from **Damascus**. (ESV)
 
-15:6: Faith in God entails trust in or confident reliance on God, based on the truthfulness of his words, and it will lead to obeying his commands. A person’s faith, or lack of it, is most apparent in crises such as Abram was facing. **He believed God** would give him a son despite many years of childlessness. (ESV)
+15:6: Faith in God entails trust in or confident reliance on God, based on the truthfulness of his words, and it will lead to obeying his commands. A person’s faith, or lack of it, is most apparent in crises such as Abram was facing. **He believed God** would give him a son despite many years of childlessness. (ESV)
 
 15:6: “**Righteousness**” is the fundamental OT virtue characterized by a godly life lived in conformity with the law. It is the righteous who enjoy God’s favor. Abram has proved himself righteous by his deeds, he is counted (that is, regarded) as righteous because of his faith. (ESV)
 
@@ -2574,7 +2574,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 15:10: Another interpretation is that the sacrificial animals symbolize Abram’s descendants (all of Israel), the “birds of prey” signify their enemies (unclean nations), and the “fire pot” and “torch” represent God’s presence. (ESV)
 
-15:16: **Amorites** were the descendants of Ham (Gen 10:16). The Amorites will be dispossessed of their land as an act of divine punishment. At that time, their accumulated iniquity will be so great that God will no longer tolerate their presence in the land. (ESV)
+15:16: **Amorites** were the descendants of Ham (Gen 10:16). The Amorites will be dispossessed of their land as an act of divine punishment. At that time, their accumulated iniquity will be so great that God will no longer tolerate their presence in the land. (ESV)
 
 15:18: God unconditionally pledges that Abram’s offspring will possess this land. (ESV)
 
@@ -2601,17 +2601,17 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 16:1: Years and years have passed after God has first promised Abram **children**, and 11 years have passed after Abram settled in Canaan, and Sarai was unable to bear any children to Abram. No doubt, they have tried, but she was barren (Gen 11:30). Abram’s confidence must have faded, because everything looked like it was impossible to have children with her. Especially after all these years. Especially considering their age. Impossible.
 
-16:2: Even though it was **The Lord** Who has promised **children** to Abram, Sarai emphasized that it was the same **Lord** Who **prevented her from bearing children**. She either was bitter with the Lord and so blamed Him with being unable to deliver His promise, or she thought that they are to achieve the promise by themselves. Either way, that was a lack of faith. 
+16:2: Even though it was **The Lord** Who has promised **children** to Abram, Sarai emphasized that it was the same **Lord** Who **prevented her from bearing children**. She either was bitter with the Lord and so blamed Him with being unable to deliver His promise, or she thought that they are to achieve the promise by themselves. Either way, that was a lack of faith. 
 
-16:2: **Abram** had previously refused to pursue God’s promises by his own means: he did not think that the promised land is his anyway and so he’s free to take it by force; He had waited on the Lord to deliver the land to him. But when it came to **children**, he didn’t trust the Lord anymore and **listened to the voice** of his wife.
+16:2: **Abram** had previously refused to pursue God’s promises by his own means: he did not think that the promised land is his anyway and so he’s free to take it by force; He had waited on the Lord to deliver the land to him. But when it came to **children**, he didn’t trust the Lord anymore and **listened to the voice** of his wife.
 
-16:2: **Bearing a child** on behalf of a barren woman was a custom mentioned in other ancient Near Eastern texts. (ESV)
+16:2: **Bearing a child** on behalf of a barren woman was a custom mentioned in other ancient Near Eastern texts. (ESV)
 
 16:3: Hagar’s status within Abram’s household is changed from servant to **wife**, although this does not place her on a par with Sarai (see note on 25:5–6). While the OT records occasions when particular individuals have more than one wife, such instances are almost always fraught with complications and difficulties. (ESV)
 
-16:4: **Hagar’s** ability to conceive causes her to **look down on** Sarai. (ESV)
+16:4: **Hagar’s** ability to conceive causes her to **look down on** Sarai. (ESV)
 
-16:5: **Sarai** initially directs her anger at **Abram**, who acquiesces in the situation, permitting Sarai to deal **harshly** with Hagar. The human solution to Sarai’s barrenness creates new problems. (ESV)
+16:5: **Sarai** initially directs her anger at **Abram**, who acquiesces in the situation, permitting Sarai to deal **harshly** with Hagar. The human solution to Sarai’s barrenness creates new problems. (ESV)
 
 16:5: It is clear from this episode that trying to achieve God’s will by human means leads to problems, not to blessedness. God will do His will in His time; not in our time.
 
@@ -2621,11 +2621,11 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 16:7: Theologically, this episode emphasizes the hearing and seeing nature of God, and his mercy. (ESV)
 
-16:9: Hagar is commanded by God to transform her attitude toward her **mistress**, Sarai; instead of despising her, she is to **submit to her** authority. (ESV)
+16:9: Hagar is commanded by God to transform her attitude toward her **mistress**, Sarai; instead of despising her, she is to **submit to her** authority. (ESV)
 
-16:10: God gives **Hagar** the very same promise He has given to Abram: **offspring** so numerous that **they cannot be numbered**.
+16:10: God gives **Hagar** the very same promise He has given to Abram: **offspring** so numerous that **they cannot be numbered**.
 
-16:15: By naming **Ishmael**, **Abram** publicly acknowledges him as his son and heir. (ESV)
+16:15: By naming **Ishmael**, **Abram** publicly acknowledges him as his son and heir. (ESV)
 
 16:16: Ishmael is born 11 years after Abram settled in the land of Canaan (ESV)
 
@@ -2650,27 +2650,27 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### Abraham and the Covenant of Circumcision
 
-17:1: **Ninety nine years old** is 13 after the birth of Ishmael. (v. 25: “Ishmael was 13 years old”)
+17:1: **Ninety nine years old** is 13 after the birth of Ishmael. (v. 25: “Ishmael was 13 years old”)
 
-17:1: To **walk before God** and to **be blameless** is the invitation to a holy living, to a righteous life. 
+17:1: To **walk before God** and to **be blameless** is the invitation to a holy living, to a righteous life. 
 
-17:1: **God Almighty** (Heb. *El Shaddai*). The second word highlights a particular attribute of God*; El Shadday* emphasizes God’s power, which in this context will enable Sarai to bear Abram a son. (ESV)
+17:1: **God Almighty** (Heb. *El Shaddai*). The second word highlights a particular attribute of God*; El Shadday* emphasizes God’s power, which in this context will enable Sarai to bear Abram a son. (ESV)
 
-17:1: Two closely related instructions are given to Abram, challenging him (1) **to walk before God**: to maintain an *ongoing* relationship with God; (2) **to be blameless**: to be faultless or perfect. (ESV)
+17:1: Two closely related instructions are given to Abram, challenging him (1) **to walk before God**: to maintain an *ongoing* relationship with God; (2) **to be blameless**: to be faultless or perfect. (ESV)
 
-17:1: Unlike the covenant made in ch. 15, this covenant has a conditional dimension which explicitly  indicates that this covenant will benefit only those who walk before God and are blameless. (ESV)
+17:1: Unlike the covenant made in ch. 15, this covenant has a conditional dimension which explicitly  indicates that this covenant will benefit only those who walk before God and are blameless. (ESV)
 
 17:2: Abram has already had his faith counted to him as righteousness; now, God is going to make a conditional covenant, based on righteousness.
 
-17:3: **Abram falling on his face** is worship, but also a positive response to God offering a covenant.
+17:3: **Abram falling on his face** is worship, but also a positive response to God offering a covenant.
 
-17:6: The promise of **making Abraham exceedingly fruitful** echoes the the divine blessing given at creation (1:28) and later repeated to Noah after the flood (9:1). Through this covenant the negative effects of the fall will ultimately be reversed; and in this, Abraham is another Adam, the beginning of something new. (ESV)
+17:6: The promise of **making Abraham exceedingly fruitful** echoes the the divine blessing given at creation (1:28) and later repeated to Noah after the flood (9:1). Through this covenant the negative effects of the fall will ultimately be reversed; and in this, Abraham is another Adam, the beginning of something new. (ESV)
 
-17:10: **Circumcision** is not a Hebrew invention. For example, it was used in Egypt from very early periods as an act of ritual purity. (ESV)
+17:10: **Circumcision** is not a Hebrew invention. For example, it was used in Egypt from very early periods as an act of ritual purity. (ESV)
 
-17:11: **Circumcision** is a mark that exists, but is not normally visible to others. (ESV)
+17:11: **Circumcision** is a mark that exists, but is not normally visible to others. (ESV)
 
-17:12: **Eight days**. It is of significant medical importance that male circumcision be carried out on the eighth day after birth since the level of vitamin K is highest on this day and vitamin K plays a pivotal role in regulation and control of the important clotting factors in the coagulation pathway that helps in stopping bleeding. The  Vitamin  K  and  Thrombocin  (which  is  a blood clotter) are the highest  in a  baby on his eighth day of life, and together with prothrombin, are essential  for  the function  of  several proteins  involved in blood coagulation. It is essential that circumcision is done on that very day. (Sokoto Journal of Medical Laboratory Science 2017; 2(3): 91 –  94 Original Research)
+17:12: **Eight days**. It is of significant medical importance that male circumcision be carried out on the eighth day after birth since the level of vitamin K is highest on this day and vitamin K plays a pivotal role in regulation and control of the important clotting factors in the coagulation pathway that helps in stopping bleeding. The  Vitamin  K  and  Thrombocin  (which  is  a blood clotter) are the highest  in a  baby on his eighth day of life, and together with prothrombin, are essential  for  the function  of  several proteins  involved in blood coagulation. It is essential that circumcision is done on that very day. (Sokoto Journal of Medical Laboratory Science 2017; 2(3): 91 –  94 Original Research)
 
 17:12: Перевод.Про обрезание на 8-й день. Очень важно с медицинской точки зрения, чтобы обрезание было совершено именно на восьмом дне от рождения младенца, потому что именно в этот день содержание витамина K в крови достигает своего пика, а этот витамин играет важнейшую роль в свёртывании крови: процессе, который останавливает кровотечение. Ни до восьмого дня, ни после него, организм младенца не способен столь эффективно перенести обрезание, как именно в восьмой день. (Исследование, опубликованное в медицинском журнале Сокото, 2017 год)
 
@@ -2678,7 +2678,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 17:17: **Abraham laughed**. His wife has been barren his whole life. It was quite natural for Abraham to laugh at the thought of them having a child.
 
-17:18: **Abraham** still believed God, but he must have thought that **Ishmael** is the promised son.
+17:18: **Abraham** still believed God, but he must have thought that **Ishmael** is the promised son.
 
 17:19: There are four kinds of **Abraham’s offspring**:
 1. *Natural offspring*: Ishmael, Isaac, the sons of Keturah, and their children
@@ -2687,15 +2687,15 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 4. *Spiritual offspring*: Those united with Christ (the promised offspring). Jews and Gentiles who trust in the Messiah.
 (ESV)
 
-17:19: **Isaac** means “he laughs”. There is a recurring motif of **laughter** around him: first, Abraham, then, Sarah (Gen 18:12) — out of unbelief; but then Sarah laughs again when Isaac is born, but this time — out of joy (Gen 21:6); and Ismael 
+17:19: **Isaac** means “he laughs”. There is a recurring motif of **laughter** around him: first, Abraham, then, Sarah (Gen 18:12) — out of unbelief; but then Sarah laughs again when Isaac is born, but this time — out of joy (Gen 21:6); and Ismael 
 
 17:19: God **establishes a covenant with him**, namely, with Isaac: the son born by God’s power, not by Abraham’s power.
 
-17:20: The covenant is *established* with Isaac, but Ishmael also gets *some* of the blessings of the covenant. (ESV)
+17:20: The covenant is *established* with Isaac, but Ishmael also gets *some* of the blessings of the covenant. (ESV)
 
 17:21: God has promised children to Abraham many times, but this is the first time that any timeframe was given.
 
-17:23: The urgency with which **Abraham** circumcises the whole house **that very day** demonstrates that he did not only take God’s words seriously, but it was of utmost importance to him.
+17:23: The urgency with which **Abraham** circumcises the whole house **that very day** demonstrates that he did not only take God’s words seriously, but it was of utmost importance to him.
 
 
 
@@ -2718,7 +2718,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### Isaac's Birth Promised
 
-18:1: It’s been *years* since Abraham settled at the **oaks of Mamre**, but he is still dwelling in a **tent** (ESV).
+18:1: It’s been *years* since Abraham settled at the **oaks of Mamre**, but he is still dwelling in a **tent** (ESV).
 
 18:2: Abraham’s actions (**ran, bowed, “Lord”, “servant”**) shows that he viewed the men as exceptionally important and worthy of great respect. (ESV)
 
@@ -2726,31 +2726,31 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 18:3: **O Lord**. In Hebrew, Abraham properly says *Adonai*, which is used for God in the OT. Had he greeted a human, he would have said *Adoni*, “my lord”, which has a slightly different spelling. No doubt, Abraham has recognized that these visitors are a divine manifestation. This explains Abraham’s part in the conversation of vv.22-33.(ESV)
 
-18:4: Although Abraham speaks of **Little water and a morsel of bread,** he proceeds to prepare a substantial meal. (ESV)
+18:4: Although Abraham speaks of **Little water and a morsel of bread,** he proceeds to prepare a substantial meal. (ESV)
 
 18:8: **He stood by them**, assuming the role of a humble servant. Abraham did not eat with them, but waited on them.
 
-18:8: **The Lord** clearly had no need for food, but by dining at Abraham’s place, God honored him.
+18:8: **The Lord** clearly had no need for food, but by dining at Abraham’s place, God honored him.
 
-18:9: Strangely enough, **Sarah** was not present while such honored guests were present, and **Abraham** must have served them himself. 
+18:9: Strangely enough, **Sarah** was not present while such honored guests were present, and **Abraham** must have served them himself. 
 In v.10 we see that Sarah has interest in the guests (“listening at the tent door”). In v.13, the Lord talks about Sarah, knowing her thoughts, and in v.15 she engages in the conversation. 
 So, either Sarah was in the tent but still visible from the dining place, or she must have come out of the tent to say the words to the Lord.
 Either way, she was not at the table.
 
 18:12: **Sarah laughed**. She has been barren her whole life. It was quite natural for Sarah to laugh at the thought of her having a child in her nineties.
 
-18:12: Even though **Sarah laughed** to herself, she honored her husband by calling him **lord**, which indicated her pattern of submitting to and obeying her husband. (1 Pet 3:6: “as Sarah obeyed Abraham, calling him **lord**”). (ESV)
+18:12: Even though **Sarah laughed** to herself, she honored her husband by calling him **lord**, which indicated her pattern of submitting to and obeying her husband. (1 Pet 3:6: “as Sarah obeyed Abraham, calling him **lord**”). (ESV)
 
-18:13: Even though **Sarah** was away from the table, **The Lord** knew that she had laughed *to herself*, and spoke to Abraham about it.
+18:13: Even though **Sarah** was away from the table, **The Lord** knew that she had laughed *to herself*, and spoke to Abraham about it.
 
-18:14: **Is anything too hard for the Lord** God almighty?
+18:14: **Is anything too hard for the Lord** God almighty?
 
-18:15: It is clear that **Sarah** responded even though no one spoke to her personally. The whole time, God spoke exclusively to Abraham, addressing him personally, and talking with him about his wife in the third person.
+18:15: It is clear that **Sarah** responded even though no one spoke to her personally. The whole time, God spoke exclusively to Abraham, addressing him personally, and talking with him about his wife in the third person.
 
-18:15: **Sarah denied** that she **did laugh**, and it was a lie she said to the Lord’s face. As often in the OT, the author does not judge, but merely reports. Even though it was **out of fear**, it is clear in this episode that Sarah exhibits her sin nature by denying the responsibility just like the first couple did before God. But God knows the truth: “**no, but you did laugh**”.
-At the same time, **Sarah** had faith, because it is “by faith [that she has] received power to conceive” (Heb 11:11).
+18:15: **Sarah denied** that she **did laugh**, and it was a lie she said to the Lord’s face. As often in the OT, the author does not judge, but merely reports. Even though it was **out of fear**, it is clear in this episode that Sarah exhibits her sin nature by denying the responsibility just like the first couple did before God. But God knows the truth: “**no, but you did laugh**”.
+At the same time, **Sarah** had faith, because it is “by faith [that she has] received power to conceive” (Heb 11:11).
 
-18:19: God’s **promise** is conditional upon **Abraham**’s descendants’ **keeping the way of the Lord**, and that is, **by doing righteousness and justice**: something that the believing Jews of the distant future will forget.
+18:19: God’s **promise** is conditional upon **Abraham**’s descendants’ **keeping the way of the Lord**, and that is, **by doing righteousness and justice**: something that the believing Jews of the distant future will forget.
 
 
 
@@ -2775,42 +2775,42 @@ At the same time, **Sarah** had faith, because it is “by faith [that she has]
 
 18:21: These words reveal that the decision to destroy the cities of the plain was undertaken with careful scrutiny of the evidence. All that is implied is God’s direct attention to the matter. (ESV)
 
-18:22: It is now clear from this verse, and from 19:1, that only one of the **men** was **The Lord**, but the other two were angels (19:1: “the two angels”). They now separate: angels** went toward Sodom**, but **the Lord** remained, with **Abraham standing before **Him.
+18:22: It is now clear from this verse, and from 19:1, that only one of the **men** was **The Lord**, but the other two were angels (19:1: “the two angels”). They now separate: angels** went toward Sodom**, but **the Lord** remained, with **Abraham standing before **Him.
 
 18:22: Note that in 18:21 God had said that “I will go down”. He did not change His mind between the verses; as often in the OT, angels often speak and act for God, and God is often represented by angels who can give a direct speech on God’s behalf, using an “I” that stands for “I, God”.
 Here, it is clear that God sends angels to see and to act, and angels act and speak as if God Himself acts and speaks through them. So loyal they are that they completely identify with Him.
 
-18:23: **Abraham’s** intercession for the Gentile cities of Sodom and Gomorrah is in line with his calling to be the vehicle of blessing to the whole world. (ESV)
+18:23: **Abraham’s** intercession for the Gentile cities of Sodom and Gomorrah is in line with his calling to be the vehicle of blessing to the whole world. (ESV)
 
-18:25: **Abraham** couldn’t believe that God, who has just promised to carefully evaluate the evidence (v.21), will so plainly go against His Own Nature of a **just judge**.
+18:25: **Abraham** couldn’t believe that God, who has just promised to carefully evaluate the evidence (v.21), will so plainly go against His Own Nature of a **just judge**.
 
-18:25: **Abraham** knows, he knows, that **God** must be true to His nature. (ESV)
+18:25: **Abraham** knows, he knows, that **God** must be true to His nature. (ESV)
 
 18:25: It is clear that Abraham does not see God merely being in a position of a **judge**, but he sees God as a **just judge**, doing what is right. God will never misuse His power, but will always do what is right.
 
 18:26: Abraham has just said what may be seen as outspoken questioning of the sovereign Lord and indignation at what he thought was about to happen. “**Far be it from you**!” does not sound like something you say to God.
-Interestingly, **The Lord** does not rebuke such a blunt statement, but **answers**. After all, God Himself opened the possibility for that conversation by deciding to reveal to Abraham what He was about to do (v. 17).
+Interestingly, **The Lord** does not rebuke such a blunt statement, but **answers**. After all, God Himself opened the possibility for that conversation by deciding to reveal to Abraham what He was about to do (v. 17).
 
-18:27: **Abraham** speaks those words of humility before God whom he dared to question. When he had first asked God, there was no humility, but rather, questioning. 
+18:27: **Abraham** speaks those words of humility before God whom he dared to question. When he had first asked God, there was no humility, but rather, questioning. 
 Perhaps, now Abraham’s indignation has settled down, and he started talking the way he should have from the very beginning. Perhaps this is why God was so patient with Abraham’s outburst: God who knows the future surely knows that Abraham did not mean what his words looked like.
 
-18:32: From the following events it becomes clear that there were not even **ten righteous people** in the town of Sodom. At least, those that were there, God has led away from the city, for He has promised that He will not destroy the righteous with the wicked.
+18:32: From the following events it becomes clear that there were not even **ten righteous people** in the town of Sodom. At least, those that were there, God has led away from the city, for He has promised that He will not destroy the righteous with the wicked.
 
 18:32: Abraham does not dare to keep reducing the number, although logically, there must have been the final question: “What about if there is one rigteous person in the city; will you destroy the righteous with the wicked?”
 
 18:32: Abraham may have ceased engaging in the conversation out of reverence, or maybe, because the principle has already been established: God will not punish the righteous along with the wicked.
 
-18:33: **The Lord** does not go to Sodom, but **went his way**: left the place altogether. Only the two angels reached Sodom.
+18:33: **The Lord** does not go to Sodom, but **went his way**: left the place altogether. Only the two angels reached Sodom.
 
-18:33: **Abraham** also returned to his place. It is notorious that he did not go to see what would happen to Sodom. He has just talked with God Himself, he still trusts Him, and trusts so much that there is no need to go and see for yourself. If the Lord has said, “I will not destroy the wicked with the righteous”, then it will be so. (Gen 15:6: “he believed the LORD, and jhe counted it to him as righteousness”). 
+18:33: **Abraham** also returned to his place. It is notorious that he did not go to see what would happen to Sodom. He has just talked with God Himself, he still trusts Him, and trusts so much that there is no need to go and see for yourself. If the Lord has said, “I will not destroy the wicked with the righteous”, then it will be so. (Gen 15:6: “he believed the LORD, and jhe counted it to him as righteousness”). 
 
-19:1: Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
+19:1: Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
 
-19:1: **In the evening.** God has come to Abraham “in the heat of the day” (18:1). In the evening *of the same day* the angels have arrived to Sodom.
+19:1: **In the evening.** God has come to Abraham “in the heat of the day” (18:1). In the evening *of the same day* the angels have arrived to Sodom.
 
-19:1: Lot’s **sitting at the gate** means he was in a high esteem in the city: a decision-maker of sorts.
+19:1: Lot’s **sitting at the gate** means he was in a high esteem in the city: a decision-maker of sorts.
 
-19:1: **Lot**’s actions closely mirror the reaction of Abraham: he immediately recognized that those guests were special, and **bowed down** to them, even though they were complete strangers.
+19:1: **Lot**’s actions closely mirror the reaction of Abraham: he immediately recognized that those guests were special, and **bowed down** to them, even though they were complete strangers.
 
 19:2: There are numerous parallels between how Abraham and Lot greet his visitors: greets them politely, offers hospitality, prepares a meal, and there’s no report of his wife assisting. By resembling Abraham, Lot demonstrates that he is righteous. (ESV)
 
@@ -2822,9 +2822,9 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 19:4: **Before they lay down**. The news about the newcomers have spread quickly: it was “evening” (v. 1) when they came. It took the whole city a few hours to spread the news, decide, and gather **all the people to the last man**. Was it customary to greet strangers like this? Perhaps, Lot knew about this custom, and this was one of the reasons why he had invited those angels?
 
-19:4: **All the people** have become a gang seeking an orgy of rape. (ESV)
+19:4: **All the people** have become a gang seeking an orgy of rape. (ESV)
 
-19:5: **Know them** denotes sexual intercourse (cf. v. 8: “have not *known* any man”). (ESV)
+19:5: **Know them** denotes sexual intercourse (cf. v. 8: “have not *known* any man”). (ESV)
 
 19:5: **Know them**. Lot’s earlier insistence (v. 3) that the visitors should not spend the night in the square indicates that he feared for their safety. (ESV)
 
@@ -2838,22 +2838,22 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 19:8: **Only do nothing to these men**. Lot’s exhibits perverted judgment: he sees great evil in sodomy, but sees only a lesser, an acceptable perhaps, evil, in the abuse of his both daughters. His actions flow from great charity: a strong desire to protect his guests, even in the face of danger; but due to some perverted judgment, Lot’s love results in a most imprudent and sinful motion, whereby he yielded to one sin to prevent another, contrary to Romans 3:8 (“Let us do evil that good may come? … Their condemnation is just.”).
 
-19:12: (__Lot’s righteousness__) The NT tells us that **Lot** was a righteous man (2 Peter 2:7-8: “righteous man…, he was tormenting his righteous soul over their lawless deeds that he saw and heard”). This also clear here because God has promised not to destroy the righteous with the wicked, so He warns the righteous.
+19:12: (__Lot’s righteousness__) The NT tells us that **Lot** was a righteous man (2 Peter 2:7-8: “righteous man…, he was tormenting his righteous soul over their lawless deeds that he saw and heard”). This also clear here because God has promised not to destroy the righteous with the wicked, so He warns the righteous.
 
-19:12: (__Lot’s righteousness__) **Lot** was righteous only relatively; and though his soul was daily vexed by what he saw, it was not vexed enough to make him quit such evil surroundings, and return to the healthy and virtuous life of the mountains. And, when finally he sought refuge in them, as it was not of his own free will, but on compulsion (v. 30). 
+19:12: (__Lot’s righteousness__) **Lot** was righteous only relatively; and though his soul was daily vexed by what he saw, it was not vexed enough to make him quit such evil surroundings, and return to the healthy and virtuous life of the mountains. And, when finally he sought refuge in them, as it was not of his own free will, but on compulsion (v. 30). 
 The warning of his fall is, that men who part with religious privileges for the sake of worldly advantage are in danger of sinking into moral degradation, and of losing, with their faith and hope, not only their self-respect and happiness, but even that earthly profit for the sake of which they sacrificed their religion.
 (Ellicott's Commentary)
 
-19:12: While **Lot** was righteous, some of his family were not (cf. the conduct or his daughters in v.32). God still gave Lot the possibility to take the whole family with him. Why?
+19:12: While **Lot** was righteous, some of his family were not (cf. the conduct or his daughters in v.32). God still gave Lot the possibility to take the whole family with him. Why?
 First of all, it was a test: if Lot had a particular dislike for one of his in-laws, he might have had a temptation to leave that person behind. But Lot went out to want his sons-in-law (v. 14).
 Secondly, family ties: God recognizes that family ties are important for a person, and offers Lot a possibility to take his unrighteous family with him, just as He let Noah take some of his unrighteous family members (i.e. Ham).
 Thirdly, the possibility to witness a denial: God gives Lot the possibility to see for himself how his sons-in-law reject the salvation he offered (v. 14). It may well be that it was not the first time that they mocked his faith in an invisible God. They would have taken Lot’s words seriously otherwise.
 
 19:13: **The outcry against its people has become great**. It is a recurring theme in the Bible that before God takes action, the measure of sins has to exceed a certain threshold, “be complete”. (Gen 15:16: "the iniquity of the Amorites is not yet complete.”; Dan 8:23: “when the transgressors have reached their limit”).
 
-19:14: Those two **sons-in-law** were unrighteous people, because they were ultimately destroyed together with the rest. Lot has given his daughters in marriage to unrighteous people.
+19:14: Those two **sons-in-law** were unrighteous people, because they were ultimately destroyed together with the rest. Lot has given his daughters in marriage to unrighteous people.
 
-19:15: **Your wife and your two daughters**. After Lot has heard the denial himself, **the angels** do not urge him to take them anymore. 
+19:15: **Your wife and your two daughters**. After Lot has heard the denial himself, **the angels** do not urge him to take them anymore. 
 
 19:16: **But he lingered**. There is no doubt that that Lot has taken the warning seriously, for he was speaking about the looming doom to other people. There was something dear to him in this town that he could not leave that easily.
 Whatever that was that held him, it was likely either sinful or foolish, because God has led his family out “**being merciful to him**”, which indicates forgiveness.
@@ -2875,7 +2875,7 @@ Thus, “he” may mean “them”, i.e. the whole family, just like “**they b
 
 19:26: **Looked back**. She disobeyed God’s commandment, and in doing so, demonstrated her attachment to the city of the wicked. There was something in it that she loved even more than Lot had.
 
-19:27: **To the place**. After having pleaded with **the Lord** for the righteous in Sodom, Abraham went home: he saw no reason to sit and wait, like Johan would have. The evening came, the night has passed, and only in the morning (v. 23) the destruction came.
+19:27: **To the place**. After having pleaded with **the Lord** for the righteous in Sodom, Abraham went home: he saw no reason to sit and wait, like Johan would have. The evening came, the night has passed, and only in the morning (v. 23) the destruction came.
 
 19:28: **And he looked down**. He did not yet know for sure that Lot, his nephew, was alive. It was only by faith that he could believe that God wouldn’t destroy the whole city.
 
@@ -2886,15 +2886,15 @@ Thus, “he” may mean “them”, i.e. the whole family, just like “**they b
 19:30: **Zoar**. This town, Zoar, was to be destroyed, and has only been saved due to Lot’s intercession. It is full of wicked people, just like Sodom. 
 
 19:30: **Afraid to live in Zoar**. Why afraid? 1) Lot may have been afraid for his daughters’ chastity. 2) He was afraid that people may learn that he had played a role in the destruction of Sodom. 3) He simply feared that God’s judgment may proceed and consume Zoar as well.
-The **fear** was sufficiently strong to drive the whole family into a distant **cave**.
+The **fear** was sufficiently strong to drive the whole family into a distant **cave**.
 
 19:31: **Not a man on earth to come in to us**. Why did they say so? 1) Looking at the smoking brimstone down in the valley, they may have thought that the whole world have come to an end. 2) They may have thought that Zoar would be destroyed as well. 3) There may have been something wrong with the men of Zoar. Homosexuals? 4) Lot may have prohibited them from looking at the men of Zoar, for they were wicked.
 
 19:31: **Not a man on earth to come in to us**. Lot’s two daughters fear that the isolated location chosen by their father will prevent them from having husbands. (ESV)
 
-19:38: **The Moabites** and **the ammonites** would become Israel’s enemies.
+19:38: **The Moabites** and **the ammonites** would become Israel’s enemies.
 
-19:38: Throughout the Bible, **the Ammonites** and Israelites are portrayed as mutual antagonists. During the Exodus, the Israelites were prohibited by the Ammonites from passing through their lands. The Ammonites soon allied themselves with Eglon of Moab in attacking Israel. (Wikipedia)
+19:38: Throughout the Bible, **the Ammonites** and Israelites are portrayed as mutual antagonists. During the Exodus, the Israelites were prohibited by the Ammonites from passing through their lands. The Ammonites soon allied themselves with Eglon of Moab in attacking Israel. (Wikipedia)
 
 
 
@@ -2917,23 +2917,23 @@ The **fear** was sufficiently strong to drive the whole family into a distant *
 
 ### Abraham and Abimelech
 
-20:2: Sarah is pregnant, and **Abimelech’s** actions put in jeopardy the fulfillment of God’s promise to Abraham that Sarah will bear him a son. (ESV)
+20:2: Sarah is pregnant, and **Abimelech’s** actions put in jeopardy the fulfillment of God’s promise to Abraham that Sarah will bear him a son. (ESV)
 
-20:2: Evidently **Sarah** looked much younger than her real age. (ESV)
+20:2: Evidently **Sarah** looked much younger than her real age. (ESV)
 
-20:2: **Abimelech** means “my father is king,” appears to have been a common royal name. The same name is mentioned in ch. 26 (see note on 26:1–2) and is given to later biblical figures. (ESV)
+20:2: **Abimelech** means “my father is king,” appears to have been a common royal name. The same name is mentioned in ch. 26 (see note on 26:1–2) and is given to later biblical figures. (ESV)
 
 20:4: **Had not approached her**. This episode emphasizes in a variety of ways the important point that Sarah has not had intercourse with the king; otherwise, Abimelech could be the father of the son born to Sarah. (ESV)
 
-20:4-5: **Abimelech** must be a believer in **God**, because he calls Him **Lord** and talks about **integrity** and **innocence**: words of a man who can tell right from wrong.
+20:4-5: **Abimelech** must be a believer in **God**, because he calls Him **Lord** and talks about **integrity** and **innocence**: words of a man who can tell right from wrong.
 
 20:6: God has orchestrated some circumstances that Abimelech did not lie with Sarah. He could already have.
 
 20:7: **And all who are yours**. It is interesting how God is going to punish the whole kingdom for the sin of the king. This pattern proceeds through the OT, where the king is not only responsible for the kingdom, not only its representative, but also one with the kingdom — in both his vices and virtues.
 
-20:7: **Abraham** is the first person called **a prophet** in the OT. (ESV)
+20:7: **Abraham** is the first person called **a prophet** in the OT. (ESV)
 
-20:7: The emphasis here is that **Abraham** can intercede on behalf of others. God wants a person to ask Him to do something, even though it is according to His will.
+20:7: The emphasis here is that **Abraham** can intercede on behalf of others. God wants a person to ask Him to do something, even though it is according to His will.
 
 20:11: **No fear of God in this place**. Abraham now provides the reason he acted the same way in Egypt.
 
@@ -2966,38 +2966,38 @@ The **fear** was sufficiently strong to drive the whole family into a distant *
 
 ### The Birth of Isaac
 
-21:1: **The LORD** had said, “I will surely return to you about this time next year, and Sarah your wife shall have a son.”. He did not just promise that she will conceive, but He promised *to return*. And He **visited** Sarah somehow, but no details are given. (Gen 18:10)
+21:1: **The LORD** had said, “I will surely return to you about this time next year, and Sarah your wife shall have a son.”. He did not just promise that she will conceive, but He promised *to return*. And He **visited** Sarah somehow, but no details are given. (Gen 18:10)
 
-21:2: **In his old age** emphasizes that **Abraham** was not able to have children anymore, so the child was born by God’s miracle. Rom 4:19 says that “his own body … was as good as dead”.
+21:2: **In his old age** emphasizes that **Abraham** was not able to have children anymore, so the child was born by God’s miracle. Rom 4:19 says that “his own body … was as good as dead”.
 Abraham, however, was able to have more children after Sarah died. Probably, God has permanently returned Abraham his fertility.
 
-21:3: **Isaac**. God had said to call the son like that (Gen 17:19) because Sarah, who had been barren her whole life, **laughed** at God’s promise of a child in her old age.
+21:3: **Isaac**. God had said to call the son like that (Gen 17:19) because Sarah, who had been barren her whole life, **laughed** at God’s promise of a child in her old age.
 
-21:4: **As God had commanded him**. Commanded one year before Isaac was born. **Abraham** now exhibits obedience to the Lord who has just made His promise a reality.
+21:4: **As God had commanded him**. Commanded one year before Isaac was born. **Abraham** now exhibits obedience to the Lord who has just made His promise a reality.
 
-21:6: **Laughter** of disbelief has turned into a **laughter** of joy.
+21:6: **Laughter** of disbelief has turned into a **laughter** of joy.
 
 21:7: **Sarah**’s words emphasize the impossible nature of what God has just done. A miracle. Impossible.
 
 21:8: **Weaned**. Isaac was 2 or 3 years old already.
 
-21:9: **The son of Hagar** was already 16 years old at the time.
+21:9: **The son of Hagar** was already 16 years old at the time.
 
-21:9: That **laughing** was some sort of evil mocking. Gal 4:29 say that the son of Hagar actually “persecuted him who was born”, meaning some sort of abuse and mistreatment. **Laughing** was probably just one of the many ways Ismael persecuted Isaac.
+21:9: That **laughing** was some sort of evil mocking. Gal 4:29 say that the son of Hagar actually “persecuted him who was born”, meaning some sort of abuse and mistreatment. **Laughing** was probably just one of the many ways Ismael persecuted Isaac.
 
-21:9: The word “**laughing**” is ambiguous, and possibly favors “mocking”. **Ishmael** was probably **making fun** of Isaac’s role as Abraham’s promised son. (ESV)
+21:9: The word “**laughing**” is ambiguous, and possibly favors “mocking”. **Ishmael** was probably **making fun** of Isaac’s role as Abraham’s promised son. (ESV)
 
-21:10: **Sarah** is being cruel, but protective of her own child.
+21:10: **Sarah** is being cruel, but protective of her own child.
 
 21:10: Abraham’s desire to fulfill the Lord’s promise by his own means has already started to bring trouble.
 
-21:11: **On account of his son**. Abraham still viewed Ishmael as his own firstborn son and heir, and so was **displeased** of the tension in the family. The inheritance of God’s promise is clearly the issue here, because in the following verse God’s explanation rests on the naming of Isaac as the firstborn, the son of the promise.
+21:11: **On account of his son**. Abraham still viewed Ishmael as his own firstborn son and heir, and so was **displeased** of the tension in the family. The inheritance of God’s promise is clearly the issue here, because in the following verse God’s explanation rests on the naming of Isaac as the firstborn, the son of the promise.
 
 21:12: **do as she tells you**. While Abraham is reluctant to send Ishmael away, God reassures him that this is for the best. (ESV)
 
-21:12: **Through Isaac shall your offspring be named**. Even though **Ishmael** is older than **Isaac**, God confirms that **Isaac** will take priority over Ishmael. The importance of this is picked up in Rom 9:7-8: “and not all are children of Abraham because they are his offspring, but “Through Isaac shall your offspring be named.” This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring”. (ESV)
+21:12: **Through Isaac shall your offspring be named**. Even though **Ishmael** is older than **Isaac**, God confirms that **Isaac** will take priority over Ishmael. The importance of this is picked up in Rom 9:7-8: “and not all are children of Abraham because they are his offspring, but “Through Isaac shall your offspring be named.” This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring”. (ESV)
 
-21:16: **The child** was already 16 years old.
+21:16: **The child** was already 16 years old.
 
 21:17: **God heard the voice of the boy**. Although this passage avoids using his personal name, “Ishmael” means “God hears” (ESV)
 
@@ -3030,7 +3030,7 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 It is quite interesting: it seems that Abraham was not any sort of stained-glass saint. He clearly did not make an impression of man who can be trusted and would always do what is right. 
 Abimelech needed an oath: a guarantee that is unbreakable because he sees how God acts.
 
-21:25: Before sealing the treaty, **Abraham** raises the contentious issue of ownership of **a well**. The covenant or treaty was designed to prevent conflict between the two parties. (ESV)
+21:25: Before sealing the treaty, **Abraham** raises the contentious issue of ownership of **a well**. The covenant or treaty was designed to prevent conflict between the two parties. (ESV)
 
 21:25: It seems that Beersheba is here being established as the border, the point where Israel ends and Philistia starts. Abraham will swear that he will not deal falsely with Abimelech, but only after the issue with the land division is settled. The gift of seven ewe lambs to Abimelech confirms Abraham’s ownership of the well. 
 After Abimelech agrees with the well belonging to Abraham, there is no contention anymore, and Abraham is ready to swear that oath. Then Abimelech “returned to the land of the Philistines” (v. 32).
@@ -3042,7 +3042,7 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 
 21:32: The use of the term “**Philistines**” here is generally taken to be anachronistic, since the name is normally associated with non-Canaanites from the Aegean region who inhabited southwest Canaan from about 1180 B.C. onward—nearly a thousand years after Abraham’s time. (In 1 Samuel the Philistines are portrayed as the main opponents of the Israelites.) In light of this, the term may be used here and elsewhere to replace an earlier, obscure term; Genesis contains various examples of such modernizations. (ESV)
 
-21:33: **Everlasting God** (Hb. ’El ‘Olam). ’El = God, followed ‘Olam: the attribute “of everlastingness”. (ESV)
+21:33: **Everlasting God** (Hb. ’El ‘Olam). ’El = God, followed ‘Olam: the attribute “of everlastingness”. (ESV)
 
 
 
@@ -3065,7 +3065,7 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 
 ### The Sacrifice of Isaac
 
-22:1: **God tested Abraham**. Did He test Abraham because God needed more information about Abraham’s obedience in different situations? Surely not. God **tested Abraham** for his own sake: to purify him, to teach him something, to let him see and understand.
+22:1: **God tested Abraham**. Did He test Abraham because God needed more information about Abraham’s obedience in different situations? Surely not. God **tested Abraham** for his own sake: to purify him, to teach him something, to let him see and understand.
 God did not need that test. Abraham did.
 
 22:1: The genuineness of Abraham’s obedience to God is **tested**. While it is not unknown for God to test individuals, testing must be clearly distinguished from tempting. God does not tempt anyone to do evil (Jas 1:13: “ God cannot be tempted with evil, and he himself tempts no one”); he does, however, test the commitment of people (e.g., Ex. 15:25: “What shall we drink?”; 16:4: “grumbled against Moses”). (ESV)
@@ -3078,11 +3078,11 @@ God did not need that test. Abraham did.
 
 22:2: **Of which I shall tell you**. This statement makes the command incomplete: Abraham will have to accomplish the immediate task at hand (take his son to Moriah and prepare everything needed for a burnt offering), but still be expecting further instructions. Abraham set off in an expectation of another word, knowing that he won’t be left without guidance.
 
-22:2: **Moriah**. According to 2 Chron. 3:1, Solomon constructed the temple on Mount Moriah in Jerusalem. Also,  It requires about two days to travel on foot from Beersheba to Jerusalem (v. 4: “on the third day). (ESV)
+22:2: **Moriah**. According to 2 Chron. 3:1, Solomon constructed the temple on Mount Moriah in Jerusalem. Also,  It requires about two days to travel on foot from Beersheba to Jerusalem (v. 4: “on the third day). (ESV)
 
 22:3: **Abraham **displays remarkable trust in God, especially when the death of Isaac would appear to contradict all that God had promised to Abraham.
 
-22:3: **Rose early in the morning**. The lack of any other comment Indicates Abraham’s readiness to fulfill what God has just commanded.  Heb 11:17 says that Abraham did it “by faith”, because “He considered that God was able even to raise him from the dead” (Heb 11:19).
+22:3: **Rose early in the morning**. The lack of any other comment Indicates Abraham’s readiness to fulfill what God has just commanded.  Heb 11:17 says that Abraham did it “by faith”, because “He considered that God was able even to raise him from the dead” (Heb 11:19).
 
 22:4: **On the third day**. For three days straight Abraham was confident that he will have to kill “his son, his only son, whom he loves”.
 
@@ -3095,9 +3095,9 @@ God did not need that test. Abraham did.
 
 22:6: **He took the knife**. Abraham couldn’t give the weapon to a person whom he was going to assault. It is quite unlikely that one would expect a person to willingly lay his life onto an altar.
 
-22:7: **Where is the lamb?** Isaac asking about the lamb indicates that the family was quite used to the ritual of the burned offering. It was something that Abraham has already done before.
+22:7: **Where is the lamb?** Isaac asking about the lamb indicates that the family was quite used to the ritual of the burned offering. It was something that Abraham has already done before.
 
-22:7: **Where is the lamb?** It is obvious that Abraham decided not to tell his son the whole story. The fact that Isaac will have to die on that mountain was completely unknown to him, just as it would have had been for a real lamb.
+22:7: **Where is the lamb?** It is obvious that Abraham decided not to tell his son the whole story. The fact that Isaac will have to die on that mountain was completely unknown to him, just as it would have had been for a real lamb.
 
 22:8: **God will provide**. This is a key verse, for these very words become the name of the place in v. 14. 
 It is possible that Abraham was less than sincere with Isaac (for Abraham has already had a history of resorting to deception in difficult circumstances), but at the same time, those words may have been prophetic (Gen 20:7: “he is a prophet”; Jn 11:51: “He did not say this of his own accord, but ... he prophesied” -- saying that people may blurt out a prophecy without even knowing that God has put those words into their mouth).
@@ -3114,21 +3114,21 @@ After such an episode, it will be very easy for Abraham to obey God in any other
 
 22:10: **Took the knife to slaughter his son**. It’s not that God was waiting until the very last moment, like in a Hollywood movie. Watching his own son cringe on an altar, Abraham had to overcome the next-to-last obstacle have the heart to obey God till the end. The reaching of the hand to take the knife indicates his final readiness. 
 
-22:12: **Do not … now I know that you fear God.** Difficult. Sounds like God needed information? Or perhaps, another reason for the test was to show *the angels* that He has a faithful servant on earth? Far-fetched? See 1 Cor 4:9: “we have become a spectacle to the world, to angels, and to men”.
+22:12: **Do not … now I know that you fear God.** Difficult. Sounds like God needed information? Or perhaps, another reason for the test was to show *the angels* that He has a faithful servant on earth? Far-fetched? See 1 Cor 4:9: “we have become a spectacle to the world, to angels, and to men”.
 However, in the same verse, the angels says “you have not withheld your son ... **from me**”, clearly speaking for God.
 So it seems. God is saying, “now I know”. Not sure what so say about it.
 
 22:12: **You have not withheld your son, your only son, from me**. This was the fork in the road: will Abraham choose to obey God because he loved his son so much, or would he be ready to give up what he cherished? We call it parental love, caring love, but what was tested here was the selfish part of that love: the one that wouldn’t give up, even when God, just and righteous and infinitely wise, requires it.
 
-22:12: **Now I know**.  While Abraham’s faith was earlier the means by which God counted him as righteous (15:6), that faith is now “active along with his works,” and the faith is “completed by his works” (Jas 2:21–23), so that his faith resulted in obedience, which is its expected outcome. (ESV)
+22:12: **Now I know**.  While Abraham’s faith was earlier the means by which God counted him as righteous (15:6), that faith is now “active along with his works,” and the faith is “completed by his works” (Jas 2:21–23), so that his faith resulted in obedience, which is its expected outcome. (ESV)
 
 22:12: (__faith vs selfishness__) The way of faith would trust God to do the right thing even when it looks ridiculous. God, You want to take what I love from me? I trust you. Please take. I believe that what You do it best.
 The way of selfishness would choose your own way: I love my son, I cannot give him up. This does not make sense: murdering my son! No way, I won’t do it. It’s cruel, and it makes no sense.
 Notice how natural it would be to resort to reasoning about love and logic! Faithlessness may cover itself up with common sense and lofty matters. This is why the Bibe says “lean not on your own understanding” (Prov 3:5). Because God’s ways sometimes may make no sense to us at all.
 
-22:12: James 2:21–22 says Abraham was “justified by works” and that his “faith was completed by his works”. *Completed*, i.e., brought to its full and proper expression. This shows that “justified” in Jas 2:21 probably has the sense “shown to be righteous,” rather than the sense “counted righteous” often found in Paul’s writings. (ESV)
+22:12: James 2:21–22 says Abraham was “justified by works” and that his “faith was completed by his works”. *Completed*, i.e., brought to its full and proper expression. This shows that “justified” in Jas 2:21 probably has the sense “shown to be righteous,” rather than the sense “counted righteous” often found in Paul’s writings. (ESV)
 
-22:12: (**I **know**, **you fear** God; **did not withhold** from me**). It is the angel (lit. messenger) speaking (v.11: “the messenger of the Lord), and the angel said that “I” know that you fear “God”. Who knows, the angel? But further: you did not withhold your son “from me”. Could Abraham withhold his son from the angel? 
+22:12: (**I **know**, **you fear** God; **did not withhold** from me**). It is the angel (lit. messenger) speaking (v.11: “the messenger of the Lord), and the angel said that “I” know that you fear “God”. Who knows, the angel? But further: you did not withhold your son “from me”. Could Abraham withhold his son from the angel? 
 This means that the messenger is God Himself, and yet he speaks about God in third person. Then, it means that me messenger is both God and of God; which means, the messenger is Jesus Christ, the Son, speaking for God, about the Father. (Андроник Пантак)
 
 22:13: **Instead of his son**. We can only wonder about Isaac from the point when he has seen his father change his mind about killing him. How they talked. How Abraham undid the knots. How they went back together. How they lived after such a moment.
@@ -3136,7 +3136,7 @@ In two chapters, Abraham will send his servant to a foreign country to find a wi
 
 22:14: **The Lord will provide**. “Yahweh-Yireh” (Hb) The verb literally means to see, or, to see to a thing, and the sense of the proverb plainly is that in man's necessity God will Himself see to it, and provide due help and deliverance. (Ellicott’s Commentary)
 
-22:13-14: **Instead of his son. The Lord will provide.** There probably is a deeper, much deeper meaning to the story than just the Lord playing with Abraham’s obedience to teach him a lesson.
+22:13-14: **Instead of his son. The Lord will provide.** There probably is a deeper, much deeper meaning to the story than just the Lord playing with Abraham’s obedience to teach him a lesson.
 Remember when David sinned with Bathsheba, and his son died in 2 Sam 12? David has committed a sin, and he had to lose something dear to him. That was his lesson: the Lord’s discipline, with which He purifies us. His son had to die, because of justice.
 In this story, did Abraham sin? Yes. May it be that Isaac was meant by God’s justice to be taken from him? Sure. Then Isaac has already been sealed for death in a way. It could only be averted if God Himself provided a substitution: a ram, in this case. So the ram has died for Isaac. All of this because of Abraham’s faith.
 And surely Isaac and the ram is a type of mankind and Christ: mankind had to die because of sin (Isaac, sin), this punishment was only averted because of a substitutionary death of Jesus (ram), and all of this is only possible because of faith (Abraham, “the father of all who believe” (Rom 4:16)).
@@ -3147,11 +3147,11 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 22:16: **By myself I have sworn**. Rom 6:13: “since he had no one greater by whom to swear, he swore by himself”
 
-22:17:** As the stars of heaven ..., as the sand that is on the seashore**. The test was great, but the blessing is even greater. An overflowing one. This is how God deals with those who love Him.
+22:17:** As the stars of heaven ..., as the sand that is on the seashore**. The test was great, but the blessing is even greater. An overflowing one. This is how God deals with those who love Him.
 
-22:17: **Multiply your offspring** (lit. seed, Hb. *zaraka*). Speaks about the nation, Israel. **Your offspring** (lit. seed, Hb. *zaraka*)**.** May still refer to the nation of Israel, who then **overcomes his enemies** and mediates blessings **to all the nations of the earth**, because Jesus Christ is born in them. Or may refer to a single seed, an offspring, Who is a single descendant who **overcomes His enemies** and mediates blessings **to all the nations**. Either way, it points to Christ.
+22:17: **Multiply your offspring** (lit. seed, Hb. *zaraka*). Speaks about the nation, Israel. **Your offspring** (lit. seed, Hb. *zaraka*)**.** May still refer to the nation of Israel, who then **overcomes his enemies** and mediates blessings **to all the nations of the earth**, because Jesus Christ is born in them. Or may refer to a single seed, an offspring, Who is a single descendant who **overcomes His enemies** and mediates blessings **to all the nations**. Either way, it points to Christ.
 
-22:17: Because Genesis as a whole is interested in tracing a single unique line of offspring that will eventually bring forth a special King who will rule over the Gentiles, the second half of the promise is taken to refer to a single **descendant** who will **overcome his enemies** and mediate blessing **to all the nations** of the earth. This is why Paul can insist on one offspring, who is “Christ” (Gal 3:16: “the promises were made to Abraham and to his offspring ... referring to one …, who is Christ.”).
+22:17: Because Genesis as a whole is interested in tracing a single unique line of offspring that will eventually bring forth a special King who will rule over the Gentiles, the second half of the promise is taken to refer to a single **descendant** who will **overcome his enemies** and mediate blessing **to all the nations** of the earth. This is why Paul can insist on one offspring, who is “Christ” (Gal 3:16: “the promises were made to Abraham and to his offspring ... referring to one …, who is Christ.”).
 
 
 
@@ -3188,19 +3188,19 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 23:8: **Entreat for me**. Ephron is present when these discussions take place at the city gate (v. 10), Abraham first seeks permission from the Hittite population as a whole. This may have been necessary either because Abraham himself was not a Hittite or because the transfer of property from one individual to another required the involvement of a third party. (ESV)
 
-23:9: **For the full price**. In v.6 the implication probably was that Abraham could take anything for free. In v. 11 that’s what Ephron actually offers: take it. For free. It’s yours.
+23:9: **For the full price**. In v.6 the implication probably was that Abraham could take anything for free. In v. 11 that’s what Ephron actually offers: take it. For free. It’s yours.
 
 23:10: **The Gate**. Where the rulers gathered and where decisions were made.
 
 23:12: **Bowed dows before the people**. Abraham is held in great esteem, which can be seen by his title (Elohim nesi, God’s prince), and by the fact that Ephron offers his property for free.
 
-23:15: **Four hundred**. Since the weight of a shekel could vary, it is impossible to be certain about the precise value of the field and cave. It is often suggested, on the basis of comparisons with 1 Kings 16:24 and Jer. 32:9, that this was a high price to pay, but one cannot be sure.  (ESV)
+23:15: **Four hundred**. Since the weight of a shekel could vary, it is impossible to be certain about the precise value of the field and cave. It is often suggested, on the basis of comparisons with 1 Kings 16:24 and Jer. 32:9, that this was a high price to pay, but one cannot be sure.  (ESV)
 
 23:17: **Land**. By acquiring this plot of land, Abraham not only establishes future rights to it for his family but puts down a marker that his descendants are to be associated with the land of Canaan, as God had already promised (ESV)
 
 23:18: **In the presence of the Hittites, before all**. The author has dedicated the whole chapter to an episode where a certain field was legally transferred to Abraham in the presence of many people. This must have been some important patch of land for the author to pay so much attention to it. Perhaps, that is because it is the first patch of land that he legally obtains; the first step of how God’s promise begins to get fulfilled? Or was the whole episode was probably penned to emphasize the legality of Israel’s possession of that land.
 
-23:19: According to tradition, **the cave of Machpelah** is located beneath the present Mosque of Abraham in Hebron. (ESV)
+23:19: According to tradition, **the cave of Machpelah** is located beneath the present Mosque of Abraham in Hebron. (ESV)
 
 23:20: **Made over to Abraham as a property**. Abraham’s purchase of the field and cave meant that his descendants would own this land in perpetuity. Abraham, Isaac, Jacob, Rebekah, and Leah would later be laid to rest in this cave. (ESV)
 
@@ -3245,7 +3245,7 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24:9: **Under the thigh**. By undertaking this action, the servant binds himself to obey Abraham’s request. (ESV)
 
-24:10: **Nahor** is also the name of Terah’s father (Gen 11:25) and Abraham’s brother (Gen 11:26–27; 22:20). The use of the same name for both a city and a person is not unusual; settlements are sometimes named after people, and people are sometimes named after places. (ESV)
+24:10: **Nahor** is also the name of Terah’s father (Gen 11:25) and Abraham’s brother (Gen 11:26–27; 22:20). The use of the same name for both a city and a person is not unusual; settlements are sometimes named after people, and people are sometimes named after places. (ESV)
 
 24:14: The servant (like Abraham) has faith in the Lord and prays for guidance. The specific request is not the ordinary way to ask for guidance: the servant might better have asked for wisdom to discern the best wife for Isaac rather than to probe into what God had providentially appointed. Nevertheless, God graciously honors the request (cf. Gideon’s fleece, Judg. 6:36–40) as his means of directing events. (ESV)
 
@@ -3299,9 +3299,9 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 25:2: **Midian**. Moses will kill an Egyptian and come to live in the land of the **Midianites**, where he will be in exile for 40 years.
 
-25:5-6: **Abraham gave all he had to Isaac**, but he **sent away** all his other sons, including the firstborn. 
+25:5-6: **Abraham gave all he had to Isaac**, but he **sent away** all his other sons, including the firstborn. 
 
-25:8: **Abraham died** when Isaac was 75 years old. (ESV)
+25:8: **Abraham died** when Isaac was 75 years old. (ESV)
 
 25:8: **Gathered to his people**. Indicates that even in the OT people’s spirits did not disappear, but were gathered together somewhere.
 
@@ -3344,9 +3344,9 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 25:26: The motif of deception appears in a number of episodes associated with **Jacob**. (ESV)
 
-25:31: While **Jacob** may be criticized for exploiting his brother in a moment of weakness, **Esau** is indifferent toward his **firstborn** status. (ESV)
+25:31: While **Jacob** may be criticized for exploiting his brother in a moment of weakness, **Esau** is indifferent toward his **firstborn** status. (ESV)
 
-25:34: Because of **Esau despising** his birthright, Heb 12:16 describe him as “unholy” (“sexually immoral or unholy like Esau, who sold his birthright for a single meal”).
+25:34: Because of **Esau despising** his birthright, Heb 12:16 describe him as “unholy” (“sexually immoral or unholy like Esau, who sold his birthright for a single meal”).
 
 
 
@@ -3369,7 +3369,7 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### God's Promise to Isaac
 
-26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. **Isaac**, however, is stopped by God and instructed to remain in **Gerar** while he was already moving south. (ESV)
+26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. **Isaac**, however, is stopped by God and instructed to remain in **Gerar** while he was already moving south. (ESV)
 
 26:1: **Abimelech**. It may be the same king mentioned in chs. 20-21; it is perhaps more likely that he is the son or grandson of the Abimelech known to Abraham. However, in v.26 we see that the name of the commander of the army is still Phicol, as in 21:22; this makes it likely that it actually is the very same king. (ESV)
 
@@ -3406,28 +3406,28 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 26:8: **Looked out of a window**. Unlike Abraham’s story, no one has taken Rebekah as wife.
 
-26:8: **saw Isaac laughing with Rebekah**. In this context the Hebrew verb “**to laugh**” implies **laughing** as they caress affectionately. The narrator deliberately chooses this verb to create a play on the name “Isaac,” which means “he laughs.” (ESV)
+26:8: **saw Isaac laughing with Rebekah**. In this context the Hebrew verb “**to laugh**” implies **laughing** as they caress affectionately. The narrator deliberately chooses this verb to create a play on the name “Isaac,” which means “he laughs.” (ESV)
 
 26:13: **became rich**. Because of the Lord’s blessing. (ESV)
 
-26:15: The Philistines may have **closed up the wells** to discourage seminomadic herdsmen from grazing their livestock in this region. (ESV)
+26:15: The Philistines may have **closed up the wells** to discourage seminomadic herdsmen from grazing their livestock in this region. (ESV)
 
 26:20: **Quarreled**. Since water was a vital commodity in this arid region, disputes over the ownership of wells were common. (ESV)
 
-26:22: **Isaac** was **moving** away from any land that brought contention and strife, until he found a place where no one challenged him. Isaac exhibits a peaceful spirit: he is willing to give up and start anew.
+26:22: **Isaac** was **moving** away from any land that brought contention and strife, until he found a place where no one challenged him. Isaac exhibits a peaceful spirit: he is willing to give up and start anew.
 
 26:24: **The Lord appeared**. Isaac experienced God’s presence.
 
-26:26: **Phicol** could be the name of the very same person, or, alternatively, “Phicol” could be a family name or title and here refer to someone else. (ESV)
+26:26: **Phicol** could be the name of the very same person, or, alternatively, “Phicol” could be a family name or title and here refer to someone else. (ESV)
 
-26:28: **Abimelech** makes the very same **covenant** with Isaac that he had made with Abraham, at the very same place (Beersheba), and for the very same reason: **the Lord has been with you**. The desire to make a peaceful covenant arises from a change of heart by Abimelech, who now acknowledges the Lord’s presence with Isaac. 
+26:28: **Abimelech** makes the very same **covenant** with Isaac that he had made with Abraham, at the very same place (Beersheba), and for the very same reason: **the Lord has been with you**. The desire to make a peaceful covenant arises from a change of heart by Abimelech, who now acknowledges the Lord’s presence with Isaac. 
 The covenant seems to become a covenant between nations.
 
 26:29: **You are now the blessed of the Lord**. The blessed, the one on earth. Just like his father had been.
 
 26:33: **Beersheba**. The word had already been used in v. 23, and had been used before in the Abraham’s story, which indicates that the author is well aware of anachronisms he intentionally inserts for clarity.
 
-26:34: **Esau** chose two wives, not one. Apparently, he did not choose wisely either. Both of the are of the Hittite origin, which may indicate ungodliness. (ESV)
+26:34: **Esau** chose two wives, not one. Apparently, he did not choose wisely either. Both of the are of the Hittite origin, which may indicate ungodliness. (ESV)
 
 
 
@@ -3765,7 +3765,7 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:15: **In exchange for your son's mandrakes**.  Unfortunately, no explanation is given as to why Rachel is so eager to have these mandrakes; the context suggests that she may have viewed the plant as increasing female fertility. This and other proposals, however, must be treated with caution. (ESV)
 
-30:15: **Пусть Иаков ляжет с тобой сегодня ночью**. Надо заметить, Иаков очень послушный муж. (МЦЦ)
+30:15: **Пусть Иаков ляжет с тобой сегодня ночью**. Надо заметить, Иаков очень послушный муж. (МЦЦ)
 
 30:16: **You must come in to me, for I have hired you**. It's been a long while that Jacob slept with her. Leah was still unloved, and judging by the desperate actions, she clearly suffered from it.
 
@@ -4117,7 +4117,7 @@ How did he understand that? Well, he has recently prayed, fervently. His heart a
 
 32:28: **no longer Jacob, but Israel**. He is not a deceiver anymore. He's changed. By God's grace, and work.
 
-32:28: **Ибо ты боролся с Богом, и человеков одолевать будешь**. Ободрение для Иакова в преддверии встречи с братом. 
+32:28: **Ибо ты боролся с Богом, и человеков одолевать будешь**. Ободрение для Иакова в преддверии встречи с братом. 
 
 32:29: **на что ты спрашиваешь о имени Моем?**. Держись, говорит, в назначенных тебе пределах и не преступай меры. Ты хочешь получить от Меня благословение? Вот Я даю тебе благословение. (Свт. Иоанн Златоуст)
 
@@ -4308,7 +4308,7 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 34:25: **Killed all the males**. This act of theirs has influenced the prophecy Jacob will say on them: "Cursed be their anger, for it is fierce, and their wrath, for it is cruel! I will divide them in Jacob and scatter them in Israel." (Gen 49:7)
 
-34:26: **Убили мечом**. В книге Иудифь (Иудифь 9:2-3) избиение сихемлян и разграбление их города представляется делом суда Божья над первыми за насилие Дине: "Го­с­по­ди Боже отца моего Симеона, которому Ты дал в руку меч на отмще­ние иноплемен­ным ... Ты сказал: да не будет сего, а они сделали. И за то Ты пред­ал князей их на убие­ние... по­раз­ил рабов подле владетелей и владетелей на тронах их, и отдал жен их в расхище­ние, дочерей их в плен и всю добычу в раз­дел сынам, воз­люблен­ным Тобою, которые воз­ревновали Твоею ревностью". Это толкование в корне противоречит словам Иакова же в Быт 49:7: "проклят гнев их, ибо жесток, и ярость их, ибо свирепа".
+34:26: **Убили мечом**. В книге Иудифь (Иудифь 9:2-3) избиение сихемлян и разграбление их города представляется делом суда Божья над первыми за насилие Дине: "Го­с­по­ди Боже отца моего Симеона, которому Ты дал в руку меч на отмще­ние иноплемен­ным ... Ты сказал: да не будет сего, а они сделали. И за то Ты пред­ал князей их на убие­ние... по­раз­ил рабов подле владетелей и владетелей на тронах их, и отдал жен их в расхище­ние, дочерей их в плен и всю добычу в раз­дел сынам, воз­люблен­ным Тобою, которые воз­ревновали Твоею ревностью". Это толкование в корне противоречит словам Иакова же в Быт 49:7: "проклят гнев их, ибо жесток, и ярость их, ибо свирепа".
 
 34:27: **The sons of Jacob** may refer to more than the original pair of Simeon and Levi whose initiative that was.
 
@@ -4402,7 +4402,7 @@ That's how love works.
 
 35:4: **Закопал их Иаков под дубом**. Иаков закапывает эти предметы в землю (по иуд. преданию — тайно, чтобы никто не извлек их обратно). (Лопухин А.П.)
 
-35:4: **Под теревинфом** (вместо под дубом). Терпентинное дерево по долговечности способно для приметы мест. Место сие после уважаемо было Израильтянами (Нав. 24:26: "И вписал Иисус слова сии в книгу закона Божия, и взял большой камень и положил его там под дубом, который подле святилища Господня.", Суд. 9:6: "И собрались все жители Сихемские и весь дом Милло, и пошли и поставили царем Авимелеха у дуба, что близ Сихема."). (Свт. Филарет (Дроздов))
+35:4: **Под теревинфом** (вместо под дубом). Терпентинное дерево по долговечности способно для приметы мест. Место сие после уважаемо было Израильтянами (Нав. 24:26: "И вписал Иисус слова сии в книгу закона Божия, и взял большой камень и положил его там под дубом, который подле святилища Господня.", Суд. 9:6: "И собрались все жители Сихемские и весь дом Милло, и пошли и поставили царем Авимелеха у дуба, что близ Сихема."). (Свт. Филарет (Дроздов))
 
 35:4: **под дубом, который близ Сихема**. Судя по всему, дуб пользовался известностью  (Быт. 12:6; Нав. 24:26; Суд. 9:6). (Лопухин А.П.)
 
@@ -5457,7 +5457,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 ### Joseph Provides for His Brothers and Family
 
-45:1: **открылся братьям своим**. Примирение Иосифа и братьев — это история превращения семьи Иакова в Израиль. Там , где было соперничество, вражда, хитрость и обман, теперь единство. 
+45:1: **открылся братьям своим**. Примирение Иосифа и братьев — это история превращения семьи Иакова в Израиль. Там , где было соперничество, вражда, хитрость и обман, теперь единство. 
 Зачем это всё было? Потому что в том виде, в каком была эта семья, они не смогли бы стать Израилем. В них нужно было многое поменять. Потому что Бог делает что-либо для того, чтобы мы обрели будущность и надежду (Иер 29:11-13) (МЦЦ)
 
 45:1: **could not control himself**. Moved by Judah’s speech, Joseph is unable to restrain his emotions. (ESV)
