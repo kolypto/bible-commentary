@@ -2587,6 +2587,11 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 14:20: **Аврам дал ему десятую часть из всего**. Аврам, принявший благословение от Мелхиседека, этим самым признал в нем особого посредника между собою и Богом, способного низвести на него божественное благословение. (Лопухин А.П.)
 
+14:21: **отдай мне людей, а имение возьми себе**. Царь Содомский не требует возвращения своего имения; но как милости просит только того, чтобы ему отданы были его подданные, бывшие в плену. (Свт. Филарет (Дроздов)) 
+
+14:22: **поднимаю руку мою**. Древний обряд клятвы (Втор. 32:40; Дан. 12:7; Откр. 10:5). Поднятием руки к небу выражается чувствование присутствия Божия и призывание Бога во свидетеля.
+Подобная форма сохраняется в присяге и доселе. (Свт. Филарет (Дроздов); Лопухин А.П.)
+
 14:23: **lest you should say, 'I have made Abram rich'**. Abram affirms that he is depending on God and not on human kings or their gifts in order to become a “great nation” and acquire a great name. (ESV)
 
 14:23: **lest you should say, 'I have made Abram rich'**. If ABram acceeded to the king of Sodom's request, he would have distorted the clear testimony of the Lord's blessing on his life. To accept such payment would belie his trust in God. (MacArthur)
