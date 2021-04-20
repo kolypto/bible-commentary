@@ -2617,21 +2617,33 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### God’s Covenant with Abram
 
-15:1: **After these things.** **Abram** rejected the offer from the king of Sodom for the victory spoils as a reward. In response, God now states that Abram’s reward shall be very great. By rejecting the use of human wealth to achieve greatness, Abram demonstrates his willingness to wait for God to provide. (ESV)
+15:1: **Your reward shall be very great**. Abram rejected the offer from the king of Sodom for the victory spoils as a reward. In response, God now states that Abram’s reward shall be very great. By rejecting the use of human wealth to achieve greatness, Abram demonstrates his willingness to wait for God to provide. (ESV)
 
-15:2: **Eliezer** (means, God is help) is a trusted member of Abram’s household, possibly a slave, who came from **Damascus**. (ESV)
+15:2: **I go childless**. In response to God's encouragement, Abram showed what nagged him. (MacArthur)
 
-15:6: Faith in God entails trust in or confident reliance on God, based on the truthfulness of his words, and it will lead to obeying his commands. A person’s faith, or lack of it, is most apparent in crises such as Abram was facing. **He believed God** would give him a son despite many years of childlessness. (ESV)
+15:2: **What will You give me?**. The question became an accusation. (MacArthur)
 
-15:6: “**Righteousness**” is the fundamental OT virtue characterized by a godly life lived in conformity with the law. It is the righteous who enjoy God’s favor. Abram has proved himself righteous by his deeds, he is counted (that is, regarded) as righteous because of his faith. (ESV)
+15:2: **Eliezer of Damscus** (means, God is help) is a trusted member of Abram’s household, possibly a slave, who came from Damascus. (ESV)
 
-15:10: This is possibly a type of oath that makes a party who breaks it like one of those dead animals (Jer 34:18-19: “the men who transgressed ... I will make them like the calf that they cut in two and passed between its parts”). In this case, it is God Who’s giving the deadly oath. (ESV)
+15:6: **he believed the Lord**. Faith in God entails trust in or confident reliance on God, based on the truthfulness of his words, and it will lead to obeying his commands. A person’s faith, or lack of it, is most apparent in crises such as Abram was facing. Abram believed that God would give him a son — despite many years of childlessness. (ESV)
 
-15:10: Another interpretation is that the sacrificial animals symbolize Abram’s descendants (all of Israel), the “birds of prey” signify their enemies (unclean nations), and the “fire pot” and “torch” represent God’s presence. (ESV)
+15:6: **righteousness**. Righteousness is the fundamental Old Testament virtue characterized by a godly life lived in conformity with the law. It is the righteous who enjoy God’s favor. 
+Abram has proved himself righteous by his deeds, he is counted (that is, regarded) as righteous because of his faith. 
+(ESV)
 
-15:16: **Amorites** were the descendants of Ham (Gen 10:16). The Amorites will be dispossessed of their land as an act of divine punishment. At that time, their accumulated iniquity will be so great that God will no longer tolerate their presence in the land. (ESV)
+15:8: **how am I to know that I shall possess it?**. Not a veiled accusation, but a genuine request for information and assurance.
+In response, God affirmed His promise with a remarkable ceremony where God gives a deadly oath that He will do what He promised.
+(MacArthur)
 
-15:18: God unconditionally pledges that Abram’s offspring will possess this land. (ESV)
+15:10: **cut them in half**. This is possibly a type of oath that makes a party who breaks it like one of those dead animals (Jer 34:18-19: “the men who transgressed ... I will make them like the calf that they cut in two and passed between its parts”). In this case, it is God who’s giving the deadly oath. (ESV)
+
+15:10: **cut them in half**. Another interpretation is that the sacrificial animals symbolize Abram’s descendants (all of Israel), the “birds of prey” signify their enemies (unclean nations), and the “fire pot” and “torch” represent God’s presence. (ESV)
+
+15:16: **the iniquity of Amorites**. Amorites were the descendants of Ham (Gen 10:16). The Amorites will be dispossessed of their land as an act of divine punishment. At that time, their accumulated iniquity will be so great that God will no longer tolerate their presence in the land. (ESV)
+
+15:17: **smoking oven .. burning torch**. These items symbolized the presence of God. (MacArthur)
+
+15:18: **To your offspring I give this land**. God unconditionally pledges that Abram’s offspring will possess this land. (ESV)
 
 
 
