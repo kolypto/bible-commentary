@@ -2617,6 +2617,12 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 ### God’s Covenant with Abram
 
+15:1: **После сих происшествий**. Авраам не искал вознаграждения от человека, поэтому получил его от Бога. Господь не медлит с наградой, быстро обещает и щедро одаряет, чтобы из-за промедления не овладело слабыми душами раскаяние, что они презрели настоящее. Он вознаграждает с такой щедростью, которая словно приносит еще и прибыль, чтобы обильно воздать тому, кто не соблазнился предложением видимого. (Свт. Амвросий Медиоланский)
+
+15:1: **было слово Господа к Авраму**. После трех кратких и единочастных откровений Бог дарует Авраму четвертое, продолжительное и многочастное. Оно продолжается две ночи (Быт. 15:5, 12). Аврам слышит глас Божий; видит чувственные знамения присутствия Его; беседует и ходит с ним. (Свт. Филарет (Дроздов))
+
+15:1: **Не бойся, Аврам; Я твой щит**. Чего Аврам мог бояться? Он мог бояться опасности от врагов: оправившись от поражения и испуга, они могли предпринять новый поход в Ханаанскую землю и напасть на Аврама. Он мог бояться также зависти своих соседей и союзников к его военному успеху и возрастающему благосостоянию. (Еп. Виссарион (Нечаев))
+
 15:1: **Your reward shall be very great**. Abram rejected the offer from the king of Sodom for the victory spoils as a reward. In response, God now states that Abram’s reward shall be very great. By rejecting the use of human wealth to achieve greatness, Abram demonstrates his willingness to wait for God to provide. (ESV)
 
 15:2: **I go childless**. In response to God's encouragement, Abram showed what nagged him. (MacArthur)
@@ -2630,6 +2636,8 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 15:6: **righteousness**. Righteousness is the fundamental Old Testament virtue characterized by a godly life lived in conformity with the law. It is the righteous who enjoy God’s favor. 
 Abram has proved himself righteous by his deeds, he is counted (that is, regarded) as righteous because of his faith. 
 (ESV)
+
+15:6: **Аврам поверил Господу**. Поскольку поверил он неудобоисполнимому, чему не всякий человек мог поверить, то вменилось ему это в правду. (Прп. Ефрем Сирин)
 
 15:8: **how am I to know that I shall possess it?**. Not a veiled accusation, but a genuine request for information and assurance.
 In response, God affirmed His promise with a remarkable ceremony where God gives a deadly oath that He will do what He promised.
