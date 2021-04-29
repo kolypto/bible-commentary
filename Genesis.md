@@ -2743,33 +2743,33 @@ In response, God affirmed His promise with a remarkable ceremony where God gives
 
 ### Sarai and Hagar
 
-16:1: Years and years have passed after God has first promised Abram **children**, and 11 years have passed after Abram settled in Canaan, and Sarai was unable to bear any children to Abram. No doubt, they have tried, but she was barren (Gen 11:30). Abram’s confidence must have faded, because everything looked like it was impossible to have children with her. Especially after all these years. Especially considering their age. Impossible.
+16:1: Years and years have passed after God has first promised Abram children, and 11 years have passed after Abram settled in Canaan, and Sarai was unable to bear any children to Abram. No doubt, they have tried, but she was barren (Gen 11:30). Abram’s confidence must have faded, because everything looked like it was impossible to have children with her. Especially after all these years. Especially considering their age. Impossible.
 
-16:2: Even though it was **The Lord** Who has promised **children** to Abram, Sarai emphasized that it was the same **Lord** Who **prevented her from bearing children**. She either was bitter with the Lord and so blamed Him with being unable to deliver His promise, or she thought that they are to achieve the promise by themselves. Either way, that was a lack of faith. 
+16:2: Even though it was The Lord Who has promised children to Abram, Sarai emphasized that it was the same Lord Who prevented her from bearing children. She either was bitter with the Lord and so blamed Him with being unable to deliver His promise, or she thought that they are to achieve the promise by themselves. Either way, that was a lack of faith. 
 
-16:2: **Abram** had previously refused to pursue God’s promises by his own means: he did not think that the promised land is his anyway and so he’s free to take it by force; He had waited on the Lord to deliver the land to him. But when it came to **children**, he didn’t trust the Lord anymore and **listened to the voice** of his wife.
+16:2: Abram had previously refused to pursue God’s promises by his own means: he did not think that the promised land is his anyway and so he’s free to take it by force; He had waited on the Lord to deliver the land to him. But when it came to children, he didn’t trust the Lord anymore and listened to the voice of his wife.
 
-16:2: **Bearing a child** on behalf of a barren woman was a custom mentioned in other ancient Near Eastern texts. (ESV)
+16:2: Bearing a child on behalf of a barren woman was a custom mentioned in other ancient Near Eastern texts. (ESV)
 
-16:3: Hagar’s status within Abram’s household is changed from servant to **wife**, although this does not place her on a par with Sarai (see note on 25:5–6). While the OT records occasions when particular individuals have more than one wife, such instances are almost always fraught with complications and difficulties. (ESV)
+16:3: Hagar’s status within Abram’s household is changed from servant to wife, although this does not place her on a par with Sarai (see note on 25:5–6). While the OT records occasions when particular individuals have more than one wife, such instances are almost always fraught with complications and difficulties. (ESV)
 
-16:4: **Hagar’s** ability to conceive causes her to **look down on** Sarai. (ESV)
+16:4: Hagar’s ability to conceive causes her to look down on Sarai. (ESV)
 
-16:5: **Sarai** initially directs her anger at **Abram**, who acquiesces in the situation, permitting Sarai to deal **harshly** with Hagar. The human solution to Sarai’s barrenness creates new problems. (ESV)
+16:5: Sarai initially directs her anger at Abram, who acquiesces in the situation, permitting Sarai to deal harshly with Hagar. The human solution to Sarai’s barrenness creates new problems. (ESV)
 
 16:5: It is clear from this episode that trying to achieve God’s will by human means leads to problems, not to blessedness. God will do His will in His time; not in our time.
 
 16:7: Hagar’s flight takes her in the direction of Egypt, her homeland. (ESV)
 
-16:7: By sending an **angel-messenger**, the Lord persuades Hagar to return, probably thus leading Abram to think that the child soon to be born, Ishmael, might indeed be the promised son (Gen 16:7: “Abraham said to God, “Oh that Ishmael might live before you!””) (ESV).
+16:7: By sending an angel-messenger, the Lord persuades Hagar to return, probably thus leading Abram to think that the child soon to be born, Ishmael, might indeed be the promised son (Gen 16:7: “Abraham said to God, “Oh that Ishmael might live before you!””) (ESV).
 
 16:7: Theologically, this episode emphasizes the hearing and seeing nature of God, and his mercy. (ESV)
 
-16:9: Hagar is commanded by God to transform her attitude toward her **mistress**, Sarai; instead of despising her, she is to **submit to her** authority. (ESV)
+16:9: Hagar is commanded by God to transform her attitude toward her mistress, Sarai; instead of despising her, she is to submit to her authority. (ESV)
 
-16:10: God gives **Hagar** the very same promise He has given to Abram: **offspring** so numerous that **they cannot be numbered**.
+16:10: God gives Hagar the very same promise He has given to Abram: offspring so numerous that they cannot be numbered.
 
-16:15: By naming **Ishmael**, **Abram** publicly acknowledges him as his son and heir. (ESV)
+16:15: By naming Ishmael, Abram publicly acknowledges him as his son and heir. (ESV)
 
 16:16: Ishmael is born 11 years after Abram settled in the land of Canaan (ESV)
 
