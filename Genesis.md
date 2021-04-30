@@ -2745,11 +2745,25 @@ In response, God affirmed His promise with a remarkable ceremony where God gives
 
 16:1: **Sarai .. had borne him no children**. No doubt, they have tried, but she was barren (Gen 11:30). Abram’s confidence must have faded, because everything looked like it was impossible to have children with her. Especially after all these years. Especially considering their age. Impossible.
 
-16:2: **the Lord has prevented me**. Even though it was The Lord Who has promised children to Abram, Sarai emphasized that it was the same Lord Who prevented her from bearing children. She either was bitter with the Lord and so blamed Him with being unable to deliver His promise, or she thought that they are to achieve the promise by themselves. Either way, that was a lack of faith. 
+16:1: **Сара не рождала ему**. Подумай же теперь о великой воздержности и необычайной кротости праотца. Не возненавидел он своей жены за бесчадие ее, как делают некоторые неразумные, и не уменьшил к ней своей любви. Вы знаете, как это именно (то есть бесчадие) для весьма многих людей бывает причиною их презрения к женам, что есть легкомысленность и безрассудство: ведь сожитие само по себе не может вести к рождению детей, если не будет содействовать вышняя рука и возбуждать естество к рождению. (Свт. Иоанн Златоуст)
+
+16:1: **Египтянка**. Рабыня была из числа тех, которых отдал Саре фараон, когда подвергся за нее отмщению от Бога. (Свт. Иоанн Златоуст)
+
+16:2: **the Lord has prevented me**. Even though it was The Lord Who has promised children to Abram, Sarai emphasized that it was the same Lord Who prevented her from bearing children. She either was bitter with the Lord and so blamed Him with being unable to deliver His promise, or she thought that they are to achieve the promise by themselves. Either way, that was a lack of faith.
+
+16:2: **войди же к служанке моей**. А может быть, Сара подозревала, что не в ней одной, но и в муже была причина бесчадия, почему, желая на самом деле в том удостовериться, и узнать, себе ли одной она должна приписывать бесчадие, она уступает свое место рабыне и приводит ее на свое ложе. (Свт. Иоанн Златоуст)
+
+16:2: **войди же к служанке моей**. Заботясь о своём неплодстве, она, по–видимому, не обращает внимания на благодатное обетование, и при этом склоняет своего супруга к многожёнству. Возможно, она мыслила так: "Авраму открыто ясно, что его наследник произойдет из него, но о мне сего не сказано; не так ли уже судил Бог, чтобы я навсегда осталась неплодною? Итак, если я на себе не могу исполнить обетований Божиих, я посодействую их исполнению и дам ему другую супругу. А  дабы мне самой чрез сие не быть отсеченною от рода обетования, то я употреблю для сего рабыню, над коею имею право жизни и смерти и коей детей тем беспрекословнее могу соделать моими." (Свт. Филарет (Дроздов))
+
+16:2: **I shall obtain children by her**. Bearing a child on behalf of a barren woman was a custom mentioned in other ancient Near Eastern texts. (ESV)
+
+16:2: **может быть, я буду иметь детей от нее**. Через это и сам поступок Сары становится гораздо понятнее: очевидно, она здесь основывает свои надежды на том обычном праве той эпохи, в силу которого дети мужа, рожденные от служанки, считались законными его детьми и, следовательно, равно принадлежали обоим супругам, т. е. как мужу, так и жене. (Лопухин А.П.)
 
 16:2: **Abram listened to the voice of Sarai**. Abram had previously refused to pursue God’s promises by his own means: he did not think that the promised land is his anyway and so he’s free to take it by force; He had waited on the Lord to deliver the land to him. But when it came to children, he didn’t trust the Lord anymore and listened to the voice of his wife.
 
-16:2: **I shall obtain children by her**. Bearing a child on behalf of a barren woman was a custom mentioned in other ancient Near Eastern texts. (ESV)
+16:2: **Аврам послушался слов Сары**. Хотя в поступке Аврама и было допущено нарушение чистоты брачного союза (Быт. 2:22), но извинением для него служило, во-первых, то, что он сделал это не по собственной страсти, а из послушания жене, и во-вторых, то, что при совершении сего поступка преследовал не личные, низменные интересы, а высшие, теократические цели. (Лопухин А.П.)
+
+16:3: **по истечении десяти лет**. Сие число лет замечается здесь как такое время, в которое Аврам, начиная от первого Божия откровения, тщетно ждал разрешения неплодства Сары. (Свт. Филарет (Дроздов))
 
 16:3: **gave her to her husband**. Abram, ignoring divine reaction and assurance in response to his earlier attempt to appoint an heir (Gen 15:2: "I continue childless, and the heir of my house is Eliezer of Damascus"), sinfully yielded to Sarai's insistence, and Ishmael was born. (MacArthur)
 
@@ -2763,7 +2777,13 @@ In response, God affirmed His promise with a remarkable ceremony where God gives
 
 16:5: **May wrong be upon you!**. Sarai blamed Abram for her trouble; Abram transferred his responsibility to Sarai, giving her freedom to act as she wished. Sarai treated Hagar so badly that she left. (MacArthur)
 
+16:5: **в обиде моей ты виновен**. За оскорбление, сделанное супруге в доме, отвечает супруг как естественный защитник ее и блюститель порядка семейственного. (Свт. Филарет (Дроздов))
+
+16:5: **в обиде моей ты виновен**. «Я передала её тебе, но ты, видя как она стала дерзкою и надменною, должен был укротить её и наказать за причинённые мне обиды, а ты этого не сделал. Помысли, на какой поступок я решилась для твоего утешения, желая чтобы, хотя бы в старости, назвался ты отцом; а ты не вознаградил меня за внимание, какое я показала к тебе». "Господь пусть будет судьею между мною и между тобою" — говорит огорчённая душа. (Свт. Иоанн Златоуст)
+
 16:5: **she looked on me with contempt**. It is clear from this episode that trying to achieve God’s will by human means leads to problems, not to blessedness. God will do His will in His time; not in our time.
+
+16:5: **стала презирать меня**. Сара наказана за свое нетерпение; она сама предложила мужу свою служанку, чтобы скорей исполнилось обетование, а теперь чувствует, что в доме восстает новая хозяйка. Но, не рассчитав последствий своего действия, она во всем обвиняет теперь Аврама. (Властов)
 
 16:7: **on the way to Shur**. Hagar’s flight takes her in the direction of Egypt, her homeland. (ESV)
 
