@@ -2785,6 +2785,8 @@ In response, God affirmed His promise with a remarkable ceremony where God gives
 
 16:5: **стала презирать меня**. Сара наказана за свое нетерпение; она сама предложила мужу свою служанку, чтобы скорей исполнилось обетование, а теперь чувствует, что в доме восстает новая хозяйка. Но, не рассчитав последствий своего действия, она во всем обвиняет теперь Аврама. (Властов)
 
+16:6: **вот, служанка твоя в твоих руках**. В буквальном смысле слова патриарха говорят о бесстрастии, поскольку он принял служанку от жены, не стремясь к наслаждению, и теперь уступает первую ей и отказывается, когда последняя так желает. (Дидим Слепец)
+
 16:7: **on the way to Shur**. Hagar’s flight takes her in the direction of Egypt, her homeland. (ESV)
 
 16:7: **The angel of the Lord**. This special individual spoke as though He were distinct from Yahweh, yet also spoke in the first person as though He were indeed to be identified as Yahweh Himself.
@@ -2792,12 +2794,33 @@ Hagar, in seeing this angel, believed she had seen God (v. 13). Others had the s
 The Angel of the Lord, who does not appear after the birth of Christ, is often identified as the preincarnate Christ. See note on Ex 3:2.
 (MacArthur)
 
+16:7: **Ангел Господень**. Некоторые (Августин, Ориген, Иероним, Гофман, Баумгартен, Толлюк, Делич, Куртц) считают, что "Ангел Господень" есть обычное тварное существо, хотя и высшее в чине Ангелов. Утверждения:
+1. термин «ангел» обычно означает собой класс духовно-тварных существ (Быт. 19:1; Быт. 22:12; Иов. 4:18; Пс. 90:11 и др.)
+2. в Новом Завете αγγελος Κυριου (ангел Господень) (Мф. 1:20; Лк. 2:9) постоянно называется тварный ангел;
+3. филологическое происхождение самого термина «ангел» указывает на его зависимое и подчиненное состояние (2 Цар. 24:16; Зах. 1:12) и
+4. наконец, самое откровение Бога под такой человекообразной формой не могло быть понятно тогда, т. е. до пришествия в мир Спасителя.
+Другие (Генстенберг, Кейль, Ланге, Геверник, Нитч, Эбрард, Элер, Баумгартен, Вордсворд, из русских: А. Глаголев, А. Лебедев, Ястребов и др.) считают, что под формой «Ангел Господень» происходили явления самого Бога, именно Логоса или Сына Божия. Утверждения:
+1. «Ангел Господень» ясно отождествляет сам Себя с Богом (Быт. 16:10), говоря от первого лица.
+2. те, кому Он является, обыкновенно принимают Его за самого Бога (Быт. 16:13; Быт. 18:23-33; Быт. 28:12-22; Исх. 3:6; Суд. 6:15, 20-23);
+3. библейские авторы постоянно говорят о Нем, как о Боге, приводя диалоги от первого лица (Быт. 16:13; Быт. 18:1; Быт. 22:16; Исх. 3:2 и др.);
+4. учение о множественности лиц в Божестве, на которое опирается этот взгляд, находится в согласии и с раннейшими намеками на него (Быт. 1:26; Быт. 11:7), и с позднейшими откровениями;
+5. органическое единство двух заветов требует, чтобы центральным пунктом их было одно и то же Лицо, именно Логос - Сын Божий, а не допускает того, чтобы в Ветхом Завете таким лицом было тварное существо - «Ангел Господень».
+Очевидно, что вторая точка зрения не выдерживает никакой критики.
+(Лопухин А.П.)
+
 16:7: **The angel of the Lord found her**. By sending an angel-messenger, the Lord persuades Hagar to return, probably thus leading Abram to think that the child soon to be born, Ishmael, might indeed be the promised son (Gen 17:18: “Abraham said to God, “Oh that Ishmael might live before you!”) (ESV).
+
+16:7: **я бегу от лица Сары, госпожи моей**. Ангел, назвав её "служанкой", напоминает ей, что даже если бы она много раз разделяла ложе со своим господином, всё же она должна признавать Сару своей госпожой. 
+Агарь в ответ не отрицает власти госпожи своей, Сарры, тоже называя её так. (Свт. Иоанн Златоуст)
+
+16:9: **возвратись к госпоже своей**. Ангел не осуждает открытым образом ни Агари, ни Сары, но только приводит в порядок их взаимные отношения. (Свт. Филарет (Дроздов))
 
 16:9: **and submit to her**. Hagar is commanded by God to transform her attitude toward her mistress, Sarai; instead of despising her, she is to submit to her authority. (ESV)
 
 16:10: **I will surely multiply your offspring**. God gives Hagar the very same promise He has given to Abram: offspring so numerous that they cannot be numbered.
 This may be the second reason why Abram thought that Ismael is indeed the promised son: his mother miraculously returned, and told a story with exactly the same words that Abram had heard.
+
+16:10: **умножу потомство твое**. Это пророчество о потомстве Агари через ее сына Измаила блестяще оправдалось в истории, именно на судьбе тех двенадцати кочевых племен, которые под общим именем измаильтян, а также агарян или сарацин, заняли большую часть Аравийской пустыни и неоднократно эмигрировали отсюда в Африку, Испанию, Персию и даже Индию. (Лопухин А.П.)
 
 16:12: **a wild man .. against every man**. The untameable desert onager (wild donkey) best described the fiercely aggressive and independent nature Ishmael would exhibit, along with his Arabic descendants. (MacArthur)
 
