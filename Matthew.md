@@ -3372,6 +3372,11 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 ### Chapter 13
 
+13:3: **одни во сто, другие в шестьдесят, третьи в тридцать**. Вера у людей бывает разной. У кого-то она не имеет корня и быстро засыхает. У других суета и заботы этой жизни заглушают росток веры, душат как сорняки. У кого-то из сердца веру похищает дьявол.
+Более того, даже у настоящих верующих семя веры может принести 30 плодов, у других - 60, и только у немногих все 100. ([Владимир Панарин](https://zen.yandex.ru/media/popbloger/feikovye-pravoslavnye-6079da4754617a67e753aaac))
+
+
+
 13:20-21: So it is possible to **receive** the word, even to have **joy** about it, and show all the signs of being on the right path … and yet prove to be the one who **falls away**.
 
 13:23: The seed is the same in every case, so the emphasis is on the different kinds of **soil**, which represents a human heart which can be receptive to the **word**.
