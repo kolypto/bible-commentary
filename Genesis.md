@@ -2861,31 +2861,55 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 
 ### Abraham and the Covenant of Circumcision
 
-17:1: **Ninety nine years old** is 13 after the birth of Ishmael. (v. 25: “Ishmael was 13 years old”)
-
-17:1: To **walk before God** and to **be blameless** is the invitation to a holy living, to a righteous life. 
+17:1: **Ninety nine years old**. This happens 13 years after the birth of Ishmael. (v. 25: “Ishmael was 13 years old”)
 
 17:1: **God Almighty** (Heb. *El Shaddai*). The second word highlights a particular attribute of God*; El Shadday* emphasizes God’s power, which in this context will enable Sarai to bear Abram a son. (ESV)
 
-17:1: Two closely related instructions are given to Abram, challenging him (1) **to walk before God**: to maintain an *ongoing* relationship with God; (2) **to be blameless**: to be faultless or perfect. (ESV)
+17:1: **walk before me and be blameless**. To "walk before God" and to "be blameless" is the invitation to a holy living, to a righteous life. 
 
-17:1: Unlike the covenant made in ch. 15, this covenant has a conditional dimension which explicitly  indicates that this covenant will benefit only those who walk before God and are blameless. (ESV)
+17:1: **walk before me and be blameless**. Two closely related instructions are given to Abram, challenging him (1) to maintain an *ongoing* relationship with God; (2) to be faultless or perfect. (ESV)
 
-17:2: Abram has already had his faith counted to him as righteousness; now, God is going to make a conditional covenant, based on righteousness.
+17:1: **walk before me and be blameless**. Unlike the covenant made in ch. 15, this covenant has a conditional dimension which explicitly indicates that this covenant will benefit only those who *walk before God and are blameless*. (ESV)
 
-17:3: **Abram falling on his face** is worship, but also a positive response to God offering a covenant.
+17:1: **be blameless**. Abram has already had his faith counted to him as righteousness; now, God is going to make a conditional covenant, based on righteousness.
 
-17:6: The promise of **making Abraham exceedingly fruitful** echoes the the divine blessing given at creation (1:28) and later repeated to Noah after the flood (9:1). Through this covenant the negative effects of the fall will ultimately be reversed; and in this, Abraham is another Adam, the beginning of something new. (ESV)
+17:3: **Abram fell on his face**. An act of worship, but also a positive response to God offering a covenant.
 
-17:10: **Circumcision** is not a Hebrew invention. For example, it was used in Egypt from very early periods as an act of ritual purity. (ESV)
+17:5: **Abraham**. Means "father of many nations". Abraham's new identity is based on God's promise of seed, and his new name reflects his new relationship to God (MacArthur)
 
-17:11: **Circumcision** is a mark that exists, but is not normally visible to others. (ESV)
+17:6: **make you exceedingly fruitful**. The promise echoes the divine blessing given at creation (1:28: "be fruitful and multiply") and later repeated to Noah after the flood (9:1: "be fruitful and multiply"). Through this covenant the negative effects of the fall will ultimately be reversed; and in this, Abraham is another Adam, the beginning of something new. (ESV)
 
-17:12: **Eight days**. It is of significant medical importance that male circumcision be carried out on the eighth day after birth since the level of vitamin K is highest on this day and vitamin K plays a pivotal role in regulation and control of the important clotting factors in the coagulation pathway that helps in stopping bleeding. The  Vitamin  K  and  Thrombocin  (which  is  a blood clotter) are the highest  in a  baby on his eighth day of life, and together with prothrombin, are essential  for  the function  of  several proteins  involved in blood coagulation. It is essential that circumcision is done on that very day. (Sokoto Journal of Medical Laboratory Science 2017; 2(3): 91 –  94 Original Research)
+17:7: **and your offspring**. The covenant applies to Abraham's posterity with equal force. "I will be their God" (v. 8). This pledge became the dictum of the covenant relationship between Yahweh and Israel. (MacArthur)
 
-17:12: Перевод.Про обрезание на 8-й день. Очень важно с медицинской точки зрения, чтобы обрезание было совершено именно на восьмом дне от рождения младенца, потому что именно в этот день содержание витамина K в крови достигает своего пика, а этот витамин играет важнейшую роль в свёртывании крови: процессе, который останавливает кровотечение. Ни до восьмого дня, ни после него, организм младенца не способен столь эффективно перенести обрезание, как именно в восьмой день. (Исследование, опубликованное в медицинском журнале Сокото, 2017 год)
+17:10: **shall be circumcised**. Circumcision is not a Hebrew invention. For example, it was used in Egypt from very early periods as an act of ritual purity. (ESV)
 
-17:14: **Cut off**. Circumcision distinguished those who believed in the importance of the divine promises to Abraham from those who did not. (ESV)
+17:10: **shall be circumcised**. Circumcision is a mark that exists, but is not normally visible to others. (ESV)
+
+17:10: **shall be circumcised**. Circumcision was not entirely new in this period of history, but the special religious and theocratic significance then applied to it was entirely new, thus identifying the circumcised as the lineage of Abraham. (MacArthur)
+
+17:10: **shall be circumcised**. There is also a health benefit: disease could be kept in the folds of the foreskin; removing it prevented that. Historically, Jewish women have had the lowest rate of cervical cancer. (MacArthur)
+
+17:10: **circumcised**. There is strong evidence that circumcision reduces the risk of men acquiring HIV infection in areas of the world with high rates of HIV. Circumcision is also associated with reduced rates of cancer-causing forms of human papillomavirus (HPV) and urinal tract infections. It also decreases the risk of cancer of the penis via effectively curing phimosis. Studies of other sexually transmitted infections also suggest that circumcision is protective.
+A 2017 systematic review found consistent evidence that male circumcision was associated with a decreased risk of cervical cancer, cervical dysplasia, HSV-2, chlamydia, and syphilis among women.
+The highest quality evidence indicates that circumcision does not decrease the sensitivity of the penis, harm sexual function or reduce sexual satisfaction.
+([Wiki](https://en.wikipedia.org/wiki/Circumcision))
+
+17:12: **eight days old**. It is of significant medical importance that male circumcision be carried out on the eighth day after birth since the level of vitamin K is highest on this day and vitamin K plays a pivotal role in regulation and control of the important clotting factors in the coagulation pathway that helps in stopping bleeding. The  Vitamin  K  and  Thrombocin  (which  is  a blood clotter) are the highest  in a  baby on his eighth day of life, and together with prothrombin, are essential  for  the function  of  several proteins  involved in blood coagulation. It is essential that circumcision is done on that very day. (Sokoto Journal of Medical Laboratory Science 2017; 2(3): 91 –  94 Original Research)
+
+17:12: **на восьмой день** (Перевод) Про обрезание на 8-й день. Очень важно с медицинской точки зрения, чтобы обрезание было совершено именно на восьмом дне от рождения младенца, потому что именно в этот день содержание витамина K в крови достигает своего пика, а этот витамин играет важнейшую роль в свёртывании крови: процессе, который останавливает кровотечение. Ни до восьмого дня, ни после него, организм младенца не способен столь эффективно перенести обрезание, как именно в восьмой день. (Исследование, опубликованное в медицинском журнале Сокото, 2017 год)
+
+17:14: **cut off from his people**. Circumcision distinguished those who believed in the importance of the divine promises to Abraham from those who did not. (ESV)
+
+
+
+
+
+
+
+
+
+
+### Isaac’s Birth Promised
 
 17:17: **Abraham laughed**. His wife has been barren his whole life. It was quite natural for Abraham to laugh at the thought of them having a child.
 
