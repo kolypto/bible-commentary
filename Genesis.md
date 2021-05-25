@@ -2865,6 +2865,8 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 
 17:1: **God Almighty** (Heb. *El Shaddai*). The second word highlights a particular attribute of God*; El Shadday* emphasizes God’s power, which in this context will enable Sarai to bear Abram a son. (ESV)
 
+17:1: **Я Бог всемогущий**. Указанием на свое всемогущество Бог приготовляет Аврама к последующему затем повелению и обетованию, дабы сей не сомневался в возможности как получить обетование от руки Его, так равно исполнить повеление с Его помощью. Даже некоторым образом упрекает Аврама, который искал естественных средств к исполнению обетования Его. (Свт. Филарет (Дроздов))
+
 17:1: **walk before me and be blameless**. To "walk before God" and to "be blameless" is the invitation to a holy living, to a righteous life. 
 
 17:1: **walk before me and be blameless**. Two closely related instructions are given to Abram, challenging him (1) to maintain an *ongoing* relationship with God; (2) to be faultless or perfect. (ESV)
@@ -2876,6 +2878,12 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 17:3: **Abram fell on his face**. An act of worship, but also a positive response to God offering a covenant.
 
 17:5: **Abraham**. Means "father of many nations". Abraham's new identity is based on God's promise of seed, and his new name reflects his new relationship to God (MacArthur)
+
+17:5: **Авраам**. Евреи говорят, что Бог из Своего имени, которое у них четырёхбуквенное, добавил Авраму и Саре букву he (אַבְרָ֑ם (’aḇ·rām), אַבְרָהָ֔ם (’aḇ·rā·hām); שָׂרַ֣י (śā·ray), שָׂרָ֖ה (śā·rāh)). (Блж. Иероним Стридонский)
+
+17:5: **Но да будет тебе имя: Авраам.**. Имена, имеющие происхождение Божественное, суть великой важности, потому что не суть случайные знаки понятий, как имена просто человеческие. Те суть чувственные отпечатки сущности вещей; они соединены с глубоким познанием вещей; они заключают в себе силу вещей, которая и оказывается тогда, когда произносит их не одними чувственными органами, но всею силою духа. (Свт. Филарет (Дроздов))
+
+17:5: **отцом многих народов**. овое имя дано ему, как знак и ручательство, что он будет отцом многих народов, не толь­ко имеющих произойти от него по плоти, но, как объясняет это место апостол Павел, и верующих во Христа во всех народах, ибо все верующие во Христа, по самой вере, сродны с Авраамом, как отцом своим (Рим. 4:16-17). (Еп. Виссарион (Нечаев))
 
 17:6: **make you exceedingly fruitful**. The promise echoes the divine blessing given at creation (1:28: "be fruitful and multiply") and later repeated to Noah after the flood (9:1: "be fruitful and multiply"). Through this covenant the negative effects of the fall will ultimately be reversed; and in this, Abraham is another Adam, the beginning of something new. (ESV)
 
