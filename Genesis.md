@@ -2887,7 +2887,15 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 
 17:6: **make you exceedingly fruitful**. The promise echoes the divine blessing given at creation (1:28: "be fruitful and multiply") and later repeated to Noah after the flood (9:1: "be fruitful and multiply"). Through this covenant the negative effects of the fall will ultimately be reversed; and in this, Abraham is another Adam, the beginning of something new. (ESV)
 
+17:6: **цари произойдут от тебя**. Еврейские, иудейские, израильские, идумейские, сарацинские и проч. Наконец, от Авраама сам Царь царей и Господь господей (Откр. 19:16) и поставляемые им цари и священники (Откр. 1:6). (Свт. Филарет (Дроздов))
+
 17:7: **and your offspring**. The covenant applies to Abraham's posterity with equal force. "I will be their God" (v. 8). This pledge became the dictum of the covenant relationship between Yahweh and Israel. (MacArthur)
+
+17:7: **завет вечный**. Слово «век» в библейском употреблении имеет свой, более узкий, чем обычный, смысл; оно указывает на завершение или окончание известного периода, после которого имеет открыться новый «век», т. е. начаться новый период. В данном случае «вечность» завета означает продолжение его до конца периода ветхозаветной церкви и до наступления новозаветных времен (Лопухин А.П.)
+
+17:8: **буду им Богом**. Что значит: «и буду их Бог?» Это значит, что покажу о них великое попечение и промышление, во всем буду являть им Свою помощь. (Свт. Иоанн Златоуст)
+
+17:8: **всю землю Ханааню в одержание вечное**. «в вечное» не в безусловном смысле, а до наступления новозаветных времен. (Еп. Виссарион (Нечаев))
 
 17:10: **shall be circumcised**. Circumcision is not a Hebrew invention. For example, it was used in Egypt from very early periods as an act of ritual purity. (ESV)
 
