@@ -2905,10 +2905,22 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 
 17:10: **shall be circumcised**. There is also a health benefit: disease could be kept in the folds of the foreskin; removing it prevented that. Historically, Jewish women have had the lowest rate of cervical cancer. (MacArthur)
 
+17:10: **да обрезан будет**. У обрезания есть поучительное значение. В писании говорится о "сердце необрезанном" (Лев 26:41; Втор 10:16; Иер 9:26; Деян 7:51) и "ушах необрезанных" (Деян 7:51). Павел объясняет, что Иудей не тот, который по обрезанию, а тот, который под духу (Рим 2:28-29). 
+Действие обрезания должно быть устремлено на: сердце, откуда исходят помышления злые, и на уши, через которые входят в душу соблазны, и которые неохотно принимают слова Божии. Плод обрезания есть вступление с Богом в завет, соединение с Ним в духе и наследование обетований Его.
+Обрезание — это знамение завета, печать правды веры (Рим 4:11: "знак обрезания он получил, как печать праведности через веру").
+(Свт. Филарет (Дроздов))
+
+17:10: **да обрезан будет**. Обрезание, состоявшее в отсечении крайней плоти детородного органа, символизировало собой отсечение плотских похотей и нечистых пожеланий, или, как это выразительно называет Библия, - «обрезание сердца». (Лопухин А.П.)
+
 17:10: **circumcised**. There is strong evidence that circumcision reduces the risk of men acquiring HIV infection in areas of the world with high rates of HIV. Circumcision is also associated with reduced rates of cancer-causing forms of human papillomavirus (HPV) and urinal tract infections. It also decreases the risk of cancer of the penis via effectively curing phimosis. Studies of other sexually transmitted infections also suggest that circumcision is protective.
 A 2017 systematic review found consistent evidence that male circumcision was associated with a decreased risk of cervical cancer, cervical dysplasia, HSV-2, chlamydia, and syphilis among women.
 The highest quality evidence indicates that circumcision does not decrease the sensitivity of the penis, harm sexual function or reduce sexual satisfaction.
 ([Wiki](https://en.wikipedia.org/wiki/Circumcision))
+
+17:11: **будет знамением завета**. Многих смущает это место.  Ведь если обрезание - хорошее дело, то следовало бы придерживаться его и сегодня, а если бесполезное, то не следовало предписывать его, в особенности при посредстве божественного пророчества. Но поскольку апостол Павел сказал, что Авраам получил знак обрезания (Рим. 4:11: "знак обрезания он получил, как печать праведности через веру, которую имел в необрезании"), то, несомненно, знак не есть само дело, но нечто отличное от него, то есть не истина, а признак истины. Поэтому не бессмысленно мы понимаем, что телесное обрезание есть знак духовного обрезания. 
+Пришел Господь Иисус, Который сказал: Я есмь путь и истина и жизнь (Ин. 14:6), потому что Он обрезывает не ничтожную часть тела знаком, но всего человека истиной. Он упразднил знак, ввел истину, потому что после того, как настало совершенное, то, что отчасти, было отменено (ср. 1 Кор. 13:10: "когда же настанет совершенное, тогда то, что отчасти, прекратится"). Потому обрезание части прекратилось, когда воссияло обрезание вселенной. 
+Ведь уже не отчасти, но весь человек спасается и телом, и душой, ибо написано: "если кто хочет идти за Мною, отвергнисъ себя, и возьми крест свой, и следуй за Мною" (Мф. 16:24). Это есть совершенное обрезание, потому что через жертву тела добывается душа, о которой Сам Господь сказал: "кто потеряет душу свою ради Меня, тот обретет ее" (Мф. 16:25).
+(Свт. Амвросий Медиоланский)
 
 17:12: **eight days old**. It is of significant medical importance that male circumcision be carried out on the eighth day after birth since the level of vitamin K is highest on this day and vitamin K plays a pivotal role in regulation and control of the important clotting factors in the coagulation pathway that helps in stopping bleeding. The  Vitamin  K  and  Thrombocin  (which  is  a blood clotter) are the highest  in a  baby on his eighth day of life, and together with prothrombin, are essential  for  the function  of  several proteins  involved in blood coagulation. It is essential that circumcision is done on that very day. (Sokoto Journal of Medical Laboratory Science 2017; 2(3): 91 –  94 Original Research)
 
