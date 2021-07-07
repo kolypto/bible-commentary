@@ -2956,26 +2956,28 @@ The highest quality evidence indicates that circumcision does not decrease the s
 
 17:17: **Abraham laughed**. His wife has been barren his whole life. It was quite natural for Abraham to laugh at the thought of them having a child.
 
-17:18: **Abraham** still believed God, but he must have thought that **Ishmael** is the promised son.
+17:18: **Oh that Ishmael might live before you!**. Abraham understood what God meant, but laughed. He couldn't believe that, but since God was talking about a son, he asked God to bless Ishmael. 
 
-17:19: There are four kinds of **Abraham’s offspring**:
+17:19: **Offspring**. There are four kinds of Abraham’s offspring:
 1. *Natural offspring*: Ishmael, Isaac, the sons of Keturah, and their children
 2. Natural offspring, *children of the promise*: only Isaac
 3. *Promised offspring*: A distinctive line of offspring, starting earlier with Seth and continuing through Noah, Abraham, Isaac, Israel, and David, culminating in Jesus Christ.
 4. *Spiritual offspring*: Those united with Christ (the promised offspring). Jews and Gentiles who trust in the Messiah.
 (ESV)
 
-17:19: **Isaac** means “he laughs”. There is a recurring motif of **laughter** around him: first, Abraham, then, Sarah (Gen 18:12) — out of unbelief; but then Sarah laughs again when Isaac is born, but this time — out of joy (Gen 21:6); and Ismael 
+17:19: **Isaac**. Isaac means “he laughs”. There is a recurring motif of laughter around him: first, Abraham, then, Sarah (Gen 18:12) — out of unbelief; but then Sarah laughs again when Isaac is born, but this time — out of joy (Gen 21:6). (ESV)
 
-17:19: God **establishes a covenant with him**, namely, with Isaac: the son born by God’s power, not by Abraham’s power.
+17:19: **I will establish my covenant with him**. God establishes a covenant with Isaac: the son born by God’s power, not by Abraham’s power.
 
-17:20: The covenant is *established* with Isaac, but Ishmael also gets *some* of the blessings of the covenant. (ESV)
+17:20: **As for Ishmael, I have heard you**. Despite Abraham's disbelief, God heard his request concerning Ishmael.
 
-17:21: God has promised children to Abraham many times, but this is the first time that any timeframe was given.
+17:20: **As for Ishmael**. The covenant is *established* with Isaac, but Ishmael also gets *some* of the blessings of the covenant. (ESV)
 
-17:23: The urgency with which **Abraham** circumcises the whole house **that very day** demonstrates that he did not only take God’s words seriously, but it was of utmost importance to him.
+17:21: **this time next year**. God has promised children to Abraham many times, but this is the first time that any timeframe was given.
 
+17:23: **circumcised .. that very day**. The urgency with which Abraham circumcises the whole house that very day demonstrates that he did not only take God’s words seriously, but it was of utmost importance to him.
 
+17:23: **circumcised .. that very day**. This also means that Abraham has been failing to keep the covenant of circumcision of Gen 17: God said "every male among you shall be circumcised" (Gen 17:10) and "every male .. whether born in your house or bought with your money, shall surely be circumcised" (Gen 17:13).
 
 
 
