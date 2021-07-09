@@ -2974,19 +2974,29 @@ The highest quality evidence indicates that circumcision does not decrease the s
 
 17:19: **I will establish my covenant with him**. God establishes a covenant with Isaac: the son born by God’s power, not by Abraham’s power.
 
+17:20: **И о Измаиле Я услышал тебя**. Эта фраза в еврейском тексте имеет вид повторения одного и того же, ибо имя «Измаил» значит - «Бог слышит». (Лопухин А.П.)
+
 17:20: **As for Ishmael, I have heard you**. Despite Abraham's disbelief, God heard his request concerning Ishmael.
 
 17:20: **As for Ishmael**. The covenant is *established* with Isaac, but Ishmael also gets *some* of the blessings of the covenant. (ESV)
+
+17:20: **двенадцать князей родятся от него**. Сие равночислие с коленами Израиля показывает, что мера благословений видимых не всегда означает меру даров внутренних. Два потомства Авраамовы подобны двум прекрасным цветам, из которых один есть пустоцвет, а другой исполнен силою жизни и, увядая, оставляет плод, который дает пакибытие корню и цветам. (Свт. Филарет (Дроздов))
 
 17:21: **this time next year**. God has promised children to Abraham many times, but this is the first time that any timeframe was given.
 
 17:23: **circumcised .. that very day**. The urgency with which Abraham circumcises the whole house that very day demonstrates that he did not only take God’s words seriously, but it was of utmost importance to him.
 
-17:23: **circumcised .. that very day**. This also means that Abraham has been failing to keep the covenant of circumcision of Gen 17: God said "every male among you shall be circumcised" (Gen 17:10) and "every male .. whether born in your house or bought with your money, shall surely be circumcised" (Gen 17:13).
+17:23: **в тот самый день**. Авраам совершил повеленное Богом в тот же день, в который явился Бог и открыл Аврааму закон обрезания. Поспешность тем достойнее удивления, что откровение и не назначало времени обрезания для самого Авраама, но только для новорождаемых в его племени. (Свт. Филарет (Дроздов))
 
+17:24: **Авраам был девяноста девяти лет**. Великое послушание праведника: будучи уже в крайней старости, он терпеливо перенёс ［мучительную］ болезнь обрезания ради заповеди Божией. (Свт. Иоанн Златоуст)
 
+17:26: **В тот же самый день**. Повторение вышесказанного — обычный в Библии приём в тех случаях, когда идет речь о каком-либо особенно важном деле. (Лопухин А.П.)
 
+17:27: **и купленные за серебро у иноплеменников**. Народ иудейский обрезывается для запечатления завета. Но обрезывается и всякий сириец, и аравиец, и всякий жрец идольский, но неужели и они принадлежат завету Божию? Обрезываются и египтяне! (Ап. Варнава)
 
+17:27: **Весь мужеский пол дома его**. И здесь нельзя не удивиться благоустройству дома Авраамова и послушанию его домочадцев и рабов. Ни один из них не воспрекословил совершению над собою обряда болезненного и, с первого взгляда, весьма странного. 
+С толикою силою вера и духовное помазание действует на все окружающее и все покоряет себе. 
+(Свт. Филарет (Дроздов))
 
 
 
