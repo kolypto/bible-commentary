@@ -3013,39 +3013,40 @@ The highest quality evidence indicates that circumcision does not decrease the s
 
 ### Isaac's Birth Promised
 
-18:1: It’s been *years* since Abraham settled at the **oaks of Mamre**, but he is still dwelling in a **tent** (ESV).
+18:1: **oaks of Mamre**. It’s been *years* since Abraham settled at the oaks of Mamre, but he was still dwelling in a **tent**. Not a house; a tent. (ESV).
 
-18:2: Abraham’s actions (**ran, bowed, “Lord”, “servant”**) shows that he viewed the men as exceptionally important and worthy of great respect. (ESV)
+18:2: **he ran .. and bowed**. An elderly man running and bowing is something extraordinary. Abraham’s actions (ran, bowed, “Lord”, “servant”) shows that he viewed the men as exceptionally important and worthy of great respect. (ESV)
 
 18:3: **O Lord**. How did Abraham recognize that these three were not merely human?
 
-18:3: **O Lord**. In Hebrew, Abraham properly says *Adonai*, which is used for God in the OT. Had he greeted a human, he would have said *Adoni*, “my lord”, which has a slightly different spelling. No doubt, Abraham has recognized that these visitors are a divine manifestation. This explains Abraham’s part in the conversation of vv.22-33.(ESV)
+18:3: **O Lord**. In Hebrew, Abraham properly says *Adonai*, which is used for God in the OT. Had he greeted a human, he would have said *Adoni*, “my lord”, which has a slightly different spelling. No doubt, Abraham has recognized that these visitors are a divine manifestation. (ESV)
 
-18:4: Although Abraham speaks of **Little water and a morsel of bread,** he proceeds to prepare a substantial meal. (ESV)
+18:4: **little water .. morsel of bread**. Although Abraham speaks of Little water and a morsel of bread, he proceeds to prepare a substantial meal. (ESV)
 
 18:8: **He stood by them**, assuming the role of a humble servant. Abraham did not eat with them, but waited on them.
 
-18:8: **The Lord** clearly had no need for food, but by dining at Abraham’s place, God honored him.
+18:8: **they ate**. Clearly God had no need for food, but by dining at Abraham’s place, God honored him.
 
-18:9: Strangely enough, **Sarah** was not present while such honored guests were present, and **Abraham** must have served them himself. 
+18:9: **Sarah .. is in the tent**. Strangely enough, Sarah was not present while such honored guests were present, and Abraham must have served them himself. 
 In v.10 we see that Sarah has interest in the guests (“listening at the tent door”). In v.13, the Lord talks about Sarah, knowing her thoughts, and in v.15 she engages in the conversation. 
 So, either Sarah was in the tent but still visible from the dining place, or she must have come out of the tent to say the words to the Lord.
 Either way, she was not at the table.
 
 18:12: **Sarah laughed**. She has been barren her whole life. It was quite natural for Sarah to laugh at the thought of her having a child in her nineties.
 
-18:12: Even though **Sarah laughed** to herself, she honored her husband by calling him **lord**, which indicated her pattern of submitting to and obeying her husband. (1 Pet 3:6: “as Sarah obeyed Abraham, calling him **lord**”). (ESV)
+18:12: **my lord is old**. She honored her husband by calling him **lord**, which indicated her pattern of submitting to and obeying her husband. (1 Pet 3:6: “as Sarah obeyed Abraham, calling him lord”). (ESV)
 
-18:13: Even though **Sarah** was away from the table, **The Lord** knew that she had laughed *to herself*, and spoke to Abraham about it.
+18:13: **Why did Sarah laugh?**. Even though Sarah was away from the table, The Lord knew that she had laughed *to herself*, and spoke to Abraham about it.
 
-18:14: **Is anything too hard for the Lord** God almighty?
+18:14: **Is anything too hard for the Lord**, God almighty?
 
-18:15: It is clear that **Sarah** responded even though no one spoke to her personally. The whole time, God spoke exclusively to Abraham, addressing him personally, and talking with him about his wife in the third person.
+18:15: **Sarah denied it, saying**. It is clear that Sarah responded even though no one spoke to her personally. The whole time, God spoke exclusively to Abraham, addressing him and talking with him about his wife in the third person.
 
-18:15: **Sarah denied** that she **did laugh**, and it was a lie she said to the Lord’s face. As often in the OT, the author does not judge, but merely reports. Even though it was **out of fear**, it is clear in this episode that Sarah exhibits her sin nature by denying the responsibility just like the first couple did before God. But God knows the truth: “**no, but you did laugh**”.
-At the same time, **Sarah** had faith, because it is “by faith [that she has] received power to conceive” (Heb 11:11).
+18:15: **Sarah denied**. It was a lie that she said to the Lord’s face. As often in the OT, the author does not judge, but merely reports. Even though it was out of fear (**for she was afraid**), it is clear in this episode that Sarah exhibits her sin nature by denying the responsibility just like the first couple did before God. 
+But God still knows the truth: “**no, but you did laugh**”.
+At the same time, Sarah had faith, because it is “by faith ［that she has］ received power to conceive” (Heb 11:11).
 
-18:19: God’s **promise** is conditional upon **Abraham**’s descendants’ **keeping the way of the Lord**, and that is, **by doing righteousness and justice**: something that the believing Jews of the distant future will forget.
+18:19: **I have chosen him .. to keep the way of the Lord**. God’s promise is conditional upon Abraham’s descendants’ keeping the way of the Lord: that is, by doing righteousness and justice: something that the believing Jews of the distant future will forget.
 
 
 
