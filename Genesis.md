@@ -3013,13 +3013,34 @@ The highest quality evidence indicates that circumcision does not decrease the s
 
 ### Isaac's Birth Promised
 
+18:1: **И явился ему**.  Замена здесь собственного имени Авраама личным местоимением - «ему» свидетельствует о том, что данная глава стоит в самой тесной связи с предшествующей и составляет как бы ее продолжение. Но самые начальные слова главы не оставляют сомнения в том, что здесь речь о новом богоявлении, хотя и бывшем вскоре за предшествующим (см. 18:4: "В назначенный срок", то есть, время уже было назначено ранее). (Лопухин А.П.)
+
+18:1: **И явился ему Господь**. Господь дал Аврааму заповедь об обрезании, и он тотчас, ни мало не медля, и сам обрезался, и всех домочадцев, и тем показал совершенное послушание. Затем Господь опять ему является. Таков Господь наш: как скоро увидит в нас признательность за оказанные от Него благодеяния, то умножает Свои щедроты, и не перестает благодетельствовать, награждая признательность повинующихся Ему. (Свт. Иоанн Златоуст)
+
+18:1: **явился ему Господь**. Амвросий считает, что то были три лица Святой Троицы. Этому мнению благоприятствует то, что Авраам поклоняется и говорит трём как одному (ст. 3).
+Августин не сомневается, что то были три ангела сотворённые, в которых Бог присутствовал и познан был только как в своих пророках. При этом и Авраам, и Лот, обращаются к ним как к одному: "Владыка!" (Быт 19:18: "Владыка! вот, раб Твой обрел благоволение пред очами Твоими"). Новейшие толкователи одобряют это мнение потому, что в Евр. 13:2 Павел пишет "оказали гостеприимство ангелам"; однако эти слова могли относиться и к Лоту.
+Иустин, Ириней, Тертуллиан, и Златоуст признают в числе трех двух Ангелов сотворенных и второе Лице Святой Троицы, Сына.
+К преимуществу последнего мнения, весьма ясно различаются посетители Авраама в следующих словах: "два мужа обратились и пошли оттуда в Содом; Авраам же еще стоял пред лицем Господа" (Быт. 18:22). Под именем *Господа* в особенности познается Сын Божий, когда Авраам называет Его Судиею всея земли, но сим именем убеждает Его к милосердию (Быт. 18:24: "Судия всей земли поступит ли неправосудно"), ибо таковой суд весь отдан Сыну Божию (Ин. 5:22: "Ибо Отец и не судит никого, но весь суд отдал Сыну"). Два другие лица узнаются более из наименования Ангелов (Быт. 19:1: "И пришли те два Ангела в Содом вечером") и сами себя открывают Лоту в качестве посланников Господа (Быт. 19:13: "Господь послал нас истребить его").
+(Свт. Филарет (Дроздов))
+
 18:1: **oaks of Mamre**. It’s been *years* since Abraham settled at the oaks of Mamre, but he was still dwelling in a **tent**. Not a house; a tent. (ESV).
+
+18:1: **сидел при входе в шатер, во время зноя дневного**. Авраам во время зноя не лежал дома, но был занят странноприимством. Будучи в преклонных летах, имея притом 318 домочадцев, сам сидел у дверей.
+Между тем, многие другие не только не имеют такого усердия, а напротив, стараются уклоняться от встречи с странниками, чтобы не быть принужденными невольно принять их.
+В самом деле, он знал, что люди, принужденные идти в это время, особенно нуждаются в призрении, а потому это именно время и избирал (Авраам), как самое удобное, и, сидя у дверей, собирал мимоходящих, считая для себя отрадою служить странникам; палимых зноем старался вводить под кров свой, не любопытствуя узнавать что-либо о них, и не разведывая, знакомы они ему, или нет. Действительно страннолюбивому человеку не свойственно разведывать, а свойственно всем прохожим оказывать свое радушие. Когда таким образом распространил он мрежу страннолюбия, то удостоился принять к себе и Господа с ангелами. Потому и Павел сказал: «страннолюбия не забывайте: тем бо не ведяще нецыи странноприяша Ангелы» (Евр.13:2), разумея очевидно праотца.
+(Свт. Иоанн Златоуст)
+
+18:1: **сидел у дверей шатра**. Авраам, по своему страннолюбию, несмотря на зной дня, сидит у шатра своего, желая увидеть путешественника, которому бы мог оказать гостеприимство. (Свт. Филарет (Дроздов))
+
+18:1: **сидел у дверей шатра**. Самые же детали этой картины как нельзя лучше совпадают с обычаями и нравами древнего Востока, жители которого любили выходить в послеполуденные часы дневного зноя под прохладную тень своих палаток и поджидать здесь гостей, нуждающихся в подкреплении и покое. (Лопухин А.П.)
 
 18:2: **he ran .. and bowed**. An elderly man running and bowing is something extraordinary. Abraham’s actions (ran, bowed, “Lord”, “servant”) shows that he viewed the men as exceptionally important and worthy of great respect. (ESV)
 
 18:3: **O Lord**. How did Abraham recognize that these three were not merely human?
 
 18:3: **O Lord**. In Hebrew, Abraham properly says *Adonai*, which is used for God in the OT. Had he greeted a human, he would have said *Adoni*, “my lord”, which has a slightly different spelling. No doubt, Abraham has recognized that these visitors are a divine manifestation. (ESV)
+
+18:3: **Владыка .. Твоими .. не пройди**. Авраам, охотно принимающий странников, верный Богу, неутомимый в таинстве, ревностный в служении, узрел образ Троицы и приумножил гостеприимство благочестием, принимая Трех, но поклоняясь Одному. Сохраняя различие лиц, он называл их Единым Господом и, воздавая почесть Трем, обозначал одну Силу. Ибо в нем говорило не знание, а благодать, и, потому что не учился, он верил сильнее, чем мы, которые учимся. (Свт. Амвросий Медиоланский)
 
 18:4: **little water .. morsel of bread**. Although Abraham speaks of Little water and a morsel of bread, he proceeds to prepare a substantial meal. (ESV)
 
@@ -3040,13 +3061,16 @@ Either way, she was not at the table.
 
 18:14: **Is anything too hard for the Lord**, God almighty?
 
-18:15: **Sarah denied it, saying**. It is clear that Sarah responded even though no one spoke to her personally. The whole time, God spoke exclusively to Abraham, addressing him and talking with him about his wife in the third person.
+18:15: **Sarah denied it, saying**. It is clear that Sarah responded even though no one spoke to her personally. The whole time, God spoke exclusively to Abraham, addressing him and talking with him about his wife in the third person. Only the final words are addressed to her: "No, but you did laugh".
 
 18:15: **Sarah denied**. It was a lie that she said to the Lord’s face. As often in the OT, the author does not judge, but merely reports. Even though it was out of fear (**for she was afraid**), it is clear in this episode that Sarah exhibits her sin nature by denying the responsibility just like the first couple did before God. 
 But God still knows the truth: “**no, but you did laugh**”.
 At the same time, Sarah had faith, because it is “by faith ［that she has］ received power to conceive” (Heb 11:11).
 
-18:19: **I have chosen him .. to keep the way of the Lord**. God’s promise is conditional upon Abraham’s descendants’ keeping the way of the Lord: that is, by doing righteousness and justice: something that the believing Jews of the distant future will forget.
+18:16: **And Abraham went with them**. If God came to your place, and is leaving, when is the appropriate time to say goodbye and part?
+Abraham went with God, and was able to plead for Sodom. Had he stayed, he would he have had this chance?
+
+18:19: **I have chosen him .. to keep the way of the Lord by doing righteousness and justice**. God’s promise is conditional upon Abraham’s descendants’ keeping the way of the Lord: that is, by doing righteousness and justice: something that the believing Jews of the distant future will forget.
 
 
 
