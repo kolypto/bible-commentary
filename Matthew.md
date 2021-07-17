@@ -2853,6 +2853,9 @@ All confrontation of sin in others must be done out of meekness, not pride. We c
 
 7:5: **Лицемер**. И хорошо сказано: **Лицемер**! Ведь осуждать пороки есть дело честных и доброжелательных людей. Когда это делают злые, они, как лицемеры, играют чужие роли, скрывая под маской свою суть, и изображают с помощью маски то, чем не являются. Таким образом, под именем лицемеров тебе следует понимать притворщиков.  (Блж. Августин)
 
+
+7:5: **бревно .. сучок**. Видно, что характер повреждения схожий: в обоих случаях глаз и древесина. Так, здесь говорится, что научившись бороться с грехом одного конкретного вида, человек приобретает опыт, и уже по собственному опыту сможет с сочувствием и любовью дать дельный совет брату своему: "увидишь как вынуть".
+
 7:6: **Do not give dogs what is holy**. He is saying that we are not to continue to share the beautiful truths of God with those who treat them as garbage and blaspheme them. Also: Mt 10:14 ("shake off the dust"). (John Strohman)
 
 7:6: **to the dogs, .. before pigs**. Jesus closes with a thunderbolt of an illustration that shatters any sentimental interpretation. We are commanded to determine who are **dogs** and **swine**! (MacArthur)

@@ -3089,9 +3089,21 @@ In v.10 we see that Sarah has interest in the guests (“listening at the tent d
 So, either Sarah was in the tent but still visible from the dining place, or she must have come out of the tent to say the words to the Lord.
 Either way, she was not at the table.
 
+18:9: **где Сарра, жена твоя**. И такой вопрос тотчас дал ему разуметь, что пришедший не был какой-нибудь обыкновенный человек, когда знал имя его жены. (Свт. Иоанн Златоуст)
+
+18:10: **Сарра слушала у входа в шатер, сзади его**. Ведь не без причины написано, что Сарра стояла сзади Авраама, но для того, чтобы ясно показать, что, если муж идет навстречу Богу, жене надлежит следовать. (Ориген)
+
 18:12: **Sarah laughed**. She has been barren her whole life. It was quite natural for Sarah to laugh at the thought of her having a child in her nineties.
 
+18:12: **мне ли, когда я состарилась, иметь сие утешение?**. Совершенно по-другому это место читается в еврейском тексте: 
+«И рассмеялась Сарра сама в себе, говоря: “После того, как я увяла, мне пришлось испытать эту усладу?”» 
+Тут же отметь, что там, где я поставил слово «услада», в еврейском тексте написано eden (עֶדְנָ֔ה), Симмах перевёл это место следующим образом: 
+«После того как я совсем обветшала из-за старости, [неужели] у меня наступила молодость?».
+(Блж. Иероним Стридонский)
+
 18:12: **my lord is old**. She honored her husband by calling him **lord**, which indicated her pattern of submitting to and obeying her husband. (1 Pet 3:6: “as Sarah obeyed Abraham, calling him lord”). (ESV)
+
+18:12: **Господин мой**. То есть супруг. Сие выражение почтения жены к мужу Апостол представлял в образец женам своего времени (1 Пет. 3:6: "Так Сарра повиновалась Аврааму, называя его господином."). (Свт. Филарет (Дроздов))
 
 18:13: **Why did Sarah laugh?**. Even though Sarah was away from the table, The Lord knew that she had laughed *to herself*, and spoke to Abraham about it.
 
@@ -3102,6 +3114,12 @@ Either way, she was not at the table.
 18:15: **Sarah denied**. It was a lie that she said to the Lord’s face. As often in the OT, the author does not judge, but merely reports. Even though it was out of fear (**for she was afraid**), it is clear in this episode that Sarah exhibits her sin nature by denying the responsibility just like the first couple did before God. 
 But God still knows the truth: “**no, but you did laugh**”.
 At the same time, Sarah had faith, because it is “by faith ［that she has］ received power to conceive” (Heb 11:11).
+
+18:15: **я не смеялась**. Она страшится, потому что познает Сердцеведца, и между тем желает укрыть от Него свое сердце. 
+Но сие противоречие исчезает, если припишем ей намерение не столько прикрыть, сколько исправить свою погрешность. Она не только удерживает свой смех, но и желает, чтобы его совсем не было. Она как бы говорит: верую, помоги моему неверию.
+(Свт. Филарет (Дроздов))
+
+18:15: **я не смеялась. Ибо она испугалась**. Чувство некоторого испуга или страха, как мучительного голоса совести и опасения наказания, есть естественное следствие греха (Быт. 3:10) в душе людей, еще не успевших нравственно загрубеть и доступных покаянию. Подобное чистосердечное раскаяние в своем маловерии, без сомнения, принесла и Сарра, так как апостол впоследствии находит возможным похвалить ее за веру в обетование о рождении у нее сына (Евр. 11:11: "Верою и сама Сарра (будучи неплодна) получила силу к принятию семени"). (Лопухин А.П.)
 
 18:16: **And Abraham went with them**. If God came to your place, and is leaving, when is the appropriate time to say goodbye and part?
 Abraham went with God, and was able to plead for Sodom. Had he stayed, he would he have had this chance?
