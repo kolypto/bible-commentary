@@ -3124,6 +3124,15 @@ At the same time, Sarah had faith, because it is “by faith ［that she has］ 
 18:16: **And Abraham went with them**. If God came to your place, and is leaving, when is the appropriate time to say goodbye and part?
 Abraham went with God, and was able to plead for Sodom. Had he stayed, he would he have had this chance?
 
+18:17: **утаю ли Я от Авраама, что хочу делать**. Аврааму же было открыто, чтобы не переставал он молиться, и чтобы молитва его открыла миру, что в Содоме не нашлось и единого праведника, ради которого он мог быть избавлен от истребления. (Прп. Ефрем Сирин)
+
+18:17: **утаю ли Я от Авраама, что хочу делать**. Такова есть близость людей облагодатствованных к Богу. Он как бы не имеет для них тайны. Его воля как бы естественно отражается в душе, Ему преданной. (Свт. Филарет (Дроздов))
+
+18:18: **От Авраама точно произойдет народ великий .. ходить потём Господним**. ［Где связь между "великий народ" и судом над Содомом?］ 
+Таким образом ［высказывается ］ намерение откровения сего: предать памяти будущих родов приключение Содома чрез такой народ, в котором бы оно долее и вернее было известно, и предать так, чтобы оно не казалось делом случая, но предуготованным действием суда Божия, предшествуемого долготерпением и сопутствуемого милосердием. (Свт. Филарет (Дроздов))
+
+18:18: **От Авраама точно произойдет народ великий .. ходить потём Господним**. Контраст. Великим будет народ, который ходит путём Господним, но разрушен будет народ (Содом), который развратится.
+
 18:19: **I have chosen him .. to keep the way of the Lord by doing righteousness and justice**. God’s promise is conditional upon Abraham’s descendants’ keeping the way of the Lord: that is, by doing righteousness and justice: something that the believing Jews of the distant future will forget.
 
 
