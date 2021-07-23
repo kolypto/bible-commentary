@@ -3107,6 +3107,9 @@ No doubt, all three will be represented. In any case, the people who did them di
 
 7:23: **I never knew you**. All their words and all their works will be declared empty and worthless. They may have had God's name in their mouths, but rebellion was in their hearts. (MacArthur)
 
+7:23: **Я никогда не знал вас**. Что сказано относительно праведных? - Познал Господь Своих (2 Тим. 2:19). Что сказано о грешниках? - "Я никогда не знал вас; отойдите от Меня, делающие беззаконие" (Мф. 7:23)… 
+Что же тогда означает: **Я не знаю вас**? - Я не признаю в вас подобия Своего, не признаю в вас Своего образа (ср. Быт. 1:26). (Свт. Кесарий Арелатский)
+
 7:23: **practice lawlessness**. Indicates a continuous, regular action, and identifies the unforgiven sin and unrighteous life patterns of those claimers of salvation. Good trees can not bear bad fruit. (MacArthur)
 
 7:23: **practice lawlessness**. Jesus knows that even His most faithful disciples will fail, stumble, and fall into sin. Otherwise, He would not have told us to pray, "Forgive us our debts" (Mt 6:12). No Christian is sinless, but the fact that we continually confess our sins, seek the Lord's forgiveness, and long for righteousness (Mt 5:6) is evidence that we belong to Him. God's will may not be the *perfection* of the true believer's life, but it is the *direction* of it. (MacArthur)
