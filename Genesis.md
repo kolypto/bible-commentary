@@ -3179,32 +3179,48 @@ Abraham went with God, and was able to plead for Sodom. Had he stayed, he would 
 
 18:22: **the men .. went, but .. Abraham still stood before the Lord**. It is now clear from this verse, and from 19:1, that only one of the men was The Lord, but the other two were angels (19:1: “the two angels”). They now separate: angels went toward Sodom, but the Lord remained, with Abraham standing before Him.
 
-18:22: Note that in 18:21 God had said that “I will go down”. He did not change His mind between the verses; as often in the OT, angels often speak and act for God, and God is often represented by angels who can give a direct speech on God’s behalf, using an “I” that stands for “I, God”.
+18:22: **stood before the Lord**. That is, the Lord also stood and did not leave. 
+Note that in 18:21 God had said that “I will go down”. He did not change His mind between the verses; as often in the OT, angels often speak and act for God, and God is often represented by angels who can give a direct speech on God’s behalf, using an “I” that stands for “I, God”.
 Here, it is clear that God sends angels to see and to act, and angels act and speak as if God Himself acts and speaks through them. So loyal they are that they completely identify with Him.
 
-18:23: **Abraham’s** intercession for the Gentile cities of Sodom and Gomorrah is in line with his calling to be the vehicle of blessing to the whole world. (ESV)
+18:23: **Abraham said**. Abraham's intercession for the Gentile cities of Sodom and Gomorrah is in line with his calling to be the vehicle of blessing to the whole world. (ESV)
 
-18:25: **Abraham** couldn’t believe that God, who has just promised to carefully evaluate the evidence (v.21), will so plainly go against His Own Nature of a **just judge**.
+18:25: **Far be it from you!**. Abraham couldn’t believe that God, who has just promised to carefully evaluate the evidence (v.21), will so plainly go against His Own Nature of a just judge.
 
-18:25: **Abraham** knows, he knows, that **God** must be true to His nature. (ESV)
+18:25: **the Judge of all the earth**. Abraham knows, he knows, that God must be true to His nature. (ESV)
 
-18:25: It is clear that Abraham does not see God merely being in a position of a **judge**, but he sees God as a **just judge**, doing what is right. God will never misuse His power, but will always do what is right.
+18:25: **Shall not the Judge of all the earth do right?** Abraham’s clear understanding of God’s character being able only to do what is good and totally above reproach was affirmed with this rhetorical question. (MacArthur)
 
-18:26: Abraham has just said what may be seen as outspoken questioning of the sovereign Lord and indignation at what he thought was about to happen. “**Far be it from you**!” does not sound like something you say to God.
-Interestingly, **The Lord** does not rebuke such a blunt statement, but **answers**. After all, God Himself opened the possibility for that conversation by deciding to reveal to Abraham what He was about to do (v. 17).
+18:25: **Shall not ... the Judge .. do what is just?**. It is clear that Abraham does not see God merely being in a position of a judge, but he sees God as a just judge, doing what is right. God will never misuse His power, but will always do what is right.
 
-18:27: **Abraham** speaks those words of humility before God whom he dared to question. When he had first asked God, there was no humility, but rather, questioning. 
-Perhaps, now Abraham’s indignation has settled down, and he started talking the way he should have from the very beginning. Perhaps this is why God was so patient with Abraham’s outburst: God who knows the future surely knows that Abraham did not mean what his words looked like.
+18:26: **And the Lord said**. Abraham has just said what may be seen as outspoken questioning of the sovereign Lord and indignation at what he thought was about to happen. “Far be it from you!” does not sound like something you say to God.
+Interestingly, **The Lord** does not rebuke such a blunt statement, but answers. After all, God Himself opened the possibility for that conversation by deciding to reveal to Abraham what He was about to do (v. 17).
 
-18:32: From the following events it becomes clear that there were not even **ten righteous people** in the town of Sodom. At least, those that were there, God has led away from the city, for He has promised that He will not destroy the righteous with the wicked.
+18:27: **I who am but dust and ashes**. Abraham speaks those words of humility before God whom he dared to question. When he had first asked God, there was no humility, but rather, questioning. 
+Perhaps, now Abraham’s indignation has settled down, and he started talking the way he should have from the very beginning. Perhaps this is why God was so patient with Abraham’s outburst: God who knows the heart surely knows that Abraham did not mean what his words looked like.
 
-18:32: Abraham does not dare to keep reducing the number, although logically, there must have been the final question: “What about if there is one rigteous person in the city; will you destroy the righteous with the wicked?”
+18:32: **For the sake of ten I will not destroy it**. From the following events it becomes clear that there were not even ten righteous people in the town of Sodom. At least, those that were there, God has led away from the city, for He has promised that He will not destroy the righteous with the wicked.
 
-18:32: Abraham may have ceased engaging in the conversation out of reverence, or maybe, because the principle has already been established: God will not punish the righteous along with the wicked.
+18:32: **for the sake of ten**. Abraham does not dare to keep reducing the number, although logically, there must have been the final question: “What about if there is one rigteous person in the city; will you destroy the righteous with the wicked?”
 
-18:33: **The Lord** does not go to Sodom, but **went his way**: left the place altogether. Only the two angels reached Sodom.
+18:33: **Abraham returned to his place**. Abraham may have ceased engaging in the conversation out of reverence, or maybe, because the principle has already been established: God will not punish the righteous along with the wicked.
 
-18:33: **Abraham** also returned to his place. It is notorious that he did not go to see what would happen to Sodom. He has just talked with God Himself, he still trusts Him, and trusts so much that there is no need to go and see for yourself. If the Lord has said, “I will not destroy the wicked with the righteous”, then it will be so. (Gen 15:6: “he believed the LORD, and jhe counted it to him as righteousness”). 
+18:33: **And the Lord went His way**. The Lord does not go to Sodom, but went his way: left the place altogether. Only the two angels reached Sodom.
+
+18:33: **Abraham returned to his place**. It is notorious that he did not go to see what would happen to Sodom. He has just talked with God Himself, he still trusts Him, and trusts so much that there is no need to go and see for yourself. The Lord has said, “I will not destroy the wicked with the righteous”, and it will be so. (Gen 15:6: “he believed the LORD, and he counted it to him as righteousness”). 
+
+
+
+
+
+
+
+
+
+
+
+### God Rescues Lot
+
 
 19:1: Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
 
