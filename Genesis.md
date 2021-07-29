@@ -3179,11 +3179,25 @@ Abraham went with God, and was able to plead for Sodom. Had he stayed, he would 
 
 18:22: **the men .. went, but .. Abraham still stood before the Lord**. It is now clear from this verse, and from 19:1, that only one of the men was The Lord, but the other two were angels (19:1: “the two angels”). They now separate: angels went toward Sodom, but the Lord remained, with Abraham standing before Him.
 
+18:22: **И обратились мужи оттуда и пошли в Содом**. пришли в Содом не только для того, чтобы от лица Его быть непосредственными свидетелями преступлений Содо­мских, но вместе для того, чтобы спасти Лота с семейством и чтобы совершить казнь над нечестивыми гражданами. (Еп. Виссарион (Нечаев))
+
 18:22: **stood before the Lord**. That is, the Lord also stood and did not leave. 
 Note that in 18:21 God had said that “I will go down”. He did not change His mind between the verses; as often in the OT, angels often speak and act for God, and God is often represented by angels who can give a direct speech on God’s behalf, using an “I” that stands for “I, God”.
 Here, it is clear that God sends angels to see and to act, and angels act and speak as if God Himself acts and speaks through them. So loyal they are that they completely identify with Him.
 
+18:22: **Авраам же еще стоял пред лицем Господа**. Отпустив спутников, Господь остался с одним Авраамом для того, чтобы дать ему случай выразить свое сострадание и любовь к людям, которым угрожает погибель. И Авраам стоял пред Ним, как пред верховным Владыкою мира и Судиею людей, в положении человека, готового ходатай­ствовать за людей. (Еп. Виссарион (Нечаев))
+
+18:23: **И подошел Авраам**. Или из благоговения стоял он до сего времени в некотором отдалении от Господа; или несколько времени колебался, открыть ли свои чувствования, между тем как Господь казался отходящим. (Свт. Филарет (Дроздов))
+
 18:23: **Abraham said**. Abraham's intercession for the Gentile cities of Sodom and Gomorrah is in line with his calling to be the vehicle of blessing to the whole world. (ESV)
+
+18:23: **неужели Ты погубишь праведного с нечестивымБытие**. Он так усердно заботится о том, чтобы избавить народ, содомский от угрожающей ему казни, как будто сам должен был подвергнуться такому же осуждению. Разве кто из нас, живущих среди бесчисленных зол, произнося суд над подобными себе людьми, показал бы такое снисхождение и человеколюбие? (Свт. Иоанн Златоуст)
+
+18:24: **Может быть, найдется в этом городе пятьдесят праведников?** Авраам не упоминает здесь о младенцах, хотя и сии побуждают иногда Бога к милосердию, как видим в пророчестве (Ион. 4:11: "в котором более ста двадцати тысяч человек, не умеющих отличить правой руки от левой"). Из сего вновь можно примечать, что предмет его ходатайства есть наипаче Лот. (Свт. Филарет (Дроздов))
+
+18:24: **пятьдесят праведников?**. Авраам, умоляя Господа о пощаде нечестивых ради праведных, да не погибнут последние с первыми, – взы­вает к правосудию Божию, не в том смысле, что праведные не заслуживают гнева Божия, – совершенно праведных пред Богом и безгрешных нет на свете, – но в том, что праведные не заслуживают «одинаковой» участи с нечести­выми. 
+Авраам как бы так говорит: «праведники, живя с нечестивыми, много зла терпят от них и немало страдают душею, смотря на их преступления: неужели и от Тебя, Господи, они должны пострадать заодно с ними?»
+(Еп. Виссарион (Нечаев))
 
 18:25: **Far be it from you!**. Abraham couldn’t believe that God, who has just promised to carefully evaluate the evidence (v.21), will so plainly go against His Own Nature of a just judge.
 
@@ -3192,6 +3206,8 @@ Here, it is clear that God sends angels to see and to act, and angels act and sp
 18:25: **Shall not the Judge of all the earth do right?** Abraham’s clear understanding of God’s character being able only to do what is good and totally above reproach was affirmed with this rhetorical question. (MacArthur)
 
 18:25: **Shall not ... the Judge .. do what is just?**. It is clear that Abraham does not see God merely being in a position of a judge, but he sees God as a just judge, doing what is right. God will never misuse His power, but will always do what is right.
+
+18:25: **Судия всей земли поступит ли неправосудно**. Этот стих представляет собой один из важнейших членов патриархальной религии, заключая в себе торжественное исповедание веры в Бога, как всемогущего Судью всей вселенной, судящего мир по законам высшей правды, строго разделяющей виновных от невинных. (ср. Втор. 10:17: "не смотрит на лица и не берет даров"; Иов. 34:19: "не смотрит и на лица князей и не предпочитает богатого бедному, потому что все они дело рук Его"; Иер. 31:29-30: "каждый будет умирать за свое собственное беззаконие; кто будет есть кислый виноград, у того на зубах и оскомина будет"; Иез. 18:20: "Душа согрешающая, она умрет; сын не понесет вины отца, и отец не понесет вины сына, правда праведного при нем и остается, и беззаконие беззаконного при нем и остается"; Мф. 13:28-29: "Но он сказал: нет, - чтобы, выбирая плевелы, вы не выдергали вместе с ними пшеницы"; Рим. 2:11: "Ибо нет лицеприятия у Бога"; Еф. 6:9: "Господь, у Которого нет лицеприятия"). (Лопухин А.П.)
 
 18:26: **And the Lord said**. Abraham has just said what may be seen as outspoken questioning of the sovereign Lord and indignation at what he thought was about to happen. “Far be it from you!” does not sound like something you say to God.
 Interestingly, **The Lord** does not rebuke such a blunt statement, but answers. After all, God Himself opened the possibility for that conversation by deciding to reveal to Abraham what He was about to do (v. 17).
