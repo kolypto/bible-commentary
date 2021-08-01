@@ -3215,9 +3215,17 @@ Interestingly, **The Lord** does not rebuke such a blunt statement, but answers.
 18:27: **I who am but dust and ashes**. Abraham speaks those words of humility before God whom he dared to question. When he had first asked God, there was no humility, but rather, questioning. 
 Perhaps, now Abraham’s indignation has settled down, and he started talking the way he should have from the very beginning. Perhaps this is why God was so patient with Abraham’s outburst: God who knows the heart surely knows that Abraham did not mean what his words looked like.
 
+18:27: **я, прах и пепел**. Велик был и достоин чести Авраам, но велик между человеками, а когда является пред Богом, тогда чистосердечно говорит: «я, прах и пепел». (Свт. Кирилл Иерусалимский)
+
+18:29: **Авраам продолжал говорить с Ним**. Или, как можно еще перевести с еврейского: «прибавил говорить, усилил свою просьбу». Вообще, все это заступничество Авраама за жителей Содома представляет собой пример горячей, неотступной мольбы, сопровождающейся, обычно, желанным успехом, по слову Спасителя: «просите и дастся вам, стучите и отверзнется» (Мф 7:7: "Просите, и дано будет вам ... ибо всякий просящий получает"; Лк 11:8: "по неотступности его, встав, даст ему, сколько просит"). (Лопухин А.П.)
+
 18:32: **For the sake of ten I will not destroy it**. From the following events it becomes clear that there were not even ten righteous people in the town of Sodom. At least, those that were there, God has led away from the city, for He has promised that He will not destroy the righteous with the wicked.
 
 18:32: **for the sake of ten**. Abraham does not dare to keep reducing the number, although logically, there must have been the final question: “What about if there is one rigteous person in the city; will you destroy the righteous with the wicked?”
+
+18:32: **Он сказал: не истреблю ради десяти**. Он обещает благодаря праведности немногих избавить от кары весь народ. Таким образом мы научаемся, каким даром для отчизны является праведный муж и что не следует завидовать святым мужам и по неразумию отказывать им в доверии. Ибо их вера спасает нас, их праведность защищает от истребления. Если бы Содом имел даже десять праведников, он мог бы избавиться от погибели. (Свт. Амвросий Медиоланский)
+
+18:32: **Он сказал: не истреблю ради десяти**. Но жители нечестивых городов настолько погрязли в нечестии и разврате, что не сохранилось в них и десяти праведников: таких, как видно из последующего контекста, нашлось только три человека - Лот и две его дочери, которые и были чудесно спасены Богом от всеобщей гибели (19 гл.). (Лопухин А.П.)
 
 18:33: **Abraham returned to his place**. Abraham may have ceased engaging in the conversation out of reverence, or maybe, because the principle has already been established: God will not punish the righteous along with the wicked.
 
@@ -3225,6 +3233,9 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 18:33: **Abraham returned to his place**. It is notorious that he did not go to see what would happen to Sodom. He has just talked with God Himself, he still trusts Him, and trusts so much that there is no need to go and see for yourself. The Lord has said, “I will not destroy the wicked with the righteous”, and it will be so. (Gen 15:6: “he believed the LORD, and he counted it to him as righteousness”). 
 
+18:33: **И пошел Господь, перестав говорить с Авраамом**. Неизвестно, Авраам ли прекратил свои молитвенные вопрошения, воображая, что в Содоме, конечно, найдутся десять праведников (Быт. 18:32), или Бог прервал свою с ним беседу Своим отшествием. (Свт. Филарет (Дроздов))
+
+18:33: **и Авраам возвратися на место свое**. Авраам возвра­тился на «место свое», т. е. к мамврийскому дубу, и уже отсюда в следующее утро видел дым и пламень от погиба­ющих городов (Быт. 19:28). Праведность Лота была такова, что, при ходатайстве Авраама, ее достаточно было только для спасения его одного с семейством от участи, постигшей нечестивых. (Еп. Виссарион (Нечаев))
 
 
 
@@ -3238,31 +3249,33 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 ### God Rescues Lot
 
 
-19:1: Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
+19:1: **The two angels**. Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
 
 19:1: **In the evening.** God has come to Abraham “in the heat of the day” (18:1). In the evening *of the same day* the angels have arrived to Sodom.
 
-19:1: Lot’s **sitting at the gate** means he was in a high esteem in the city: a decision-maker of sorts.
+19:1: **Lot was sitting in the gate of Sodom**. Since city officials and other prominent citizens conducted the community’s affairs at the gate, Lot participated there as a judge (v. 9: "became a judge"). (MacArthur)
 
-19:1: **Lot**’s actions closely mirror the reaction of Abraham: he immediately recognized that those guests were special, and **bowed down** to them, even though they were complete strangers.
+19:1: **He rose to meet them and bowed himself**. Lot’s actions closely mirror the reaction of Abraham: he immediately recognized that those guests were special, and bowed down to them, even though they were complete strangers.
 
-19:2: There are numerous parallels between how Abraham and Lot greet his visitors: greets them politely, offers hospitality, prepares a meal, and there’s no report of his wife assisting. By resembling Abraham, Lot demonstrates that he is righteous. (ESV)
+19:2: **to your servant's house**. There are numerous parallels between how Abraham and Lot greet his visitors: greets them politely, offers hospitality, prepares a meal, and there’s no report of his wife assisting. By resembling Abraham, Lot demonstrates that he is righteous. (ESV)
 
 19:3: **Pressed them strongly**. Angels refused, but let Lot convince themselves. Had they refused only to let him be insistent? Or did they give in to his pressure?
+
+19:3: **Pressed them strongly**. Lot’s invitation to the two angels (vv. 1–3) to partake of his hospitality was most likely not just courtesy, but an effort to protect them from the known perversity of the Sodomites. (MacArthur)
 
 19:3: **Unleavened bread**. The same bread that Israelites will eat when leaving Egypt. Since Lot is going to leave Sodom, this may be an allusion to the upcoming exodus.
 
 19:3: **Unleavened bread**. Implies that it was baked in haste. (ESV)
 
-19:4: **Before they lay down**. The news about the newcomers have spread quickly: it was “evening” (v. 1) when they came. It took the whole city a few hours to spread the news, decide, and gather **all the people to the last man**. Was it customary to greet strangers like this? Perhaps, Lot knew about this custom, and this was one of the reasons why he had invited those angels?
+19:4: **Before they lay down**. The news about the newcomers have spread quickly: it was “evening” (v. 1) when they came. It took the whole city a few hours to spread the news, decide, and gather all the people to the last man. Was it customary to greet strangers like this? Perhaps, Lot knew about this danger, and this was one of the reasons why he had invited those angels into his house?
 
-19:4: **All the people** have become a gang seeking an orgy of rape. (ESV)
+19:4: **All the people**. All the people have become a gang seeking an orgy of rape. (ESV)
 
-19:5: **Know them** denotes sexual intercourse (cf. v. 8: “have not *known* any man”). (ESV)
+19:5: **Know them**. Denotes sexual intercourse (cf. v. 8: “have not *known* any man”). (ESV)
 
 19:5: **Know them**. Lot’s earlier insistence (v. 3) that the visitors should not spend the night in the square indicates that he feared for their safety. (ESV)
 
-19:7: **Brothers**. By addressing some of the people as **brothers**, he is showing his connection with them. Even though he does not participate in their wickedness to the same extent, Lot has gotten attached to the city and its people. Perhaps, there were some close friends whom he called **brothers**.
+19:7: **Brothers**. By addressing some of the people as "brothers", he is showing his connection with them. Even though he does not participate in their wickedness to the same extent, Lot has gotten attached to the city and its people. Perhaps, there were some close friends whom he called brothers.
 
 19:8: **Let me bring you my daughters**. In desperation he offers his two unmarried daughters as substitutes: a shocking, cowardly, and inexcusable act (even if he intended this only as a bluff, or expected the offer to be rejected). The reaction of the crowd only confirms the truly evil nature of their intentions. (ESV)
 
@@ -3272,38 +3285,63 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 19:8: **Only do nothing to these men**. Lot’s exhibits perverted judgment: he sees great evil in sodomy, but sees only a lesser, an acceptable perhaps, evil, in the abuse of his both daughters. His actions flow from great charity: a strong desire to protect his guests, even in the face of danger; but due to some perverted judgment, Lot’s love results in a most imprudent and sinful motion, whereby he yielded to one sin to prevent another, contrary to Romans 3:8 (“Let us do evil that good may come? … Their condemnation is just.”).
 
-19:12: (__Lot’s righteousness__) The NT tells us that **Lot** was a righteous man (2 Peter 2:7-8: “righteous man…, he was tormenting his righteous soul over their lawless deeds that he saw and heard”). This also clear here because God has promised not to destroy the righteous with the wicked, so He warns the righteous.
+19:8: **Only do nothing to these men**. Lot offered his daughters for a less deviant kind of wickedness so as to protect his guests. This foolish effort shows that while Lot was right with God, he had contented himself with some sins and weak faith rather than leaving Sodom. But God was gracious to him because he was righteous, by faith, before God. (MacArthur)
 
-19:12: (__Lot’s righteousness__) **Lot** was righteous only relatively; and though his soul was daily vexed by what he saw, it was not vexed enough to make him quit such evil surroundings, and return to the healthy and virtuous life of the mountains. And, when finally he sought refuge in them, as it was not of his own free will, but on compulsion (v. 30). 
+19:9: **This fellow came to sojourn**. He never quite assimilated, always being known as a foreigner. Perhaps, he was chosen to be a judge a the gate because people knew him being just .. but all the same, he was always seen as a foreigner.
+
+19:12: (__Lot’s righteousness__) **bring ［your family］ out of the place**. The NT tells us that Lot was a righteous man (2 Peter 2:7-8: “righteous man…, he was tormenting his righteous soul over their lawless deeds that he saw and heard”). This also clear here because God has promised not to destroy the righteous with the wicked, so He warns the righteous to leave the city. He also grants lives to his family, regardless whether they were righteous or not.
+
+19:12: (__Lot’s righteousness__) **bring ［your family］ out of the place**. Lot was righteous only relatively; and though his soul was daily vexed by what he saw, it was not vexed enough to make him quit such evil surroundings, and return to the healthy and virtuous life of the mountains. And, when finally he sought refuge in them, as it was not of his own free will, but on compulsion (v. 30). 
 The warning of his fall is, that men who part with religious privileges for the sake of worldly advantage are in danger of sinking into moral degradation, and of losing, with their faith and hope, not only their self-respect and happiness, but even that earthly profit for the sake of which they sacrificed their religion.
 (Ellicott's Commentary)
 
-19:12: While **Lot** was righteous, some of his family were not (cf. the conduct or his daughters in v.32). God still gave Lot the possibility to take the whole family with him. Why?
+19:12: ⭐ **bring ［your family］ out of the place**. While Lot was righteous, some of his family were not (cf. the conduct or his daughters in v.32). God still gave Lot the possibility to take the whole family with him. Why?
 First of all, it was a test: if Lot had a particular dislike for one of his in-laws, he might have had a temptation to leave that person behind. But Lot went out to want his sons-in-law (v. 14).
 Secondly, family ties: God recognizes that family ties are important for a person, and offers Lot a possibility to take his unrighteous family with him, just as He let Noah take some of his unrighteous family members (i.e. Ham).
 Thirdly, the possibility to witness a denial: God gives Lot the possibility to see for himself how his sons-in-law reject the salvation he offered (v. 14). It may well be that it was not the first time that they mocked his faith in an invisible God. They would have taken Lot’s words seriously otherwise.
 
+19:12: **Sons-in-law**. God knows that Lot's sons-in-law would not come with Lot, but He still offers to save them. Why? To give them a choice? To let Lot see for himself how they rejected salvation?
+
 19:13: **The outcry against its people has become great**. It is a recurring theme in the Bible that before God takes action, the measure of sins has to exceed a certain threshold, “be complete”. (Gen 15:16: "the iniquity of the Amorites is not yet complete.”; Dan 8:23: “when the transgressors have reached their limit”).
 
-19:14: Those two **sons-in-law** were unrighteous people, because they were ultimately destroyed together with the rest. Lot has given his daughters in marriage to unrighteous people.
+19:14: **Lot seemed to his sons-in-law to be jesting**. Those two sons-in-law were unrighteous people, because they were ultimately destroyed together with the rest. Lot has given his daughters in marriage to unrighteous people.
 
-19:15: **Your wife and your two daughters**. After Lot has heard the denial himself, **the angels** do not urge him to take them anymore. 
+19:16: ⭐ **But he lingered**. Why? Didn't he believe the angels? No, there is no doubt that that Lot has taken the warning seriously: he even spoke about it to other people. There was a different reason for his lingering: there was something dear to him in this town that he could not leave that easily.
+Whatever that was that held him, it was likely either sinful or foolish, because God has led his family out “being merciful to him”, which indicates forgiveness.
 
-19:16: **But he lingered**. There is no doubt that that Lot has taken the warning seriously, for he was speaking about the looming doom to other people. There was something dear to him in this town that he could not leave that easily.
-Whatever that was that held him, it was likely either sinful or foolish, because God has led his family out “**being merciful to him**”, which indicates forgiveness.
-
-19:16: **But he lingered**. This verse may mean that it was not Lot himself who was **lingering**, but his daughters. After all, Lot had to convince them too: two young betrothed girls whose bridegrooms were to remain and die in the flames.
-Thus, “he” may mean “them”, i.e. the whole family, just like “**they brought him out and set him outside the city**” means “they brought them and set them”.
+19:16: **But he lingered**. This verse may mean that it was not Lot himself who was lingering but his daughters. After all, Lot had to convince them too: two young betrothed girls whose bridegrooms were to remain and die in the flames.
+Thus, “he” may mean “them”, i.e. the whole family, just like “they brought him out and set him outside the city” means “they brought *them* out and set *them* outside the city”.
 
 19:17: **They brought them out**. By interchanging “him” and “them”, the text shows that the head of the family is identified with the whole family.
 
 19:17: **Do not look back**. Another indication of some strong attachment that Lot has developed to that place or something in it.
+
+19:20: **Behold, this city**. An urbanized lifestyle was apparently superior to a lonely one in the mountains and might be why Lot, playing upon the mercy already shown him, negotiated for an alternative escape destination—another city. 
+The angel’s reply indicated that this city was included in the original judgment plan, but would be spared for Lot’s sake.
+(MacArthur)
 
 19:21: **I grant you this favor**. God resolved to keep the town intact, even though the original plan was to destroy it. Some of the wicked go on living because of a single request of a righteous person.
 
 19:21: **I grant you this favor**. This is a case of a righteous person interceding for the unrighteous, and God hearing the request.
 
 19:22: **I can do nothing till you arrive there**. God cannot destroy the righteous with the wicked.
+
+19:1-22: (__How the life of righteous affects the unrighteous__).
+1. God will not destroy a sinful city if there is a handful of righteous people. God will not punish the righteous with the wicked
+2. Even though Lot's family is not righteous, God still saves those who join Lot willingly. Probably, for Lot's sake.
+3. A sinful town has been spared because of one request from the righteous person.
+Some sinful people only live because:
+* they matter to some righteous people
+* they live next to some righteous people
+
+
+
+
+
+
+
+
+### God Destroys Sodom
 
 19:23: **The sun had risen**. The angels had come to Sodom in the evening (v. 1)
 
