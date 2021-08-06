@@ -3248,14 +3248,21 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 ### God Rescues Lot
 
-
 19:1: **The two angels**. Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
 
 19:1: **In the evening.** God has come to Abraham “in the heat of the day” (18:1). In the evening *of the same day* the angels have arrived to Sodom.
 
 19:1: **Lot was sitting in the gate of Sodom**. Since city officials and other prominent citizens conducted the community’s affairs at the gate, Lot participated there as a judge (v. 9: "became a judge"). (MacArthur)
 
+19:1: **вечером, когда Лот сидел у ворот Содома**. Лот, зная крайнее развращение жителей содомских, не опускал и вечернего времени, а ждал даже до этого времени, не встретится ли ему какое-нибудь сокровище, и нельзя ли ему будет пожать плоды страннолюбия. 
+Поистине, надобно удивляться величию добродетели этого праведника: когда все, так сказать, неслись по стремнинам, он один среди такого множества шел ровным путем.
+(Свт. Иоанн Златоуст)
+
 19:1: **He rose to meet them and bowed himself**. Lot’s actions closely mirror the reaction of Abraham: he immediately recognized that those guests were special, and bowed down to them, even though they were complete strangers.
+
+19:1: **Лот увидел, и встал, чтобы встретить их, и поклонился лицем до земли**. Не говори мне, что это были ангелы; но подумай о том, что праведник не знал еще этого, а принимал их, как людей незнакомых, мимоидущих, и такою мыслью руководился тогда в своих поступках. (Свт. Иоанн Златоуст)
+
+19:1: **и поклонился лицем до земли**. Лот **встал, чтобы встретить их**, как и обыкновенно встречал он странников. Но, приближаясь к ним, в одном из двух пришедших узрел то же, что Авраам видел в одном из трех, **и поклонися лицем на землю**. (Прп. Ефрем Сирин)
 
 19:2: **to your servant's house**. There are numerous parallels between how Abraham and Lot greet his visitors: greets them politely, offers hospitality, prepares a meal, and there’s no report of his wife assisting. By resembling Abraham, Lot demonstrates that he is righteous. (ESV)
 
@@ -3271,11 +3278,25 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 19:4: **All the people**. All the people have become a gang seeking an orgy of rape. (ESV)
 
+19:4: **весь народ со всех концов города**. Слова: весь народ, конечно, не могут быть здесь приняты в точном и полном знаменовании. Означается ими многочисленное смешанное скопище. Впрочем, столь невероятное устремление зверской толпы на двух странников изъясняется надеждою ненаказанности. (Свт. Филарет (Дроздов))
+
 19:5: **Know them**. Denotes sexual intercourse (cf. v. 8: “have not *known* any man”). (ESV)
 
 19:5: **Know them**. Lot’s earlier insistence (v. 3) that the visitors should not spend the night in the square indicates that he feared for their safety. (ESV)
 
+19:5: **выведи их к нам; мы познаем их**. Какое великое согласие во зле, какое сильное стремление ко греху, несказанная чрезмерность беззакония, непростительное намерение!
+Не оставим, возлюбленные, этих слов без внимания; заметим не только все неистовство их (содомлян), не заслуживающее никакого прощения, поразмыслим и о том, как праведник, живя среди таких зверей, так просиял и показал столь великое превосходство добродетели, – как он мог переносить их беззаконие, как не бежал из такого города, как терпел какой-либо разговор с ними.
+Я объясню, как это было. Господь устроил так, что между ними поселился этот праведник, для того, чтобы он, как наилучший врач, мог обуздывать силу их злых болезней. И хотя праведник видел, что они уже заражены неисцельными болезнями, и не хотят принимать никакого врачевания, но все-таки не оставил их. Таково свойство врача: хотя он и видит, что болезнь не поддается его искусству, однако ж не перестает исполнять свой долг. Тогда он тем больше для себя оправдания в том, что с своей стороны он ничего не оставил, что только мог сделать. Так было и здесь.
+Праведник, не смотря на то, что жил среди таких людей, остался праведным и сохранял любовь к добру; а они лишились всякого прощения потому, что не только не оставили зла, но более и более умножали его. 
+(Свт. Иоанн Златоуст)
+
+19:6: **Лот вышел к ним ко входу, и запер за собою дверь**. С опасностью для собственной жизни, Лот выходит к этой озверевшей толпе и сначала лаской, а затем даже и жертвой пытается отклонить ее от ее преступного намерения. (Лопухин А.П.)
+
 19:7: **Brothers**. By addressing some of the people as "brothers", he is showing his connection with them. Even though he does not participate in their wickedness to the same extent, Lot has gotten attached to the city and its people. Perhaps, there were some close friends whom he called brothers.
+
+19:7: **братья мои, не делайте зла**. О, долготерпение праведника! О, глубина смирения! Обращаться с такими людьми с такою кротостию – вот истинная добродетель. Без сомнения, желая уврачевать больного, или образумить беснующегося, никто не делает этого с гневом и жестокостию. Смотри же, как он называет братьями хотевших совершить такое преступление, желая устыдить их, пробудить их совесть и отклонить их от гнусного намерения. (Свт. Иоанн Златоуст)
+
+19:7: **братья мои, не делайте зла**. Обращаясь к ним с таким братским приветствием, Лот думал пробудить в них лучшие чувства и подействовать на их благоразумие; но это было напрасно, так как, при господстве разнузданности низших инстинктов, все высшие и благородные чувства были уже мертвы у содомлян. (Лопухин А.П.)
 
 19:8: **Let me bring you my daughters**. In desperation he offers his two unmarried daughters as substitutes: a shocking, cowardly, and inexcusable act (even if he intended this only as a bluff, or expected the offer to be rejected). The reaction of the crowd only confirms the truly evil nature of their intentions. (ESV)
 
