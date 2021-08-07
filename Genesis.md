@@ -3308,7 +3308,15 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 19:8: **Only do nothing to these men**. Lot offered his daughters for a less deviant kind of wickedness so as to protect his guests. This foolish effort shows that while Lot was right with God, he had contented himself with some sins and weak faith rather than leaving Sodom. But God was gracious to him because he was righteous, by faith, before God. (MacArthur)
 
+19:8: **вот у меня две дочери**. Св. Златоуст говорит, что сей поступок Лота выше всякого странноприимства ("Какая добродетель в праведнике! Она превосходит всякое страннолюбие! Кто достойно восхвалит такую любовь этого праведника"). Но некоторые новейшие толкователи осуждают оный, полагая, что для отвращения злодеяния не должно подавать совет на другое злодеяние, ниже спасать невинность погибелью невинности. (Свт. Филарет (Дроздов))
+
+19:8: **вот у меня две дочери**. Дабы дать сему поступку истинную цель, должно приметить раздельно, что Лот вместо большего преступления предлагает Содомлянам меньшее, так, как бы кто разбойнику, покушающемуся на человекоубийство, для уменьшения зла предложил довольствоваться грабительством; что дочерей своих он подвергает только несчастию, а не преступлению, ибо насилие не может нарушить целомудрия; что права гостеприимства, особенно важные в древности, и вообще любовь к ближнему оправдали бы его. (Свт. Филарет (Дроздов))
+
+19:8: **вот у меня две дочери**. При всем том должно признать первую погрешность, или грех Лота в том, что он жил и располагался вступить в родственные связи в таком народе, которого разврат не мог быть ему неизвестен. (Свт. Филарет (Дроздов))
+
 19:9: **This fellow came to sojourn**. He never quite assimilated, always being known as a foreigner. Perhaps, he was chosen to be a judge a the gate because people knew him being just .. but all the same, he was always seen as a foreigner.
+
+19:11: **поразили слепотою**.о мнению большинства экзегетов, наказание неистовых содомлян не было простой физической слепотой, или полным лишением их зрения, а состояло в слепоте ума и внешних чувств, т. е. в некотором беспорядке ощущений и воображения, препятствовавшем им различать и узнавать предметы, наподобие поражения аналогичной слепотой сирийских войск по молитвам пророка Елисея (4 Цар. 6:15-20) (Лопухин А.П.)
 
 19:12: (__Lot’s righteousness__) **bring ［your family］ out of the place**. The NT tells us that Lot was a righteous man (2 Peter 2:7-8: “righteous man…, he was tormenting his righteous soul over their lawless deeds that he saw and heard”). This also clear here because God has promised not to destroy the righteous with the wicked, so He warns the righteous to leave the city. He also grants lives to his family, regardless whether they were righteous or not.
 
@@ -3323,9 +3331,17 @@ Thirdly, the possibility to witness a denial: God gives Lot the possibility to s
 
 19:12: **Sons-in-law**. God knows that Lot's sons-in-law would not come with Lot, but He still offers to save them. Why? To give them a choice? To let Lot see for himself how they rejected salvation?
 
+19:12: **всех выведи из сего места**. Господь являет особенную милость дому Лота, обещая спасение всем его членам, кого бы только ни захватил Лот с собою. (Лопухин А.П.)
+
 19:13: **The outcry against its people has become great**. It is a recurring theme in the Bible that before God takes action, the measure of sins has to exceed a certain threshold, “be complete”. (Gen 15:16: "the iniquity of the Amorites is not yet complete.”; Dan 8:23: “when the transgressors have reached their limit”).
 
-19:14: **Lot seemed to his sons-in-law to be jesting**. Those two sons-in-law were unrighteous people, because they were ultimately destroyed together with the rest. Lot has given his daughters in marriage to unrighteous people.
+19:13: **ибо мы истребим сие место**. Услышьте слова эти вы, закрывающие двери перед странниками, услышьте это вы, избегающие гостей как врагов! Лот жил в Содоме. Не прочтем про другие его добрые дела: из всех них только гостеприимство здесь и упоминается. Спасается от огня, спасается от большого пожара только потому, что дом свой открыл для гостей. В гостеприимный дом пришли ангелы - в закрытые для гостей дома пришел огонь. (Ориген)
+
+19:13: **истребим сие место, потому что велик вопль на жителей его к Господу**. Так как жители Содома доказали свою полную нераскаянность, так что продолжение их жизни лишь увеличивало бы степень их виновности, то правосудный Бог и решается прекратить такое их существование. (Лопухин А.П.)
+
+19:14: **говорил с зятьями своими**. Очевидно, что зятья не находились среди ослепшей толпы: они бы поверили его словам, если бы были там, или хотя бы общались с другими содомлянами. Отсюда видно, что слова "все люди до единого" (ст. 4) являются преувеличением.
+
+19:14: ⭐ **Lot seemed to his sons-in-law to be jesting**. Those two sons-in-law were unrighteous people, because they were ultimately destroyed together with the rest. Lot has given his daughters in marriage to unrighteous people.
 
 19:16: ⭐ **But he lingered**. Why? Didn't he believe the angels? No, there is no doubt that that Lot has taken the warning seriously: he even spoke about it to other people. There was a different reason for his lingering: there was something dear to him in this town that he could not leave that easily.
 Whatever that was that held him, it was likely either sinful or foolish, because God has led his family out “being merciful to him”, which indicates forgiveness.
@@ -3333,19 +3349,36 @@ Whatever that was that held him, it was likely either sinful or foolish, because
 19:16: **But he lingered**. This verse may mean that it was not Lot himself who was lingering but his daughters. After all, Lot had to convince them too: two young betrothed girls whose bridegrooms were to remain and die in the flames.
 Thus, “he” may mean “them”, i.e. the whole family, just like “they brought him out and set him outside the city” means “they brought *them* out and set *them* outside the city”.
 
+19:16: **он медлил**. «Кажется, недоверчивая улыбка зятьев несколько подействовала на слабого характером Лота, и он сам стал колебаться оставлять город, жалея, вероятно, имущество и не вполне уверенный в предсказании Ангелов. Поэтому Ангелы «по милости Господней» выводят его силой» (Властов). (Лопухин А.П.)
+
+19:16: **он медлил**. Таковы земные пристрастия, что и смертная опасность не вдруг расторгает узы их. (Свт. Филарет (Дроздов))
+
 19:17: **They brought them out**. By interchanging “him” and “them”, the text shows that the head of the family is identified with the whole family.
 
 19:17: **Do not look back**. Another indication of some strong attachment that Lot has developed to that place or something in it.
 
+19:17: **не оглядывайся назад и нигде не останавливайся**. Практический смысл запрещения: промедление могло грозить гибелью. Нравственный смысл запрещения: такой прощальный взор на покинутый Лотом город свидетельствовал бы об его сочувствии и сожалении этого города, что, при виде разразившейся над ним небесной кары, было бы равносильно косвенному порицанию самого Бога за жестокость Его суда. (Лопухин А.П.)
+
+19:18: **я не могу спасаться на гору**. Мне недостаёт сил взойти на выршину горы. (Свт. Иоанн Златоуст) 
+
+19:18: **я не могу спасаться на гору**. Местом спасения для Лота и его семейства были назначены горы - по всей вероятности, горы Моавитские, окружающие с востока долину Иордана. Но он и здесь обнаруживает недостаток мужества и слабость воли, искушая божественное милосердие своей малодушной просьбой. (Лопухин А.П.)
+
 19:20: **Behold, this city**. An urbanized lifestyle was apparently superior to a lonely one in the mountains and might be why Lot, playing upon the mercy already shown him, negotiated for an alternative escape destination—another city. 
 The angel’s reply indicated that this city was included in the original judgment plan, but would be spared for Lot’s sake.
 (MacArthur)
+
+19:20: **он же мал**. Охваченный малодушным отчаянием, Лот думает, что он не успеет достигнуть такого далекого пункта, как Моавитские горы, и молит Господа, чтобы Он позволил ему укрыться на полпути к ним, в одном маленьком городке. 
+Лот дважды выставляет на вид особую незначительность этого городка, с одной стороны, для того, чтобы тем легче преклонить Господа к своей просьбе, с другой и потому, чтобы показать, что в нем, как в маленьком городе, не было той ужасающей испорченности, которая царила в больших городах, и что в силу этого он скорее других может быть пощажен от разрушения. (Лопухин А.П.)
 
 19:21: **I grant you this favor**. God resolved to keep the town intact, even though the original plan was to destroy it. Some of the wicked go on living because of a single request of a righteous person.
 
 19:21: **I grant you this favor**. This is a case of a righteous person interceding for the unrighteous, and God hearing the request.
 
 19:22: **I can do nothing till you arrive there**. God cannot destroy the righteous with the wicked.
+
+19:22: **Я не могу сделать дела, доколе ты не придешь туда**. Снисходя к просьбе, хотя и слабого волей, но чистого душой, Лота, Господь не только щадит ради него маленький город Сигор, но и отсрочивает наказание остальных городов до прихода Лота в Сигор. (Лопухин А.П.)
+
+19:22: **Я не могу сделать дела, доколе ты не придешь туда**. Значит, у Лота было достаточно времени добраться до Моавских гор. 
 
 19:1-22: (__How the life of righteous affects the unrighteous__).
 1. God will not destroy a sinful city if there is a handful of righteous people. God will not punish the righteous with the wicked
