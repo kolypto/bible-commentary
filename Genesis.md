@@ -3397,17 +3397,27 @@ Some sinful people only live because:
 
 ### God Destroys Sodom
 
-19:23: **The sun had risen**. The angels had come to Sodom in the evening (v. 1)
+19:23: **The sun had risen**. The angels had come to Sodom in the evening (v. 1), and this is the morning after.
+
+19:24: **brimstone**. "Brimstone" could refer to any inflammable substance. Perhaps, a volcanic eruption. (MacArthur)
+
+19:24: **brimstone .. from the Lord out of heavens**. Any natural explanation, about how the Lord used combustible sulfur deposits to destroy that locale, falters on this emphatic indication of miraculous judgment. (MacArthur)
+
+19:24: **rained on Sodom and Gomorrah sulfur and fire**. That area is now believed to be under the south end of the Dead Sea. (MacArthur)
 
 19:26: **Looked back**. She disobeyed God’s commandment, and in doing so, demonstrated her attachment to the city of the wicked. There was something in it that she loved even more than Lot had.
 
-19:27: **To the place**. After having pleaded with **the Lord** for the righteous in Sodom, Abraham went home: he saw no reason to sit and wait, like Johan would have. The evening came, the night has passed, and only in the morning (v. 23) the destruction came.
+19:27: **Abraham went .. to the place**. After having pleaded with **the Lord** for the righteous in Sodom, Abraham went home: he saw no reason to sit and wait, like Johan would have. The evening came, the night has passed, and only in the morning (v. 23) the destruction came.
 
-19:28: **And he looked down**. He did not yet know for sure that Lot, his nephew, was alive. It was only by faith that he could believe that God wouldn’t destroy the whole city.
+19:28: **like the smoke of a furnace**. This sight told Abraham that there were not even 10 righteous people in the city. 
+
+19:28: **like the smoke of a furnace**. At this point, Abraham couldn't know whether his nephew Lot was alive or died with the city. It is only by faith that Abraham could believe that God did not destroy Lot with the wicked. 
 
 19:29: **God remembered Abraham and sent Lot out**. The Bible draws a clear connection between Abraham’s intercession for the righteous of Sodom and God’s saving of their lives. Even though Abraham’s pleading was in line with God’s own will, Abraham’s “prayer” was somehow counted.
+This is a case of a righteous person interceding for another righteous person, and God fulfilling the request.
 
-19:21: **God remembered Abraham and sent Lot out**. This is a case of a righteous person interceding for another righteous person, and God fulfilling the request.
+
+### Lot and His Daughters
 
 19:30: **Zoar**. This town, Zoar, was to be destroyed, and has only been saved due to Lot’s intercession. It is full of wicked people, just like Sodom. 
 
