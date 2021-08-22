@@ -2741,6 +2741,12 @@ In response, God affirmed His promise with a remarkable ceremony where God gives
 
 
 
+
+
+
+
+
+
 ### Sarai and Hagar
 
 16:1: **Sarai .. had borne him no children**. No doubt, they have tried, but she was barren (Gen 11:30). Abram’s confidence must have faded, because everything looked like it was impossible to have children with her. Especially after all these years. Especially considering their age. Impossible.
@@ -2949,6 +2955,21 @@ The highest quality evidence indicates that circumcision does not decrease the s
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ### Isaac’s Birth Promised
 
 17:15: **да будет имя ей: Сарра**. Вы, братия мои, знаете, что когда жизнь человека изменяется и он вступает в жизнь иную, угодную Богу и более великую, чем первая, то изменяется и имя его. Ибо когда святые отцы наши делали успехи в духовном преуспеянии, то имена их [также] изменялись — они нарекались новым именем, начертанным письменами на небесных скрижалях. (Прп. Аммон)
@@ -2997,6 +3018,12 @@ The highest quality evidence indicates that circumcision does not decrease the s
 17:27: **Весь мужеский пол дома его**. И здесь нельзя не удивиться благоустройству дома Авраамова и послушанию его домочадцев и рабов. Ни один из них не воспрекословил совершению над собою обряда болезненного и, с первого взгляда, весьма странного. 
 С толикою силою вера и духовное помазание действует на все окружающее и все покоряет себе. 
 (Свт. Филарет (Дроздов))
+
+
+
+
+
+
 
 
 
@@ -3246,6 +3273,16 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 
 
+
+
+
+
+
+
+
+
+
+
 ### God Rescues Lot
 
 19:1: **The two angels**. Three men had come to the Abraham’s place (Gen 18:2), and Abraham had called them “The Lord”. Now, only **two men** remain, and they’re called **angels**.
@@ -3395,6 +3432,18 @@ Some sinful people only live because:
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
 ### God Destroys Sodom
 
 19:23: **The sun had risen**. The angels had come to Sodom in the evening (v. 1), and this is the morning after.
@@ -3442,6 +3491,24 @@ Some sinful people only live because:
 
 19:29: **God remembered Abraham and sent Lot out**. The Bible draws a clear connection between Abraham’s intercession for the righteous of Sodom and God’s saving of their lives. Even though Abraham’s pleading was in line with God’s own will, Abraham’s “prayer” was somehow counted.
 This is a case of a righteous person interceding for another righteous person, and God fulfilling the request.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### Lot and His Daughters
