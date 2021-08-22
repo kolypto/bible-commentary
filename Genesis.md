@@ -3515,17 +3515,46 @@ This is a case of a righteous person interceding for another righteous person, a
 
 19:30: **Zoar**. This town, Zoar, was to be destroyed, and has only been saved due to Lot’s intercession. It is full of wicked people, just like Sodom. 
 
+19:30: **went up out of Zoar**. Lot asked God to spare Zoar because he initially wanted to live there (v. 30: "was afraid to live there"), but then he quickly changed his mind and left the city and went where the angel originally told him to: "escape to the hills" (v. 17) where it's safe.
+
 19:30: **Afraid to live in Zoar**. Why afraid? 1) Lot may have been afraid for his daughters’ chastity. 2) He was afraid that people may learn that he had played a role in the destruction of Sodom. 3) He simply feared that God’s judgment may proceed and consume Zoar as well.
-The **fear** was sufficiently strong to drive the whole family into a distant **cave**.
+The fear was sufficiently strong to drive the whole family into a distant cave.
+
+19:30: **стал жить в горе, ибо он боялся жить в Сигоре**. Лота устрашить могли близость продолжающегося содомского пожара и содомские нравы жителей Цоара. Но как он был уже обнадежен Богом в безопасности города (ст. 21: "вот, в угодность тебе Я сделаю и это: не ниспровергну города, о котором ты говоришь"), то бегство из него было действием маловерия, почему и сопровождалось еще новым замешательством. (Свт. Филарет (Дроздов))
+
+19:30: **Жил в пещере**. Сей род жилища, хотя показывает нужду, впрочем, не был необычайным в странах, лежащих около Иудеи. (Свт. Филарет (Дроздов))
 
 19:31: **Not a man on earth to come in to us**. Why did they say so? 1) Looking at the smoking brimstone down in the valley, they may have thought that the whole world have come to an end. 2) They may have thought that Zoar would be destroyed as well. 3) There may have been something wrong with the men of Zoar. Homosexuals? 4) Lot may have prohibited them from looking at the men of Zoar, for they were wicked.
 
 19:31: **Not a man on earth to come in to us**. Lot’s two daughters fear that the isolated location chosen by their father will prevent them from having husbands. (ESV)
 
-19:38: **The Moabites** and **the ammonites** would become Israel’s enemies.
+19:31: **after the manner of all the earth**. The immoral philosophy of Sodom had so corrupted the thinking of Lot's daughters that they, virgins, contrived to be impregnated by their own father. (MacArthur)
 
-19:38: Throughout the Bible, **the Ammonites** and Israelites are portrayed as mutual antagonists. During the Exodus, the Israelites were prohibited by the Ammonites from passing through their lands. The Ammonites soon allied themselves with Eglon of Moab in attacking Israel. (Wikipedia)
+19:31: **нет человека на земле, который вошел бы к нам**. Обрати внимание на цель, и ты освободишь их от всякого осуждения. Они думали, что в мире все совершенно погибло и уже не осталось никого из людей; притом же видели и старость отца. Итак они говорят: чтобы не прекратился род наш и нам не остаться без имени (и древние более всего заботились о том, чтобы чрез преемство поколений продолжить род свой), и так как отец наш сам никогда не потерпит и слышать об этом, то употребим обман, посредством вина. (Свт. Иоанн Златоуст)
 
+19:31: **нет человека на земле, который вошел бы к нам**. А так как они думали, что огненный потоп истребил целый мир, как во время Ноя был истреблен целый мир водным потопом, то и произойдет от нас третий мир, как от Ноева дома произошел второй, а от Адама и Евы - первый. (Прп. Ефрем Сирин)
+
+19:31: **нет человека на земле, который вошел бы к нам по обычаю всей земли**. Должно различить слова: *земля* и *вся земля*. Первое значит здесь страну, а последнее — вселенную. (Свт. Филарет (Дроздов))
+
+19:31: **нет человека на земле, который вошел бы к нам по обычаю всей земли**. Безмужием угрожали дочерям Лота его удаление от общежития, бедность и то, что страна, из которой он вышел, сделалась ужасною притчею в мире. (Свт. Филарет (Дроздов))
+
+19:32: **wine**. Most likely, Lot took some valuables (e.g. gold) from his possessions in Sodom, and this wine was purchased in Zoar.
+
+19:32: **напоим отца нашего вином, и переспим с ним**. Объяснением, а следовательно, и некоторым извинением поступка дочерей Лота служат условия обстановки всей предшествующей их жизни в обществе развращенных содомлян и под непосредственным влиянием недалеко ушедшей от своих сограждан матери. (Лопухин А.П.)
+
+19:32: **напоим отца нашего вином, и переспим с ним**. 
+
+19:33: **напоили отца своего вином**. Надобно все исследовать, чтобы неразумным и бесстыдным не оставить никакого предлога (к злоречию). Что же мы скажем и об этом? То, что он подвергся опьянению не столько от невоздержания, сколько от скорби душевной. (Свт. Иоанн Златоуст)
+
+19:36: **сделались обе дочери Лотовы беременными от отца своего**. Выше в моральном смысле Лота мы трактовали как мужественную душу, о жене же его, которая обернулась назад, отозвались как о плоти, которая предала себя вожделению и сладострастию. 
+И этим, о слушатель, не пренебрегай! Тебе следует быть осмотрительным, даже если ты избежал пламени мира и освободился от огня плоти, даже если ты поднялся выше города Сигора, который расположен где-то посередине… и кажется, что ты достиг такого знания, как вершина горы. Остерегись, как бы те две дочери не лежали в ожидании тебя, которые не покидают тебя, а идут за тобой, даже когда ты поднимаешься на гору. 
+Они суть Тщеславие и ее старшая сестра Гордыня. Смотри, как бы в свои ранящие объятья те дочери не затянули тебя, лишенного разума и спящего, когда видно, что ты ни чувствовать, ни знать не можешь. Их называют дочерьми, потому что они нападают на нас не извне, но из нас самих и как бы из непорочного состояния - от наших же поступков и как бы в единстве с нами. Будь поэтому настороже, насколько только можешь, и гляди, как бы не получить сыновей от этих дочерей. Потому что "рожденный от них не может войти в общество Господне" (Втор. 23:3). Но если ты желаешь рождать, рождай в духе, поскольку "сеющий в плоть свою от плоти, пожнет тление, а сеющий в дух, от духа пожнет жизнь вечную" (Гал. 6:8). (Ориген)
+
+19:38: **Moabites, Ammonites**. The two sons of incest became the progenitors of Moab and Ammon, Israel's longstanding enemies. (MacArthur)
+
+19:38: **the Ammonites**. Throughout the Bible, the Ammonites and Israelites are portrayed as mutual antagonists. During the Exodus, the Israelites were prohibited by the Ammonites from passing through their lands. The Ammonites soon allied themselves with Eglon of Moab in attacking Israel. (Wikipedia)
+
+19:38: **Моавитяне и Аммонитяне**. В силу своего взаимного родства, моавитяне и аммонитяне и в Библии нередко выступают вместе. Как дети греха и беззакония, они являются в Библии предметом проклятия и отвращения (Втор. 23:3: "Аммонитянин и Моавитянин не может войти в общество Господне, и десятое поколение их не может войти в общество Господне во веки"; 3 Цар. 11:6–7: "Тогда построил Соломон капище Хамосу, мерзости Моавитской, на горе, которая пред Иерусалимом, и Молоху, мерзости Аммонитской"; Ис. 16:12–14: "Хотя и явится Моав, и будет до утомления подвизаться на высотах, и придет к святилищу своему помолиться, но ничто не поможет"; 1 Пар. 20:3: "умерщвлял их пилами, железными молотилами и секирами. Так поступил Давид со всеми городами Аммонитян"), но, как родственные по плоти избранному народу еврейскому, они в конце концов имеют получить прощение и спасение (Иер. 48:47: "Но в последние дни возвращу плен Моава, говорит Господь. Доселе суд на Моава", 49:6: "Но после того Я возвращу плен сыновей Аммоновых, говорит Господь"). (Лопухин А.П.)
 
 
 
