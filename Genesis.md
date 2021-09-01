@@ -3576,35 +3576,57 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 ### Abraham and Abimelech
 
-20:2: Sarah is pregnant, and **Abimelech’s** actions put in jeopardy the fulfillment of God’s promise to Abraham that Sarah will bear him a son. (ESV)
+20:1: **Авраам поднялся оттуда**. Откуда он пошел? От того места, где жил в палатке, и где удостоился принять Господа с ангелами. (Свт. Иоанн Златоуст)
 
-20:2: Evidently **Sarah** looked much younger than her real age. (ESV)
+20:1: **был на время в Гераре**. Авраам переселился в землю Герарскую вскоре после разрушения Содома: потому что нужно, чтобы по наружности Сарры еще нельзя было ее признать беременною. А так как время до рождения Исаака составляет один год (Быт 18:10: "В назначенный срок буду Я у тебя в следующем году, и у Сарры будет сын"), то это переселение произошло вскоре после уничтожения Содома. 
+Чрез понятие о времени переселения Авраамова в Герары делается понятною причина переселения: ужас казни Содома и серный ядовитый смрад, распространявшийся от места истребления.
+(Свт. Филарет (Дроздов))
 
-20:2: **Abimelech** means “my father is king,” appears to have been a common royal name. The same name is mentioned in ch. 26 (see note on 26:1–2) and is given to later biblical figures. (ESV)
+20:2: **Sarah his wife**. Sarah is pregnant, and **Abimelech’s** actions put in jeopardy the fulfillment of God’s promise to Abraham that Sarah will bear him a son. (ESV)
+
+20:2: **she is my sister**. Twenty-five years after leaving Egypt in disgrace because of lying about his wife (12:10–20), Abraham reverted to the same ploy. (MacArthur)
+
+20:2: **Abimelech**. Abimelech means “my father is king”, which appears to have been a common royal name. The same name is mentioned in ch. 26 (see note on 26:1–2) and is given to later biblical figures. (ESV)
+
+20:2: **Abimelech**. He most likely is the father or grandfather of the Abimelech encountered by Isaac. See note on 26:1. (MacArthur)
+
+20:2: **Abimelech .. sent and took Sarah**. Abimelech did not come to propose; he just sent his men and took the woman he liked. Neither Abraham nor Sarah had a chance to reject such a "proposal", for Abimelech clearly was sure he could have any woman in his kingdom.
+
+20:2: **took Sarah**. Evidently Sarah looked much younger than her real age. (ESV)
 
 20:4: **Had not approached her**. This episode emphasizes in a variety of ways the important point that Sarah has not had intercourse with the king; otherwise, Abimelech could be the father of the son born to Sarah. (ESV)
 
-20:4-5: **Abimelech** must be a believer in **God**, because he calls Him **Lord** and talks about **integrity** and **innocence**: words of a man who can tell right from wrong.
+20:4-5: **Lord**. Abimelech must have been a believer in God, because he calls Him Lord and talks about **integrity** and **innocence**: words of a man who can tell right from wrong.
 
-20:6: God has orchestrated some circumstances that Abimelech did not lie with Sarah. He could already have.
+20:6: **It is I who kept you from sinning**. God has orchestrated some circumstances that Abimelech did not lie with Sarah. He could already have.
 
 20:7: **And all who are yours**. It is interesting how God is going to punish the whole kingdom for the sin of the king. This pattern proceeds through the OT, where the king is not only responsible for the kingdom, not only its representative, but also one with the kingdom — in both his vices and virtues.
 
-20:7: **Abraham** is the first person called **a prophet** in the OT. (ESV)
+20:7: **he is a prophet**. Abraham is the first person called "a prophet" in the OT. (ESV)
 
-20:7: The emphasis here is that **Abraham** can intercede on behalf of others. God wants a person to ask Him to do something, even though it is according to His will.
+20:7: **he is a prophet**. Abraham, in spite of his lie, still served as God’s intermediary and intercessor for Abimelech. (MacArthur)
+
+20:7: **he is a prophet**.  Usually, it is used to describe not one who speaks to God on behalf of someone, but one who speaks to someone on behalf of God. (MacArthur)
+
+20:7: **he will pray for you, and you shall live**. The emphasis here is that Abraham can intercede on behalf of others. God wants a person to ask Him to do something, even though it is according to His will.
+
+20:7: **you shall live**. See vv.17-18: all women in the house of Abimelech were struck with some disease that prevented them from giving birth.
+
+20:9: **things that ought not be done**. It is humiliating for the prophet of God to be so rebuked by a heathen king. (MacArthur)
 
 20:11: **No fear of God in this place**. Abraham now provides the reason he acted the same way in Egypt.
 
-20:12: Abraham reveals now, for the first time, that his words were not complete lies, but half-truth. He knew, however, that his half-truth will be misleading to others.
-
-20:13: **At every place to which we come**. This is the strategy they’ve chosen to employ in every land they visit. Even after the experience of Egypt, they did not learn not to act like that. Later, Abraham’s son does the very same thing.
+20:11: **There is no fear of God at all in this place**. Abraham's assumption was right, but God can act even where people don't know Him. Abraham could, and should have, relied on Him.
 
 20:11: **There is no fear of God at all in this place**. Abraham’s response betrays both his lack of faith in God and his misjudgment of the people of Gerar. The whole episode reveals that the king and his servants were God-fearing. (ESV)
 
-20:15: **My land is before you**. Abraham had wronged **Abimelech**, but the king, who is innocent, shows generosity to Abraham. Kings’s actions contrast sharply with Abraham’s self-serving deception. (ESV)
+20:12: **she is indeed my sister**. Abraham reveals now, for the first time, that his words were not complete lies, but half-truth. He knew, however, that his half-truth will be misleading to others.
 
+20:13: **At every place to which we come**. This is the strategy they’ve chosen to employ in every land they visit. Even after the experience of Egypt, they did not stop doing that. Later, Abraham’s son does the very same thing. It must be that Abraham still saw this way as a winning strategy.
 
+20:15: **My land is before you**. Abraham had wronged Abimelech, but the king, who is innocent, shows generosity to Abraham. Kings’s actions contrast sharply with Abraham’s self-serving deception. (ESV)
+
+20:15: **My land is before you**. By doing this Abimelech acknowledges wrong on his part as well. He acted unknowingly, but nevertheless, evil has been done, and he is trying to right it. But unlike the Pharaoh, he does not send Abraham away: this tells us that Abimelech had a good heart.
 
 
 
