@@ -7,6 +7,13 @@
 
 2:10: **Good works**. No person is saved *by* good works, but every believer is saved *for* good works. (MacArthur)
 
+2:10: **предназначил**. В послании к Ефесянам есть интересная деталь:
+"Ибо мы — Его творение, созданы во Христе Иисусе на добрые дела, которые Бог предназначил нам исполнять". (Еф 2:10)
+Здесь важное слово "предназначил". У него смысл не "указал", а "назначил заранее", "предопределил".
+То есть можно смотреть на жизнь христинина таким образом: это дорога, и на ней Бог уже заранее приготовил добрые дела. Они лежат и ждут нас. Мы до них доходим, и решаем: пройти мимо, или всё-таки взять.
+Эти возможности помочь ближнему не случайны. Они пред-определены.
+Так что да, если лежит доброе дело "нахаляву", надо брать :)) Оно там не случайно лежит.
+
 5:22: The prerequisites start in v. 19: have a joyful spirit; v. 20: be thankful, even for the trials (because they come from God and have a perfecting work); v.21: have an attitude of mutual submission, in which you consider others better than yourselves. These are the spiritual prerequisites for a successful marriage. (MacArthur)
 
 5:22: Sarah called her husband "**Lord**" (1 Pet 3:6). (MacArthur)

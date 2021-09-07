@@ -2986,12 +2986,12 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 7:13: (<u>the flow of the Sermon on the Mount</u>) Here is the appeal to which Jesus has been moving through the whole sermon. He gives the call to decide now about becoming a citizen of God's kingdom and inheriting eternal life, or remaining a citizen of this fallen world and receiving damnation. The way to life is on God's terms alone; the way to damnation is on any terms a person wants, because every way but God's leads to the same fate. (MacArthur)
 
+7:13: **Enter by the narrow gate**. There are only two gates: the narrow and the wide. There are only two ways, the narrow and the broad. Two destinations: life, and destruction. Two groups: the few, and the many. 
+Two kinds of trees: the good and the bad, which produce two kinds of fruit: the good and the bad. Two kinds of people who profess faith: the sincere and the false. (MacArthur)
+
 7:13: **enter by the narrow gate**. The inevitable decision that every person must make, the crossroads where he must decide on the **gate** he will enter and the **way** he will go. (MacArthur)
 
 7:13: **Enter** is an imperative: it demands a definite and specific action. The command is not to admire or to ponder the **gate**, but to **enter** it. (MacArthur)
-
-7:13: **Enter by the narrow gate**. There are only two gates: the narrow and the wide. There are only two ways, the narrow and the broad. Two destinations: life, and destruction. Two groups: the few, and the many. 
-Two kinds of trees: the good and the bad, which produce two kinds of fruit: the good and the bad. Two kinds of people who profess faith: the sincere and the false. (MacArthur)
 
 7:13: **narrow**. Narrow gate means that those who enter do so stripped of all they possess, rather than adding Jesus to their accumulated treasures and/or religious credentials. (MacArthur)
 
