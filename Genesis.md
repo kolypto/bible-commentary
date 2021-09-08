@@ -3683,7 +3683,7 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 20:18: **ибо заключил Господь всякое чрево**. Не могли рождать те, которым наступило уже время рождения. (Прп. Ефрем Сирин)
 
-
+20:18: ****. Безбрачие в Священном Писании считается наказанием за грех; оно-то именно и было избрано как наиболее чувствительное наказание для чадолюбивых филистимлян. (Лопухин А.П.)
 
 
 
@@ -3695,38 +3695,41 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 ### The Birth of Isaac
 
-21:1: **The LORD** had said, “I will surely return to you about this time next year, and Sarah your wife shall have a son.”. He did not just promise that she will conceive, but He promised *to return*. And He **visited** Sarah somehow, but no details are given. (Gen 18:10)
+21:1: **The LORD visited Sarah**. God had said, “I will surely return to you about this time next year, and Sarah your wife shall have a son.”. He did not just promise that she will conceive, but He promised *to return*. And He **visited** Sarah somehow, but no details are given. (Gen 18:10)
 
-21:2: **In his old age** emphasizes that **Abraham** was not able to have children anymore, so the child was born by God’s miracle. Rom 4:19 says that “his own body … was as good as dead”.
+21:2: **Bore Abraham a son in his old age**. "Old age" emphasizes that Abraham was not able to have children anymore, so the child was born by God’s miracle. Rom 4:19 says that “his own body … was as good as dead”.
 Abraham, however, was able to have more children after Sarah died. Probably, God has permanently returned Abraham his fertility.
 
 21:3: **Isaac**. God had said to call the son like that (Gen 17:19) because Sarah, who had been barren her whole life, **laughed** at God’s promise of a child in her old age.
 
-21:4: **As God had commanded him**. Commanded one year before Isaac was born. **Abraham** now exhibits obedience to the Lord who has just made His promise a reality.
+21:4: **As God had commanded him**. Commanded one year before Isaac was born. Abraham now exhibits obedience to the Lord who has just made His promise a reality.
 
-21:6: **Laughter** of disbelief has turned into a **laughter** of joy.
+21:6: **Laughter**. Laughter of disbelief has turned into a laughter of joy.
 
-21:7: **Sarah**’s words emphasize the impossible nature of what God has just done. A miracle. Impossible.
+21:7: **Who would have said..?**. Sarah’s words emphasize the impossible nature of what God has just done. A miracle. Impossible.
+
+
+### God Protects Hagar and Ishmael
 
 21:8: **Weaned**. Isaac was 2 or 3 years old already.
 
-21:9: **The son of Hagar** was already 16 years old at the time.
+21:9: **The son of Hagar**. He was already 16 years old at the time.
 
-21:9: That **laughing** was some sort of evil mocking. Gal 4:29 say that the son of Hagar actually “persecuted him who was born”, meaning some sort of abuse and mistreatment. **Laughing** was probably just one of the many ways Ismael persecuted Isaac.
+21:9: **saw the son .. laughing**. That laughing was some sort of evil mocking. Gal 4:29 say that the son of Hagar actually “persecuted him who was born”, meaning some sort of abuse and mistreatment. "Laughing" was probably just one of the many ways Ismael persecuted Isaac.
 
-21:9: The word “**laughing**” is ambiguous, and possibly favors “mocking”. **Ishmael** was probably **making fun** of Isaac’s role as Abraham’s promised son. (ESV)
+21:9: **saw the son .. laughing**. The word “laughing” is ambiguous, and possibly favors “mocking”. Ishmael was probably making fun of Isaac’s role as Abraham’s promised son. (ESV)
 
-21:10: **Sarah** is being cruel, but protective of her own child.
+21:10: **Cast out this slave woman with her son**. Sarah is being cruel, but protective of her own child.
 
-21:10: Abraham’s desire to fulfill the Lord’s promise by his own means has already started to bring trouble.
+21:11: **the thing was very displeasing**. Abraham’s desire to fulfill the Lord’s promise by his own means has already started to bring trouble.
 
-21:11: **On account of his son**. Abraham still viewed Ishmael as his own firstborn son and heir, and so was **displeased** of the tension in the family. The inheritance of God’s promise is clearly the issue here, because in the following verse God’s explanation rests on the naming of Isaac as the firstborn, the son of the promise.
+21:11: **On account of his son**. Abraham still viewed Ishmael as his own firstborn son and heir, and so was displeased of the tension in the family. The inheritance of God’s promise is clearly the issue here, because in the following verse God’s explanation rests on the naming of Isaac as the firstborn, the son of the promise.
 
 21:12: **do as she tells you**. While Abraham is reluctant to send Ishmael away, God reassures him that this is for the best. (ESV)
 
-21:12: **Through Isaac shall your offspring be named**. Even though **Ishmael** is older than **Isaac**, God confirms that **Isaac** will take priority over Ishmael. The importance of this is picked up in Rom 9:7-8: “and not all are children of Abraham because they are his offspring, but “Through Isaac shall your offspring be named.” This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring”. (ESV)
+21:12: **Through Isaac shall your offspring be named**. Even though Ishmael is older than Isaac, God confirms that Isaac will take priority over Ishmael. The importance of this is picked up in Rom 9:7-8: “and not all are children of Abraham because they are his offspring, but “Through Isaac shall your offspring be named.” This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring”. (ESV)
 
-21:16: **The child** was already 16 years old.
+21:16: **let me not look on the death of the child**. The child was already 16 years old.
 
 21:17: **God heard the voice of the boy**. Although this passage avoids using his personal name, “Ishmael” means “God hears” (ESV)
 
