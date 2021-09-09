@@ -3721,6 +3721,17 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 
 21:10: **Cast out this slave woman with her son**. Sarah is being cruel, but protective of her own child.
 
+21:10: **for the son of this slave woman shall not be heir with my son Isaac**. Ishmael was brought up as the heir, and now, when he's ~16 years old, another heir is to replace him. Sarah puts emphasis on words "my son", the true heir.
+
+21:10: **Cast out this slave**. Legal codes of Abraham's day (e.g. Nuzi and of Hammurabi) forbade the putting out of a handmaiden's son if a rightful, natural heir was born. Sarah's request, thus, offended:
+1. Social law
+2. Abraham's sensibilities
+3. His love for Ishmael (v. 11)
+Abraham, however, was given divine approval and assurances.
+(MacArthur)
+
+21:10: **cast out this slave woman with her son**. Ishael was about 17 years old: a customary time for sons to go out to set up their own lives. 
+
 21:11: **the thing was very displeasing**. Abraham’s desire to fulfill the Lord’s promise by his own means has already started to bring trouble.
 
 21:11: **On account of his son**. Abraham still viewed Ishmael as his own firstborn son and heir, and so was displeased of the tension in the family. The inheritance of God’s promise is clearly the issue here, because in the following verse God’s explanation rests on the naming of Isaac as the firstborn, the son of the promise.
@@ -3728,6 +3739,8 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 21:12: **do as she tells you**. While Abraham is reluctant to send Ishmael away, God reassures him that this is for the best. (ESV)
 
 21:12: **Through Isaac shall your offspring be named**. Even though Ishmael is older than Isaac, God confirms that Isaac will take priority over Ishmael. The importance of this is picked up in Rom 9:7-8: “and not all are children of Abraham because they are his offspring, but “Through Isaac shall your offspring be named.” This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring”. (ESV)
+
+21:14: **Wilderness of Beersheba**. A wide, extensive desert on the southern border of Israel. (MacArthur)
 
 21:16: **let me not look on the death of the child**. The child was already 16 years old.
 
@@ -3758,21 +3771,21 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 
 21:22: **God is with you in all that you do**. Abimelech attributes Abraham’s success to God. (ESV)
 
-21:23: **Swear to me that you will not deal falsely**. After having been deceived by Abraham once, Abimelech does not trust Abraham completely. He does not know what might be on that man’s mind.
-It is quite interesting: it seems that Abraham was not any sort of stained-glass saint. He clearly did not make an impression of man who can be trusted and would always do what is right. 
+21:23: ⭐ **Swear to me that you will not deal falsely**. After having been deceived by Abraham once, Abimelech does not trust Abraham completely. He does not know what might be on that man’s mind.
+It seems that Abraham was not any sort of stained-glass saint. He clearly did not make an impression of man who can be trusted and would always do what is right. 
 Abimelech needed an oath: a guarantee that is unbreakable because he sees how God acts.
 
-21:25: Before sealing the treaty, **Abraham** raises the contentious issue of ownership of **a well**. The covenant or treaty was designed to prevent conflict between the two parties. (ESV)
+21:25: **Abraham reproved Abimelech about a well**. Before sealing the treaty, Abraham raises the contentious issue of ownership of a well. The covenant or treaty was designed to prevent conflict between the two parties. (ESV)
 
-21:25: It seems that Beersheba is here being established as the border, the point where Israel ends and Philistia starts. Abraham will swear that he will not deal falsely with Abimelech, but only after the issue with the land division is settled. The gift of seven ewe lambs to Abimelech confirms Abraham’s ownership of the well. 
+21:25: **that Abimelech's servants had seized**. It seems that Beersheba is here being established as the border, the point where Israel ends and Philistia starts. Abraham will swear that he will not deal falsely with Abimelech, but only after the issue with the land division is settled. The gift of seven ewe lambs to Abimelech confirms Abraham’s ownership of the well. 
 After Abimelech agrees with the well belonging to Abraham, there is no contention anymore, and Abraham is ready to swear that oath. Then Abimelech “returned to the land of the Philistines” (v. 32).
 Because Beersheba will mark the southern boundary of Israel, this episode may signify the first claiming of the land and the making of the first border.
 
-21:31: The Hebrew words for “**seven**” (**sheba‘**) and “oath” (shebu‘ah) are similar, it could also mean “**well of the oath**.” Perhaps the name was chosen because it embraced both concepts. (ESV)
+21:31: **Beersheba**. The town of Beersheba, located in the northern Negeb, became famous as marking the southern boundary of Israel. (ESV)
 
-21:31: The town of **Beersheba**, located in the northern Negeb, became famous as marking the southern boundary of Israel. (ESV)
+21:31: **Beersheba**. The Hebrew words for “seven” (sheba‘) and “oath” (shebu‘ah) are similar, it could also mean “well of the oath”. Perhaps the name was chosen because it embraced both concepts. (ESV)
 
-21:32: The use of the term “**Philistines**” here is generally taken to be anachronistic, since the name is normally associated with non-Canaanites from the Aegean region who inhabited southwest Canaan from about 1180 B.C. onward—nearly a thousand years after Abraham’s time. (In 1 Samuel the Philistines are portrayed as the main opponents of the Israelites.) In light of this, the term may be used here and elsewhere to replace an earlier, obscure term; Genesis contains various examples of such modernizations. (ESV)
+21:32: **Philistines**. The use of the term “Philistines” here is generally taken to be anachronistic, since the name is normally associated with non-Canaanites from the Aegean region who inhabited southwest Canaan from about 1180 B.C. onward—nearly a thousand years after Abraham’s time. (In 1 Samuel the Philistines are portrayed as the main opponents of the Israelites.) In light of this, the term may be used here and elsewhere to replace an earlier, obscure term; Genesis contains various examples of such modernizations. (ESV)
 
 21:33: **Everlasting God** (Hb. ’El ‘Olam). ’El = God, followed ‘Olam: the attribute “of everlastingness”. (ESV)
 
