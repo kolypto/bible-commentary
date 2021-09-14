@@ -3697,6 +3697,8 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 21:1: **The LORD visited Sarah**. God had said, “I will surely return to you about this time next year, and Sarah your wife shall have a son.”. He did not just promise that she will conceive, but He promised *to return*. And He **visited** Sarah somehow, but no details are given. (Gen 18:10)
 
+21:1: **И посетил Господь Сарру**. Посещение Божие здесь не значит явления Божия, как то думают некоторые. Писатель сам изъясняет слово посетил словом сотворил. Бог посещает действиями Своего Промысла, ощутительными и решительными. (Свт. Филарет (Дроздов))
+
 21:2: **Bore Abraham a son in his old age**. "Old age" emphasizes that Abraham was not able to have children anymore, so the child was born by God’s miracle. Rom 4:19 says that “his own body … was as good as dead”.
 Abraham, however, was able to have more children after Sarah died. Probably, God has permanently returned Abraham his fertility.
 
@@ -3708,10 +3710,16 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 
 21:7: **Who would have said..?**. Sarah’s words emphasize the impossible nature of what God has just done. A miracle. Impossible.
 
+21:7: **Сарра будет кормить детей грудью**. Для того и сообщены ей источники молока, чтобы удостоверять в действительности рождения, чтобы кто-нибудь не стал считать дитя за подложное. Чтобы не счел кто младенца подкинутым, источники молока удостоверяли в за­конности его рождения: чтобы  все видели, как женщина, состарившаяся и дожившая до самых преклонных лет, имеет грудного младенца. (Свт. Иоанн Златоуст)
+
 
 ### God Protects Hagar and Ishmael
 
 21:8: **Weaned**. Isaac was 2 or 3 years old already.
+
+21:8: **когда Исаак отнят был от груди**. Время кормления младенцев молоком, по мнению Иеронима (Quaest. Heb.), продолжалось в древности пять лет. Следы обыкновения сего можно примечать в истории Самуила (1 Цар. 1:22: "когда младенец отнят будет от груди и подрастет"; 1 Цар. 2:11). При Маккавеях и, как кажется, еще при царях Иудейских время доения оканчивалось третьим годом возраста (2 Мак. 7:27: "три года питала тебя молоком"; 2 Пар. 31:16: "всем мужеского пола от трех лет и выше"). (Свт. Филарет (Дроздов))
+
+21:8: **и Авраам сделал большой пир в тот день**. Иудейские раввины и Коран доселе предписывают не кончать ［периода кормления］  раньше двух лет. Завершение этого периода праздновалось торжественным семейным пиром, в котором уже мог принимать некоторое участие и сам виновник его. (Лопухин А.П.)
 
 21:9: **The son of Hagar**. He was already 16 years old at the time.
 
