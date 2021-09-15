@@ -3727,6 +3727,8 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 
 21:9: **saw the son .. laughing**. The word “laughing” is ambiguous, and possibly favors “mocking”. Ishmael was probably making fun of Isaac’s role as Abraham’s promised son. (ESV)
 
+21:9: **насмехается**. Апостол Павел смех Измаила называет гонением на Исаака (Гал. 4:29). Оно могло состоять в том, что дерзкий отрок, которому мать успела внушить гордую мысль о первородстве, позавидовал торжеству, сделанному для младшего брата, и тотчас отметил свое мнимое оскорбление знаками поругания и презрения к невинному младенцу. (Свт. Филарет (Дроздов))
+
 21:10: **Cast out this slave woman with her son**. Sarah is being cruel, but protective of her own child.
 
 21:10: **for the son of this slave woman shall not be heir with my son Isaac**. Ishmael was brought up as the heir, and now, when he's ~16 years old, another heir is to replace him. Sarah puts emphasis on words "my son", the true heir.
@@ -3740,6 +3742,12 @@ Abraham, however, was given divine approval and assurances.
 
 21:10: **cast out this slave woman with her son**. Ishael was about 17 years old: a customary time for sons to go out to set up their own lives. 
 
+21:10: **увидела, что сын .. насмехается.., и сказала: выгони эту рабыню и сына ее**. Сарра видела, что и сама она находится в глубокой старости, и праотец уже достиг преклонных лет (так как оба уже прожили много лет), и опасалась, чтобы, в случае внезапной их смерти, Измаил, по праву рождения от семени праотца, не стал домогаться участия в наследии отца и равнять себя с Исааком, поэтому и стала говорить: "выгони их". 
+Сарра поступила в этом случае не несправедливо, а очень справедливо, и так справедливо, что и Сам Бог одобрил ее слова. А праотец, будучи любвеобилен и привязан к Измаилу, с неудовольствием принял слова Сарры.
+(Свт. Иоанн Златоуст)
+
+21:10: **насмехается**. Требование Сарры могло бы казаться пристрастным или строгим, но она в сем случае выше суждения человеческого, потому что была вдохновлена и оправдана Самим Богом. (Свт. Филарет (Дроздов))
+
 21:11: **the thing was very displeasing**. Abraham’s desire to fulfill the Lord’s promise by his own means has already started to bring trouble.
 
 21:11: **On account of his son**. Abraham still viewed Ishmael as his own firstborn son and heir, and so was displeased of the tension in the family. The inheritance of God’s promise is clearly the issue here, because in the following verse God’s explanation rests on the naming of Isaac as the firstborn, the son of the promise.
@@ -3747,6 +3755,10 @@ Abraham, however, was given divine approval and assurances.
 21:12: **do as she tells you**. While Abraham is reluctant to send Ishmael away, God reassures him that this is for the best. (ESV)
 
 21:12: **Through Isaac shall your offspring be named**. Even though Ishmael is older than Isaac, God confirms that Isaac will take priority over Ishmael. The importance of this is picked up in Rom 9:7-8: “and not all are children of Abraham because they are his offspring, but “Through Isaac shall your offspring be named.” This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring”. (ESV)
+
+21:12: **Что ни скажет тебе Сарра, слушайся слов ее**. Чрез Сарру Бог открывает волю Свою о Измаиле и Агари, дабы первоначальную погрешность ее собственной о них воли ею же исправить и в то же время утешить ее в претерпенном от них. (Свт. Филарет (Дроздов))
+
+21:13: **и от сына рабыни Я произведу народ**. Утешая Авраама в этой, все же нелегкой для него, разлуке, Бог удостоверяет его, что этим новым повелением Он отнюдь не отменяет Своего раннейшего обетования относительно Измаила (Быт. 17:20). (Свт. Филарет (Дроздов))
 
 21:14: **Wilderness of Beersheba**. A wide, extensive desert on the southern border of Israel. (MacArthur)
 
