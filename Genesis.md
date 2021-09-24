@@ -3762,11 +3762,13 @@ Abraham, however, was given divine approval and assurances.
 
 21:14: **Wilderness of Beersheba**. A wide, extensive desert on the southern border of Israel. (MacArthur)
 
+21:14: **взял хлеба и мех воды, и дал Агари**. Отпуская сына и жену с таким убогим напутствием, Авраам оказывает, по–видимому, большую жестокость, нежели та, которая возмутила его в Сарре. Однако сей поступок, без предосуждения, можно изъяснить тем, что он поспешает исполнить известную волю Божию, не беспокоясь о неизвестных от сего последствиях, и, может быть, с намерением оставляет Агарь беспомощною, дабы она прежде времени не удалилась от дома его. После он наградил Измаила так, как и других сынов, не признанных наследниками (Быт. 25:6: "а сынам наложниц, которые были у Авраама, дал Авраам подарки и отослал их от Исаака, сына своего"). (Свт. Филарет (Дроздов))
+
 21:16: **let me not look on the death of the child**. The child was already 16 years old.
 
 21:17: **God heard the voice of the boy**. Although this passage avoids using his personal name, “Ishmael” means “God hears” (ESV)
 
-
+21:19: **И Бог открыл глаза ее**. Некоторые полагают, что он открылся чудесно. Можно, впрочем, думать и так, что Агарь усмотрела кладезь, прежде не примеченный; ибо жители пустынь аравийских, по свидетельству Диодора (Bibl. LXIX), имеют обыкновение закрывать отверстия кладезей, ими устроенных, и делать неприметными. (Свт. Филарет (Дроздов))
 
 
 
@@ -3787,19 +3789,29 @@ Abraham, however, was given divine approval and assurances.
 
 ### A Treaty with Abimelech
 
+21:22: **God is with you in all that you do**. Abimelech attributes Abraham’s success to God. (ESV)
+
 21:22: **God is with you in all that you do**. No wonder: his house had been punished because of Sarah, and even God spoke to him personally saying that Abraham is a prophet. And now Abimelech sees an old man making children with an equally old lady, and attributing the glory for that to God! That man is full of miracles.
 
-21:22: **God is with you in all that you do**. Abimelech attributes Abraham’s success to God. (ESV)
+21:22: **с тобою Бог во всем, что ты ни делаешь**. Авимелех видит Авраама под особенным покровительством Божия Промысла, и потому поспешал утвердиться в благоволении предопределенного обладателя земли Ханаанской. (Свт. Филарет (Дроздов))
 
 21:23: ⭐ **Swear to me that you will not deal falsely**. After having been deceived by Abraham once, Abimelech does not trust Abraham completely. He does not know what might be on that man’s mind.
 It seems that Abraham was not any sort of stained-glass saint. He clearly did not make an impression of man who can be trusted and would always do what is right. 
 Abimelech needed an oath: a guarantee that is unbreakable because he sees how God acts.
+
+21:23: **что ты не обидишь ни меня, ни сына моего, ни внука моего**. Буквально с еврейского: если ты солжешь мне, или сыну моему, или внуку моему и проч. Речь сия, по свойству еврейского языка, не окончена. По некоторой благородной скромности здесь умолчена угроза или призывание Божия мщения. (Свт. Филарет (Дроздов))
+
+21:23: **ни сына моего, ни внука моего**. Как же тогда согласить этот договор с тем, что земля Филистимская, которая не была собственно и Хананейская, причислена после к наследию потомков Авраама? Тем, что филистимляне сами нарушили союз Авраамов, во дни Исаака (Быт. 26:14-15: "И все колодези, которые выкопали рабы отца его при жизни отца его Авраама, Филистимляне завалили и засыпали землею"); и хотя с сим последним заключили они новый союз, но в сем о потомстве уже не упоминается (Быт. 26:28-29: "мы ясно увидели, что Господь с тобою, и потому мы сказали: поставим между нами и тобою клятву и заключим с тобою союз, чтобы ты не делал нам зла, как и мы не коснулись до тебя"). (Свт. Филарет (Дроздов))
 
 21:25: **Abraham reproved Abimelech about a well**. Before sealing the treaty, Abraham raises the contentious issue of ownership of a well. The covenant or treaty was designed to prevent conflict between the two parties. (ESV)
 
 21:25: **that Abimelech's servants had seized**. It seems that Beersheba is here being established as the border, the point where Israel ends and Philistia starts. Abraham will swear that he will not deal falsely with Abimelech, but only after the issue with the land division is settled. The gift of seven ewe lambs to Abimelech confirms Abraham’s ownership of the well. 
 After Abimelech agrees with the well belonging to Abraham, there is no contention anymore, and Abraham is ready to swear that oath. Then Abimelech “returned to the land of the Philistines” (v. 32).
 Because Beersheba will mark the southern boundary of Israel, this episode may signify the first claiming of the land and the making of the first border.
+
+21:25: **за колодезь с водою**. Сколь тяжкую обиду составляет отнятие кладезя, о том должно судить по свойству страны Аравийской, которая, по свидетельству Диодора (Lib. XIX), совсем непроходима для тех, которые не заготовили для себя кладезей. (Свт. Филарет (Дроздов))
+
+21:25: **за колодезь с водою**.  Спор из-за водопоя был одним из главных поводов к неудовольствию и вражде между кочевыми, пастушескими племенами древней Сирии и Палестины (Быт. 26:20: "И спорили пастухи Герарские с пастухами Исаака, говоря: наша вода"; 13:8: "И сказал Аврам Лоту: да не будет раздора между мною и тобою, и между пастухами моими и пастухами твоими"; Исх. 2:16–17: "У священника Мадиамского было семь дочерей. Они пришли, начерпали воды и наполнили корыта, чтобы напоить овец отца своего, И пришли пастухи и отогнали их. Тогда встал Моисей и защитил их, и напоил овец их"), причем нередко он велся лишь между рабами, без ведома их господ (Быт. 13:7: "И был спор между пастухами скота Аврамова и между пастухами скота Лотова;"). (Лопухин А.П.)
 
 21:31: **Beersheba**. The town of Beersheba, located in the northern Negeb, became famous as marking the southern boundary of Israel. (ESV)
 
