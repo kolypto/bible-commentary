@@ -3854,31 +3854,30 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 
 ### The Sacrifice of Isaac
 
-22:1: **God tested Abraham**. Did He test Abraham because God needed more information about Abraham’s obedience in different situations? Surely not. God **tested Abraham** for his own sake: to purify him, to teach him something, to let him see and understand.
+22:1: **God tested Abraham**. Did He test Abraham because God needed more information about Abraham’s obedience in different situations? Surely not. God tested Abraham for his own sake: to purify him, to teach him something, to let him see and understand.
 God did not need that test. Abraham did.
 
-22:1: The genuineness of Abraham’s obedience to God is **tested**. While it is not unknown for God to test individuals, testing must be clearly distinguished from tempting. God does not tempt anyone to do evil (Jas 1:13: “ God cannot be tempted with evil, and he himself tempts no one”); he does, however, test the commitment of people (e.g., Ex. 15:25: “What shall we drink?”; 16:4: “grumbled against Moses”). (ESV)
+22:1: **tested**. The genuineness of Abraham’s obedience to God is tested. While it is not unknown for God to test individuals, testing must be clearly distinguished from tempting. God does not tempt anyone to do evil (Jas 1:13: “ God cannot be tempted with evil, and he himself tempts no one”); He does, however, test the commitment of people (e.g., Ex. 15:25: “What shall we drink?”; 16:4: “grumbled against Moses”). (ESV)
 
 22:1: **Here I am**. Abraham responds with readiness to listen and obey. So far, God has been patient with him and kind to him. However, the words that came must have made Abraham’s face turn pale.
 
-22:2: **Your son, your only son, whom you love**. Triple emphasis on the tender attitude Abraham had for his son emphasizes the essence of the test.
+22:2: **Your son, your only son, whom you love**. Triple emphasis on the tender attitude Abraham had for his son emphasizes the essence of the test and how difficult it was for Abraham to give his son up.
 
-22:2: **Your only son. **With the departure of Ishmael from Abraham’s household, Isaac had become Abraham’s **only son**. (ESV)
+22:2: **Your only son.** With the departure of Ishmael from Abraham’s household, Isaac had become Abraham’s **only son**. (ESV)
 
 22:2: **Of which I shall tell you**. This statement makes the command incomplete: Abraham will have to accomplish the immediate task at hand (take his son to Moriah and prepare everything needed for a burnt offering), but still be expecting further instructions. Abraham set off in an expectation of another word, knowing that he won’t be left without guidance.
 
-22:2: **Moriah**. According to 2 Chron. 3:1, Solomon constructed the temple on Mount Moriah in Jerusalem. Also,  It requires about two days to travel on foot from Beersheba to Jerusalem (v. 4: “on the third day). (ESV)
+22:2: **Moriah**. According to 2 Chron. 3:1, Solomon constructed the temple on Mount Moriah in Jerusalem. This means the mountain is in Jerusalem. It requires about two days to travel on foot from Beersheba to Jerusalem (v. 4: “on the third day). (ESV)
 
-22:3: **Abraham **displays remarkable trust in God, especially when the death of Isaac would appear to contradict all that God had promised to Abraham.
+22:3: **Abraham** displays remarkable trust in God, especially when the death of Isaac would appear to contradict all that God had promised to Abraham.
 
 22:3: **Rose early in the morning**. The lack of any other comment Indicates Abraham’s readiness to fulfill what God has just commanded.  Heb 11:17 says that Abraham did it “by faith”, because “He considered that God was able even to raise him from the dead” (Heb 11:19).
 
-22:4: **On the third day**. For three days straight Abraham was confident that he will have to kill “his son, his only son, whom he loves”.
+22:4: **On the third day**. For three days straight Abraham was confident that he will have to kill “his son, his only son, whom he loves”. Knowing this, they walked, talked, camped, and Abraham kept the secret to himself. Must have been a very difficult time: to spend three days guiding your son, your only son whom you love .. to death.
 
 22:4: **On the third day**. Elsewhere, two days also represents the time set aside to prepare for a special encounter with God on the third day (Ex 19:11: “be ready for the third day. For on the third day gthe LORD will come down on Mount Sinai in the sight of all the people”). Perhaps this sets the pattern for the significant “third day” (Mt 16:21, 1 Cor 15:4: “be killed and raised on the third day”). (ESV)
 
-22:5: **Stay here**. Abraham left them behind because he did not want them to see what was going to happen. He was absolutely ready to sacrifice his own son, if that is what his God wanted. 
-**Will come again to you**. However, Abraham was also confident that both of them will return. This is why the author of Hebrews confidently says that Abraham thought “God was able even to raise him from the dead” (Heb 11:19).
+22:5: **Stay here**. Abraham left them behind because he did not want them to see what was going to happen. He was absolutely ready to sacrifice his own son, if that is what his God wanted. **Will come again to you**. However, Abraham was also confident that both of them will return. This is why the author of Hebrews confidently says that Abraham thought “God was able even to raise him from the dead” (Heb 11:19).
 
 22:6: **Laid the wood on Isaac**. Isaac carrying the wood for his own sacrifice is a type of Christ carrying the cross for his own crucifixion.
 
@@ -3893,10 +3892,10 @@ It is possible that Abraham was less than sincere with Isaac (for Abraham has al
 
 22:9: **God had told him**. There probably was an unreported episode where God showed Abraham some specific mountain.
 
-22:9: **Bound Isaac his son**. There probably has been some wrestling, where Abraham had overpowered his beloved Son, immobilized him, then bound him with ropes. This is why Abraham has not told him anything, and this is why he hasn’t given Isaas the knife: because Isaac wouldn’t be willing to die. He would defend his life.
+22:9: **Bound Isaac his son**. There probably has been some wrestling, where Abraham had overpowered his beloved Son, immobilized him, then bound him with ropes. This is why Abraham has not told him anything, and this is why he hasn’t given Isaac the knife: because Isaac wouldn’t be willing to die. He would defend his life.
 Just imagine the feelings of a father: three days thinking about it on the way, then assaulting the one you love, your only son, then binding him. All that violence, and what’s ahead: murdering Isaac with his father’s hand.
 
-22:9: (__future trust__) How amazing must have been the faith of that person who could do all that, no hesitation, having heard just one word from his God! 
+22:9: (__future trust__) **Bound Isaac his son**. How amazing must have been the faith of that person who could do all that, no hesitation, having heard just one word from his God!
 After such an episode, it will be very easy for Abraham to obey God in any other matter. If you once trusted God with something dear, in a fearful labor… everything else is a breeze. You just trust. Period.
 
 22:10: **Авраам взял Нож**, потому что был уверен, что Бог что-нибудь придумает. Стих 8: “Бог усмотрит”. (Андроник Пантак)
@@ -3904,20 +3903,20 @@ After such an episode, it will be very easy for Abraham to obey God in any other
 22:10: **Took the knife to slaughter his son**. It’s not that God was waiting until the very last moment, like in a Hollywood movie. Watching his own son cringe on an altar, Abraham had to overcome the next-to-last obstacle have the heart to obey God till the end. The reaching of the hand to take the knife indicates his final readiness. 
 
 22:12: **Do not … now I know that you fear God.** Difficult. Sounds like God needed information? Or perhaps, another reason for the test was to show *the angels* that He has a faithful servant on earth? Far-fetched? See 1 Cor 4:9: “we have become a spectacle to the world, to angels, and to men”.
-However, in the same verse, the angels says “you have not withheld your son ... **from me**”, clearly speaking for God.
+However, in the same verse, the angel says “you have not withheld your son ... **from me**”, clearly speaking for God.
 So it seems. God is saying, “now I know”. Not sure what so say about it.
 
 22:12: **You have not withheld your son, your only son, from me**. This was the fork in the road: will Abraham choose to obey God because he loved his son so much, or would he be ready to give up what he cherished? We call it parental love, caring love, but what was tested here was the selfish part of that love: the one that wouldn’t give up, even when God, just and righteous and infinitely wise, requires it.
 
 22:12: **Now I know**.  While Abraham’s faith was earlier the means by which God counted him as righteous (15:6), that faith is now “active along with his works,” and the faith is “completed by his works” (Jas 2:21–23), so that his faith resulted in obedience, which is its expected outcome. (ESV)
 
-22:12: (__faith vs selfishness__) The way of faith would trust God to do the right thing even when it looks ridiculous. God, You want to take what I love from me? I trust you. Please take. I believe that what You do it best.
-The way of selfishness would choose your own way: I love my son, I cannot give him up. This does not make sense: murdering my son! No way, I won’t do it. It’s cruel, and it makes no sense.
-Notice how natural it would be to resort to reasoning about love and logic! Faithlessness may cover itself up with common sense and lofty matters. This is why the Bibe says “lean not on your own understanding” (Prov 3:5). Because God’s ways sometimes may make no sense to us at all.
+22:12: **you have not withheld**. James 2:21–22 says Abraham was “justified by works” and that his “faith was completed by his works”. *Completed*, i.e., brought to its full and proper expression. This shows that “justified” in Jas 2:21 probably has the sense “shown to be righteous,” rather than the sense “counted righteous” often found in Paul’s writings. (ESV)
 
-22:12: James 2:21–22 says Abraham was “justified by works” and that his “faith was completed by his works”. *Completed*, i.e., brought to its full and proper expression. This shows that “justified” in Jas 2:21 probably has the sense “shown to be righteous,” rather than the sense “counted righteous” often found in Paul’s writings. (ESV)
+22:12: (__Making sense of God's ways__) The way of faith would trust God to do the right thing even when it looks ridiculous. «God, You want to take what I love from me? I trust you. Please take. I believe that what You do it best.»
+The way of selfishness would choose your own way: «I love my son, I cannot give him up. This does not make sense: murdering my son! No way, I won’t do it. It’s cruel, and it makes no sense.»
+Notice how natural it would be to resort to reasoning about love and logic! Faithlessness may cover itself up with common sense and lofty matters. This is why the Bible says “lean not on your own understanding” (Prov 3:5). Because God’s ways sometimes may make no sense to us at all.
 
-22:12: (**I **know**, **you fear** God; **did not withhold** from me**). It is the angel (lit. messenger) speaking (v.11: “the messenger of the Lord), and the angel said that “I” know that you fear “God”. Who knows, the angel? But further: you did not withhold your son “from me”. Could Abraham withhold his son from the angel? 
+22:12: **I know .. you fear God; ..did not withhold from Me**. It is the angel (lit. messenger) speaking (v.11: “the messenger of the Lord"), and the angel said that “I” know that you fear “God”. Who knows, the angel? But further: you did not withhold your son “from me”. Could Abraham withhold his son from the angel?
 This means that the messenger is God Himself, and yet he speaks about God in third person. Then, it means that me messenger is both God and of God; which means, the messenger is Jesus Christ, the Son, speaking for God, about the Father. (Андроник Пантак)
 
 22:13: **Instead of his son**. We can only wonder about Isaac from the point when he has seen his father change his mind about killing him. How they talked. How Abraham undid the knots. How they went back together. How they lived after such a moment.
@@ -3932,15 +3931,17 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 22:14: **The Lord will provide**. This notable episode establishes the principle of a substitutionary sacrifice: a death of a human being is required for sin (mankind), but the Lord Himself provides a substitution (Jesus).
 
-22:14: **The Lord will provide**. God would provide the sacrifice necessary to atone for sin. **On the mount of the LORD**. The Temple mount. (ESV)
+22:14: **The Lord will provide**. God would provide the sacrifice necessary to atone for sin. (ESV)
 
-22:16: **By myself I have sworn**. Rom 6:13: “since he had no one greater by whom to swear, he swore by himself”
+22:14: **On the mount of the LORD**. The Temple mount. (ESV)
 
-22:17:** As the stars of heaven ..., as the sand that is on the seashore**. The test was great, but the blessing is even greater. An overflowing one. This is how God deals with those who love Him.
+22:16: **By Myself I have sworn**. Rom 6:13: “since he had no one greater by whom to swear, he swore by himself”
 
-22:17: **Multiply your offspring** (lit. seed, Hb. *zaraka*). Speaks about the nation, Israel. **Your offspring** (lit. seed, Hb. *zaraka*)**.** May still refer to the nation of Israel, who then **overcomes his enemies** and mediates blessings **to all the nations of the earth**, because Jesus Christ is born in them. Or may refer to a single seed, an offspring, Who is a single descendant who **overcomes His enemies** and mediates blessings **to all the nations**. Either way, it points to Christ.
+22:17: **As the stars of heaven .., as the sand that is on the seashore**. The test was great, but the blessing is even greater. An overflowing one. This is how God deals with those who love Him.
 
-22:17: Because Genesis as a whole is interested in tracing a single unique line of offspring that will eventually bring forth a special King who will rule over the Gentiles, the second half of the promise is taken to refer to a single **descendant** who will **overcome his enemies** and mediate blessing **to all the nations** of the earth. This is why Paul can insist on one offspring, who is “Christ” (Gal 3:16: “the promises were made to Abraham and to his offspring ... referring to one …, who is Christ.”).
+22:17: **Multiply your offspring** (lit. seed, Hb. *zaraka*). May refer to the nation, Israel, who then **overcomes his enemies** and mediates blessings **to all the nations of the earth**, because Jesus Christ is born in them. Or it may refer to a single seed, an offspring, Who is a single descendant who **overcomes His enemies** and mediates blessings **to all the nations**. Either way, it points to Christ.
+
+22:18: **In your offspring shall all the nations of the earth be blessed**. Because Genesis as a whole is interested in tracing a single unique line of offspring that will eventually bring forth a special King who will rule over the Gentiles, the second half of the promise is taken to refer to a single **descendant** who will **overcome his enemies** and mediate blessing **to all the nations** of the earth. This is why Paul can insist on one offspring, who is “Christ” (Gal 3:16: “the promises were made to Abraham and to his offspring ... referring to one …, who is Christ.”).
 
 
 

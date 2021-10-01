@@ -3773,6 +3773,10 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 26:28: In Ex 24:8, "Moses took the **blood** and threw it on the people and said, "Behold the blood of the **covenant** that the Lord has made with you". Jesus uses the same words when making a new covenant with His Own blood. While fulfilling an ancient rite, our Savior has established a new rite.
 
+26:41: **бодрствуйте и молитесь, чтобы не впасть в искушение: дух бодр, плоть же немощна.**. Иисус только что сам прошёл через минуту слабости: дух Его скорбел смертельно, и Он просил, "да минует Меня чаша сия". Но Он преодолел эту слабость, и теперь дух Его снова бодр. Как же это произошло?
+Иисус бодрствовал и молился пред лицом предстоящего искушения. Ученики же Его спали: не бодрствовали и не молились. Теперь Иисус, преодолевший слабость Своего духа, предлагает ученикам поступить так же.
+Здесь и для нас наставление: когда предстоит искушение, нужно бодрствовать и молиться. Тогда дух будет бодр и слабая плоть не одолеет его.
+
 26:57: Who crucified Christ? The **priests**. Those thought to be believers in God, more than that — **the high priests**, the servants of God, crucified Him when He came. “Believers” have killed their God.
 What does it say about their religion?
 
