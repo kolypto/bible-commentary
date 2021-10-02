@@ -3854,12 +3854,30 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 
 ### The Sacrifice of Isaac
 
+22:1: **God tested Abraham**. This was not a temptation; rather, God examined Abraham's heart (Jas 1:13: "Let no one say when he is tempted, 'I am being tempted by God', for God cannot be tempted with evil, and he himself tempts no one"). (MacArthur)
+
 22:1: **God tested Abraham**. Did He test Abraham because God needed more information about Abraham’s obedience in different situations? Surely not. God tested Abraham for his own sake: to purify him, to teach him something, to let him see and understand.
 God did not need that test. Abraham did.
 
 22:1: **tested**. The genuineness of Abraham’s obedience to God is tested. While it is not unknown for God to test individuals, testing must be clearly distinguished from tempting. God does not tempt anyone to do evil (Jas 1:13: “ God cannot be tempted with evil, and he himself tempts no one”); He does, however, test the commitment of people (e.g., Ex. 15:25: “What shall we drink?”; 16:4: “grumbled against Moses”). (ESV)
 
 22:1: **Here I am**. Abraham responds with readiness to listen and obey. So far, God has been patient with him and kind to him. However, the words that came must have made Abraham’s face turn pale.
+
+22:1: **Бог искушал Авраама**. Искушал не для того, чтобы на опыте познать то, чего не знал, и не для того, чтобы праведник своими делами под­твердил свою преданность Богу. Нет, конечно, ничего неиз­вестного Богу и Его собственное созерцание служит для Него единственным и совершенно достаточным источником позна­ния о всех вещах. У него была та цель, чтобы люди на опыте узнали того, которого Он уже прежде знал, и могли иметь в его лице прекрасный образец для подражания. (Свт. Иоанн Златоуст)
+
+22:1: **Бог искушал Авраама**. Не для Бога нужно было это испытание, – Всеведущий знал, на что способен был решиться Авраам; но Ему угодно было, по любви к Аврааму, дать ему случай чрез предстоящий ему подвиг беспримерного самоотвержения проявить силу своей веры и преданности Богу и за беспримерный подвиг заслужить беспримерную награду. (Еп. Виссарион (Нечаев))
+
+22:1: **Бог искушал Авраама**. Не для того искушал Бог Авраама, чтобы самому узнать, чего не знал; но чтобы научить незнающих, сколько справедливо возлюбил патриарха. (Феодорит)
+
+22:1: ⭐ **Искушение**. По всеобщему понятию сего слова в Св. Писании, есть приведение какого-либо существа в такое состояние, в котором бы сокровенные его свойства открылись в действии (Исх. 15:25: "Моисей возопил к Господу, и Господь показал ему дерево, и он бросил его в воду, и вода сделалась сладкою. Там Бог дал народу устав и закон и там испытывал его", 17:2: "И укорял народ Моисея, и говорили: дайте нам воды пить. И сказал им Моисей: что вы укоряете меня? что искушаете Господа"; 3 Цар. 10:1: "Царица Савская, услышав о славе Соломона во имя Господа, пришла испытать его загадками"). Как сие может быть делаемо по многим причинам и побуждениям, то в основание искушения не всегда должно полагать неведение искушающего (Ин. 6:6: "Говорил же это, испытывая его; ибо Сам знал, что хотел сделать").
+В духовном слово "искушать" берётся в двух различных значениях: *возбуждать ко злу*, и *испытывать верность*. Или возбуждение к действованию злых склонностей, кроющихся в человеке, или искушение в добре: направление, даваемое действующему в нем началу добра к открытой брани против зла или против препятствий в добре, для достижения победы и славы. Первое не от Бога, потому что Бог не искушает злом (Иак 1:13), но есть следствие оставления Богом (2 Пар 32:31: "оставил его Бог, чтоб испытать его и открыть все, что у него на сердце"). Второе от Бога, и, в меру духовных сил, посылается как благодать тем, которые достойны принять.
+Такого искушения Давид просил себе (Пс. 25:2: "Искуси мя, Господи, и испытай мя, разжжи утробы моя и сердце мое"). Сам Иисус Христос искушаем был всячески (Евр. 4:15: "Который, подобно нам, искушен во всем, кроме греха") и в заключение бесчисленных искушений от диавола и человеков был в Божественном искушении в саду Гефсиманском (Мф. 26:38-39: "Тогда говорит им Иисус: душа Моя скорбит смертельно; побудьте здесь и бодрствуйте со Мною"). Сего рода было искушение Авраама в Исааке.
+Сие искушение Авраама концом и плодом своим долженствовало иметь утверждение в нем веры, надежды и любви в высочайшем их порядке, которому последняя должна быть больше двух первых (1 Кор. 13:13: "А теперь пребывают сии три: вера, надежда, любовь; но любовь из них больше"), то есть их себе подчинить, объять как бы поглотить, не истребляя их; указание другим призываемым на путь жизни духовной, к какой высоте они призываются; прообразование как для самого Аврама, так и для потомства великой жертвы Сына Божия.
+Бог часто подвергает испытанию добродетель Своих рабов - или для их исправления, или для того, чтобы дать им случай заслужить большую награду, или для того, чтобы приготовить их к принятию более обильных даров благодати, если они умеют этому соответствовать и быть достойными этого.
+Очень часто человек не знает себя самого, не старается отличить в себе крепость от слабости: искушение дает ему случай услышать голос, его научающий. При виде опасности, благоразумие побуждает его к бдительности и молитве, бдительность держит его в готовности отвратить удар, а молитва дает ему мужество и силы.
+(Свт. Филарет (Дроздов))
+
+22:2: **your son**. Isaac was over 20 years old at the time. (MacArthur)
 
 22:2: **Your son, your only son, whom you love**. Triple emphasis on the tender attitude Abraham had for his son emphasizes the essence of the test and how difficult it was for Abraham to give his son up.
 
@@ -3869,7 +3887,9 @@ God did not need that test. Abraham did.
 
 22:2: **Moriah**. According to 2 Chron. 3:1, Solomon constructed the temple on Mount Moriah in Jerusalem. This means the mountain is in Jerusalem. It requires about two days to travel on foot from Beersheba to Jerusalem (v. 4: “on the third day). (ESV)
 
-22:3: **Abraham** displays remarkable trust in God, especially when the death of Isaac would appear to contradict all that God had promised to Abraham.
+22:2: **принеси его во всесожжение**. Древние (говорит о Финикиянах) имели обычай, по которому во время опасности великих бед в замену общей гибели начальники города или народа отдавали на заклание любезнейшего из своих детей в искуп духам–карателям. (Свт. Филарет (Дроздов))
+
+22:3: **Abraham rose early in the morning**. He displays remarkable trust in God, especially when the death of Isaac would appear to contradict all that God had promised to Abraham.
 
 22:3: **Rose early in the morning**. The lack of any other comment Indicates Abraham’s readiness to fulfill what God has just commanded.  Heb 11:17 says that Abraham did it “by faith”, because “He considered that God was able even to raise him from the dead” (Heb 11:19).
 
@@ -3878,6 +3898,8 @@ God did not need that test. Abraham did.
 22:4: **On the third day**. Elsewhere, two days also represents the time set aside to prepare for a special encounter with God on the third day (Ex 19:11: “be ready for the third day. For on the third day gthe LORD will come down on Mount Sinai in the sight of all the people”). Perhaps this sets the pattern for the significant “third day” (Mt 16:21, 1 Cor 15:4: “be killed and raised on the third day”). (ESV)
 
 22:5: **Stay here**. Abraham left them behind because he did not want them to see what was going to happen. He was absolutely ready to sacrifice his own son, if that is what his God wanted. **Will come again to you**. However, Abraham was also confident that both of them will return. This is why the author of Hebrews confidently says that Abraham thought “God was able even to raise him from the dead” (Heb 11:19).
+
+22:5: **will come again to you**. The three-day journey afforded much time to reflect upon God's commands, but without wavering or questioning the morailty of human sacrifice or the purposes of God, Abraham confidently promised that "we" will return. (MacArthur)
 
 22:6: **Laid the wood on Isaac**. Isaac carrying the wood for his own sacrifice is a type of Christ carrying the cross for his own crucifixion.
 
@@ -3922,6 +3944,8 @@ This means that the messenger is God Himself, and yet he speaks about God in thi
 22:13: **Instead of his son**. We can only wonder about Isaac from the point when he has seen his father change his mind about killing him. How they talked. How Abraham undid the knots. How they went back together. How they lived after such a moment.
 In two chapters, Abraham will send his servant to a foreign country to find a wife for his son. There was no break in their relationship. God has somehow healed this rift.
 
+22:13: **Instead of his son**. The idea of substitutionary sacrifice is introduced, which would find its fulfillment in the death of Christ. (MacArthur)
+
 22:14: **The Lord will provide**. “Yahweh-Yireh” (Hb) The verb literally means to see, or, to see to a thing, and the sense of the proverb plainly is that in man's necessity God will Himself see to it, and provide due help and deliverance. (Ellicott’s Commentary)
 
 22:13-14: **Instead of his son. The Lord will provide.** There probably is a deeper, much deeper meaning to the story than just the Lord playing with Abraham’s obedience to teach him a lesson.
@@ -3936,6 +3960,10 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 22:14: **On the mount of the LORD**. The Temple mount. (ESV)
 
 22:16: **By Myself I have sworn**. Rom 6:13: “since he had no one greater by whom to swear, he swore by himself”
+
+22:17: **I will surely bless you**. God reaffirms the covenant (land, seed, blessing) and directs attention graphically to the conquest of the land promised: "shall possess the gate of their enemies". (MacArthur)
+
+22:17: **possess the gate of their enemies**. This refers to conquering enemies, so as to control their city. (MacArthur)
 
 22:17: **As the stars of heaven .., as the sand that is on the seashore**. The test was great, but the blessing is even greater. An overflowing one. This is how God deals with those who love Him.
 
