@@ -3923,32 +3923,64 @@ God did not need that test. Abraham did.
 
 22:3: **Rose early in the morning**. The lack of any other comment Indicates Abraham’s readiness to fulfill what God has just commanded.  Heb 11:17 says that Abraham did it “by faith”, because “He considered that God was able even to raise him from the dead” (Heb 11:19).
 
+22:3: **и встав пошел на место, о котором сказал ему Бог**. Заметь, как человеколюбец Господь самым расстоянием места искушает добродетель праведника. Представь себе, что должен был вытерпеть праведник в течение трех дней, размышляя сам с собою о данном ему повелении, – о том, как он должен собственными руками заклать столь возлюбленного сына, а между тем никому не мог сообщить об этом деле, – и подивись боголюбивой и мудрой душе его. (Свт. Иоанн Златоуст)
+
+22:3: **Двоих из рабов**. Вероятно, для того, чтобы нести дрова. (Свт. Филарет (Дроздов))
+
+22:3: **Наколол дров**, ибо нужны были сухие. (Свт. Филарет (Дроздов))
+
+22:3: **и встав пошел на место**. Слова повелений Божиих рассчитаны были именно на эту борьбу; тяжесть искушения состояла именно в том, что оно вызывало в душе Авраама помыслы один другого мрачнее. В том, что сам Бог явился ему и открыл Свою волю, Авраам не мог сомневаться, потому что прежде неоднократно удостаивался Богоявлений и Божиих откро­вений. Но он мог усомниться в непреложности обетований Божиих о многочисленном от Исаака потомстве; ему могло показаться невозможным, чтобы эти обетования исполни­лись, если Исаак умрет без детей. Это было искушением для веры Авраама, но не меньше оно было для родитель­ского его чувства. Чем больше он любил Исаака, тем тяже­лее отзывалось в нем повеление Божие расстаться с ним, и как расстаться! Наложить на него свою руку. Но недолго продолжались колебания в душе Авраама: вера и любовь его к Богу восторжествовали над искушением. Его озарила мысль о воскресении Исаака, как свидетельствует апостол (Рим. 4:17; Евр. 11:19). (Еп. Виссарион (Нечаев))
+
 22:4: **On the third day**. For three days straight Abraham was confident that he will have to kill “his son, his only son, whom he loves”. Knowing this, they walked, talked, camped, and Abraham kept the secret to himself. Must have been a very difficult time: to spend three days guiding your son, your only son whom you love .. to death.
 
 22:4: **On the third day**. Elsewhere, two days also represents the time set aside to prepare for a special encounter with God on the third day (Ex 19:11: “be ready for the third day. For on the third day gthe LORD will come down on Mount Sinai in the sight of all the people”). Perhaps this sets the pattern for the significant “third day” (Mt 16:21, 1 Cor 15:4: “be killed and raised on the third day”). (ESV)
+
+22:4: **На третий день**. Три дня про­должалось путешествие. И эта продолжительность пути может служить для тебя показателем твердости души праотца. В самом деле, если бы место жертвоприношения находилось по­близости, тогда горячность веры легко имела бы перевес над чувством любви. Но тут, совершая дальний путь и все время имея пред глазами сына, предающегося обычным детским играм и простирающего объятия, постоянно обращаясь мыслью к тому, что предстоит сделать, Авраам, как золото в огне, подвергался величайшим испытаниям, и тем с большим блеском показал свое усердие и послушание. О, сколько раз за этот трехдневный промежуток представлял себе в уме отец заклание своего сына! Сколько останков его на память о нем положил в свою дорожную суму! Каждый раз, как вспоминал он о жертвоприношении, его сердце поражалось жестокими ударами. То он забывал об этом деле как бы совершившемся, то опять огорчался, всякий раз как его на­дежды на забвение рассеивались. (Свт. Иоанн Златоуст)
 
 22:5: **Stay here**. Abraham left them behind because he did not want them to see what was going to happen. He was absolutely ready to sacrifice his own son, if that is what his God wanted. **Will come again to you**. However, Abraham was also confident that both of them will return. This is why the author of Hebrews confidently says that Abraham thought “God was able even to raise him from the dead” (Heb 11:19).
 
 22:5: **will come again to you**. The three-day journey afforded much time to reflect upon God's commands, but without wavering or questioning the morailty of human sacrifice or the purposes of God, Abraham confidently promised that "we" will return. (MacArthur)
 
+22:5: **останьтесь вы здесь с ослом**. Рабы не должны были видеть жертвоприношения, как не знавшие тайны веры. Они могли бы удержать Авраама, как неистового. (Свт. Филарет (Дроздов))
+
+22:5: **и возвратимся к вам**. Что такое говоришь, благословенный Авраам? Ты идешь принести в жертву своего сына и говоришь, что вы вернетесь вместе? Если ты приносишь его в жертву всесожжения, он уж точно не сможет вернуться. Благословенный Авраам мог сказать в ответ: я говорю правду; я приношу в жертву моего сына, и вернусь к вам вместе с ним. Столь велика моя вера, что я верю: Тот, Кто удостоил меня сыном от неплодной матери, в силах воскресить его из мертвых. Поэтому я говорю правду: мы поклонимся и возвратимся к вам. (Свт. Кесарий Арелатский)
+
+22:5: **и возвратимся к вам**. Сие Авраам сказал или с притворством для того, чтобы скрыть свое намерение; или, по обыкновению, доразумевая всеобщее условие: если будет угодно Промыслу. Но дух его так был приближен к Богу, что он, не примечая, пророчествовал. (Свт. Филарет (Дроздов))
+
 22:6: **Laid the wood on Isaac**. Isaac carrying the wood for his own sacrifice is a type of Christ carrying the cross for his own crucifixion.
 
+22:6: **дрова .. возложил на Исаака**. Итак, возложил он на отроча вязанку наколотых дров, подобно тому как и Спаситель понес крест свой. Когда Исаак шел на заклание, за ним сле­довали осел и рабы его; так и Христос, когда шел на страдание, воссел на молодого осла, предображая призвание язычников, а за Ним следовали ученики Его, неся в руках знамения победы и взывая: «осанна!» Исаак с ношей дров восходил на гору, где его ожидало заклание подобно непороч­ному агнцу; так и Спаситель восходил, неся крест Свой, на Голгофу, где и предался на заклание, как агнец за грехи наши. Итак, видя здесь нож, представляй себе копье; вспо­миная о жертвеннике, воображай себе лобное место; при виде дров вспоминай о кресте, а огонь пусть служит для тебя ука­занием на страдания. (Свт. Иоанн Златоуст)
+
+22:6: **дрова .. возложил на Исаака**. И все же нести дрова для всесожжения есть обязанность священника. Исаак, следовательно, становится и жертвой, и священником. Как и Христос, будучи первосвященником нашим, был Сам же и жертвой за наши грехи. (Ориген)
+
 22:6: **He took the knife**. Abraham couldn’t give the weapon to a person whom he was going to assault. It is quite unlikely that one would expect a person to willingly lay his life onto an altar.
+
+22:7: **Он отвечал: вот я, сын мой.**. Эти нежные слова говорят о том, что Авраам не отрешился от своего сына за три дня пути и по-прежнему испытывал к нему тёплые, отцовские чувства. Отрешись он от сына каким-нибудь трюком сознания, ему было бы проще, но Авраам любит своего сына.
 
 22:7: **Where is the lamb?** Isaac asking about the lamb indicates that the family was quite used to the ritual of the burned offering. It was something that Abraham has already done before.
 
 22:7: **Where is the lamb?** It is obvious that Abraham decided not to tell his son the whole story. The fact that Isaac will have to die on that mountain was completely unknown to him, just as it would have had been for a real lamb.
 
+22:7: **отец мой!**. Как болезненно долженствовало быть для Авраама сие воззвание, которое он почитать мог последним! (Свт. Филарет (Дроздов))
+
+22:7: **отец мой! .. где же агнец для всесожжения?**. Представь эти имена, имеющие скоро потерять свое существенное значение. Тот называет его отцом, а он называет того сыном; в это время они были действительными именами, но потом имели потерять значение. Представь же, что чувствовал Авраам, когда Исаак, которого он намеревался заклать, называл его: отче. Как не распались его колена? (Свт. Иоанн Златоуст)
+
 22:8: **God will provide**. This is a key verse, for these very words become the name of the place in v. 14. 
 It is possible that Abraham was less than sincere with Isaac (for Abraham has already had a history of resorting to deception in difficult circumstances), but at the same time, those words may have been prophetic (Gen 20:7: “he is a prophet”; Jn 11:51: “He did not say this of his own accord, but ... he prophesied” -- saying that people may blurt out a prophecy without even knowing that God has put those words into their mouth).
 
+22:8: **Бог усмотрит для Себя агнца**. Авраам нечувствительно приготовляет его к открытию, предварительно давая разуметь, что дело совершается под непосредственными повелениями от Бога. Между тем и здесь заключается нечаянное предсказание. (Свт. Филарет (Дроздов))
+
 22:9: **God had told him**. There probably was an unreported episode where God showed Abraham some specific mountain.
+
+22:9: **устроил там Авраам жертвенник**. Этот жертвенник, по всей вероятности, представлял небольшую груду камней, набранных там же, наверху горы. (Лопухин А.П.)
 
 22:9: **Bound Isaac his son**. There probably has been some wrestling, where Abraham had overpowered his beloved Son, immobilized him, then bound him with ropes. This is why Abraham has not told him anything, and this is why he hasn’t given Isaac the knife: because Isaac wouldn’t be willing to die. He would defend his life.
 Just imagine the feelings of a father: three days thinking about it on the way, then assaulting the one you love, your only son, then binding him. All that violence, and what’s ahead: murdering Isaac with his father’s hand.
 
 22:9: (__future trust__) **Bound Isaac his son**. How amazing must have been the faith of that person who could do all that, no hesitation, having heard just one word from his God!
 After such an episode, it will be very easy for Abraham to obey God in any other matter. If you once trusted God with something dear, in a fearful labor… everything else is a breeze. You just trust. Period.
+
+22:9: **Связав**. Должно думать, что более по обряду жертвенному, нежели по нужде. Исаак был в такой крепости, а Авраам в такой старости, что первый не иначе мог быть связан последним к закланию, как разве по собственному его согласию. (Свт. Филарет (Дроздов))
 
 22:10: **Авраам взял Нож**, потому что был уверен, что Бог что-нибудь придумает. Стих 8: “Бог усмотрит”. (Андроник Пантак)
 
