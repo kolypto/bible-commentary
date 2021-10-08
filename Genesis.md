@@ -3986,6 +3986,12 @@ After such an episode, it will be very easy for Abraham to obey God in any other
 
 22:10: **Took the knife to slaughter his son**. It’s not that God was waiting until the very last moment, like in a Hollywood movie. Watching his own son cringe on an altar, Abraham had to overcome the next-to-last obstacle have the heart to obey God till the end. The reaching of the hand to take the knife indicates his final readiness. 
 
+22:10: **чтобы заколоть сына своего**. Жертвою сына своего Авраам хотел, как недостаточные, восполнить и запечатлеть свои прежние жертвы овнов и тельцов.
+Крестною жертвою Сына Своего Бог благоволил запечатлеть все кровавые жертвы не совершенные и только прообразовательные.
+(Свт. Филарет (Дроздов))
+
+22:11: **Авраам! Авраам!**. Призывание поспешности. Оно показывает, что Авраам удержан был пред самым совершением рокового удара. Итак, в сердце Авраама жертвоприношение было уже совершено. (Свт. Филарет (Дроздов))
+
 22:12: **Do not … now I know that you fear God.** Difficult. Sounds like God needed information? Or perhaps, another reason for the test was to show *the angels* that He has a faithful servant on earth? Far-fetched? See 1 Cor 4:9: “we have become a spectacle to the world, to angels, and to men”.
 However, in the same verse, the angel says “you have not withheld your son ... **from me**”, clearly speaking for God.
 So it seems. God is saying, “now I know”. Not sure what so say about it.
