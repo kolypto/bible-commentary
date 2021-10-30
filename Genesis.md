@@ -3996,6 +3996,8 @@ After such an episode, it will be very easy for Abraham to obey God in any other
 However, in the same verse, the angel says “you have not withheld your son ... **from me**”, clearly speaking for God.
 So it seems. God is saying, “now I know”. Not sure what so say about it.
 
+22:12: **не поднимай руки твоей на отрока**. Я дал Свое повеление не для того, чтобы на самом деле оно было исполнено, и Я желаю не того, чтобы ты заклал своего сына, но чтобы для всех сделалось очевидным твое послушание.  (Свт. Иоанн Златоуст)
+
 22:12: **You have not withheld your son, your only son, from me**. This was the fork in the road: will Abraham choose to obey God because he loved his son so much, or would he be ready to give up what he cherished? We call it parental love, caring love, but what was tested here was the selfish part of that love: the one that wouldn’t give up, even when God, just and righteous and infinitely wise, requires it.
 
 22:12: **Now I know**.  While Abraham’s faith was earlier the means by which God counted him as righteous (15:6), that faith is now “active along with his works,” and the faith is “completed by his works” (Jas 2:21–23), so that his faith resulted in obedience, which is its expected outcome. (ESV)
@@ -4009,14 +4011,44 @@ Notice how natural it would be to resort to reasoning about love and logic! Fait
 22:12: **I know .. you fear God; ..did not withhold from Me**. It is the angel (lit. messenger) speaking (v.11: “the messenger of the Lord"), and the angel said that “I” know that you fear “God”. Who knows, the angel? But further: you did not withhold your son “from me”. Could Abraham withhold his son from the angel?
 This means that the messenger is God Himself, and yet he speaks about God in third person. Then, it means that me messenger is both God and of God; which means, the messenger is Jesus Christ, the Son, speaking for God, about the Father. (Андроник Пантак)
 
+22:12: **теперь Я знаю, что боишься ты Бога и не пожалел сына твоего**. Посмотри, какое снисхождение в этих словах. Что же? Разве прежде того Господь не знал добродетели праведника, а только теперь узнал ее? Нет; не то Он говорит, будто сам только теперь узнал, – а что? Ныне, говорит, ты всем показал, насколько искренний имеешь ты страх пред Богом. Я, конечно, знал раба Моего; но дело, ныне тобою совершенное, сделается предметом назидания и для современников, и для будущих поколений. Ныне ты всем показал, как ты боишься Бога и усердно исполняешь Его повеления. Столь дорогого для тебя и столь искренно тобою любимого сына ты не пощадил ради Меня. (Свт. Иоанн Златоуст)
+
+22:12: **теперь Я знаю**. Но скажут, Бог, Который ведает глубину сердца, Который предвидит наши будущие чувствования с такой же ясностью, как видит наши настоящие сердечные расположения, не имел для Себя нужды испытывать Авраама. - Это, правда; но Авраам имел нужду быть испытанным, и род человеческий имел нужду в этом примере. (Свт. Филарет (Дроздов))
+
+22:12: **ибо теперь Я знаю, что боишься ты Бога**. Знать что-то *теперь* есть признак предшествующего неведения. Знал Бог, и не было от Него скрыто, поскольку Он - ведающий все сокровенное и знающий все прежде бытия его (Дан. 13:42). Но для тебя это здесь написано. Ведь и ты веришь, — но прежде чем совершишь дело веры (2 Фес. 1:11: "чтобы Бог наш соделал вас достойными звания и совершил всякое благоволение благости и дело веры в силе"), покажешь смирение перед всеми повелениями, принесешь жертву и покажешь, что не держишь ни отца, ни мать, ни сыновей ближе Бога (Мф. 10:37: "Кто любит отца или мать более, нежели Меня, не достоин Меня"), - ты ［не］узнаешь, что боишься Бога; и ［тогда］услышишь голос, обращенный к тебе: "теперь Я знаю, что боишься ты Бога".［то есть: ты веришь; но только совершив дело веры, ты можешь узнать, что боишься Бога］.
+
+22:12: **теперь Я знаю**. Выражение человекообразное, — передающее собою ту мысль, что теперь Авраам дал самое блестящее доказательство своей глубокой веры и своего полного послушания, т. е. достиг той высоты духовно-нравственного совершенства, после которой становится уже психологически невозможной в нем какая-либо перемена к худшему. (Лопухин А.П.)
+
+22:12: **не пожалел**. Между тем Авраам взял его живым и возвратил здоровым; как же он не пощадел? А так, что о таких жертвах я сужу, говорит Господь, не по концу дел, но по расположению решающихся. Не умертвила рука, но умертвило намерение; не вонзился меч в горло отрока, не перерезал шеи, но бывает жертва и без крови. (Свт. Иоанн Златоуст)
+
 22:13: **Instead of his son**. We can only wonder about Isaac from the point when he has seen his father change his mind about killing him. How they talked. How Abraham undid the knots. How they went back together. How they lived after such a moment.
 In two chapters, Abraham will send his servant to a foreign country to find a wife for his son. There was no break in their relationship. God has somehow healed this rift.
 
 22:13: **Instead of his son**. The idea of substitutionary sacrifice is introduced, which would find its fulfillment in the death of Christ. (MacArthur)
 
+22:13: (__Сходства прообраза Исаака и Иисуса__). Вот черты сходства между образом и прообра­зованными событиями:
+1) Как Авраам из любви к Богу жертвует сыном своим единственным от Сарры и возлюбленным: так и Бог Отец не пощадил Сына Своего Единородного, но за нас всех предал Его (Ин. 3:16; Рим. 8:32).
+2) Исаак исходит из дома отца своего к месту, назна­ченному Богом для жертвоприношения: Христу надлежало выйти из Иерусалима и пострадать вне врат его (Евр. 13:11).
+3) Исаак отделился от рабов своих, когда шел на гору для заколения: Иисус, оставленный учениками, восшел на гору пропятия.
+4) Как Мория, на которой уготован был жертвенник для принесения в жертву Исаака, так и Голгофа, на которой принес себя в жертву Христос, принадлежат κ Иерусалим­ским холмам.
+5) На Исаака возлагаются дрова. Иисус сам на раменах Своих несет крест, а потом на него возносится.
+6) Исаак послушно предает себя отцу для заклания. Иисус является вполне преданным воле Отца Своего во время страдания и послушливым до смерти, смерти же крестныя (Фил. 2:8).
+7) Исаак обрекается на смерть, не имея вины: Иисус страдает и умирает за вину других, Сам будучи безгрешен и свят.
+8) Исаак, спасаемый от смерти, есть образ Христа, избавившего Себя от уз смерти воскресением.
+9) Исаак не пострадал сам действительно, а уступил место овну. Иисус не пострадал по божеству, а только по человечеству, что предызобразил овен.
+10) На третий день после жертвоприношения мать Иса­ака видит его живым: на третий день и Церковь видит Христа воскресшим [Златоуст].
+11) Жертва Исаака низводит обильнейшие благослове­ния на все потомство Авраамово. Жертва Иисуса Христа привлекает бесчисленные благословения на всех верую­щих в Него, к какому бы роду и племени они ни принадле­жали.
+(Еп. Виссарион (Нечаев))
+
+22:14: **И нарек Авраам имя месту тому: Иегова-ире.**. Сия неизвестная прежде гора получила от Авраама наименование горы Боговидения; и, без сомнения, сделалась незабвенною для Авраама и для Исаака, и отчасти для их потомков, особенно для благочестивых чтителей и хранителей священных отеческих преданий; и предание о ней пережило веки и народы.
+Но гора Боговидения стояла в земле язычников, не знающих истиннаго Бога и таин Его. Прошли веки: близ места жертвоприношения Авраамова построен языческий город Иевус.
+Еще прошли веки: потомок Авраама, царь Давид оружием взял Иевус; наименовал его Иерусалимом, и сделал столицею царства Израильскаго.
+Еще прошли веки: явился в земле Израилевой воплощенный Сын Божий, по плоти сын Авраамов и Давидов, Господь наш Иисус Христос; проповедал евангелие вечнаго спасения и, по слепой зависти обличаемых Им беззаконников, наипаче же по сокровенному предусмотрению и предопределению Отца небеснаго, близ стен Иерусалима, на месте древняго жертвоприношения Авраамова, распят на кресте, как жертва за спасение всего мира, погребен и воскрес.
+(Свт. Филарет (Дроздов))
+
 22:14: **The Lord will provide**. “Yahweh-Yireh” (Hb) The verb literally means to see, or, to see to a thing, and the sense of the proverb plainly is that in man's necessity God will Himself see to it, and provide due help and deliverance. (Ellicott’s Commentary)
 
-22:13-14: **Instead of his son. The Lord will provide.** There probably is a deeper, much deeper meaning to the story than just the Lord playing with Abraham’s obedience to teach him a lesson.
+22:13-14: ⭐ **Instead of his son. The Lord will provide.** There probably is a deeper, much deeper meaning to the story than just the Lord playing with Abraham’s obedience to teach him a lesson.
 Remember when David sinned with Bathsheba, and his son died in 2 Sam 12? David has committed a sin, and he had to lose something dear to him. That was his lesson: the Lord’s discipline, with which He purifies us. His son had to die, because of justice.
 In this story, did Abraham sin? Yes. May it be that Isaac was meant by God’s justice to be taken from him? Sure. Then Isaac has already been sealed for death in a way. It could only be averted if God Himself provided a substitution: a ram, in this case. So the ram has died for Isaac. All of this because of Abraham’s faith.
 And surely Isaac and the ram is a type of mankind and Christ: mankind had to die because of sin (Isaac, sin), this punishment was only averted because of a substitutionary death of Jesus (ram), and all of this is only possible because of faith (Abraham, “the father of all who believe” (Rom 4:16)).
@@ -4026,6 +4058,8 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 22:14: **The Lord will provide**. God would provide the sacrifice necessary to atone for sin. (ESV)
 
 22:14: **On the mount of the LORD**. The Temple mount. (ESV)
+
+22:14: ⭐ **на горе Иеговы усмотрится**. Проще: когда придешь на гору, куда призывает Господь, там видно будет. Таковая пословица приличествует тем случаям, в которых искушение кажется непрестанно возрастающим, и человек, желая исполнить волю Божию, приближается к очевидной опасности. В сих случаях знающие пример Авраама должны говорить себе: восходи с доверенностью на гору искушения по пути, указанному Богом, и не заботься прежде времени о своей безопасности; когда достигнешь самого верха горы и готов будешь пожертвовать самою кровью, и тогда еще Господу будет время явить тебе Свою милость и сотворить со искушением и избытие: Он призрит на твою веру и послушание, и ты узришь Его спасение. (Свт. Филарет (Дроздов))
 
 22:16: **By Myself I have sworn**. Rom 6:13: “since he had no one greater by whom to swear, he swore by himself”
 
@@ -4037,9 +4071,16 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 22:17: **Multiply your offspring** (lit. seed, Hb. *zaraka*). May refer to the nation, Israel, who then **overcomes his enemies** and mediates blessings **to all the nations of the earth**, because Jesus Christ is born in them. Or it may refer to a single seed, an offspring, Who is a single descendant who **overcomes His enemies** and mediates blessings **to all the nations**. Either way, it points to Christ.
 
+22:17: **благословлю**. Ряд обетований, бывших и прежде, но теперь повто­ряемых с особою силой:
+1) умножение потомства, – оно будет многочисленно, как звезды на небе, и как песок на берегу моря;
+2) господство над супостатами, т. е. хананеями и смежными с ними народами, с завладением их твердынь городских;
+3) благословение или излияние даров духовных на все народы, на все человечество, чрез потомство Авраамово, или точнее, как объясняет Апостол, чрез одного великого Потомка, Христа, Сына Божия (Гал. 3:16: "Но Аврааму даны были обетования и семени его. Не сказано: и потомкам, как бы о многих, но как об одном: и семени твоему, которое есть Христос"). (Еп. Виссарион (Нечаев))
+
+22:17: **Как звезды небесные и как песок на брегу моря**. Отцы примечают здесь два семени: небесное и земное. В постепенном раскрытии обетований прежде показано было Аврааму земное (Быт. 13:16), потом небесное: посмотри на небо и проч. (Быт. 15:5). Так и в событии обетований сперва явились чада Авраамовы земные, по плоти; потом чада по духу — небесные. (Свт. Филарет (Дроздов))
+
 22:18: **In your offspring shall all the nations of the earth be blessed**. Because Genesis as a whole is interested in tracing a single unique line of offspring that will eventually bring forth a special King who will rule over the Gentiles, the second half of the promise is taken to refer to a single **descendant** who will **overcome his enemies** and mediate blessing **to all the nations** of the earth. This is why Paul can insist on one offspring, who is “Christ” (Gal 3:16: “the promises were made to Abraham and to his offspring ... referring to one …, who is Christ.”).
 
-
+22:18: **благословятся в семени твоем все народы земли**. Жертва Исаака низводит обильнейшие благословения Божии на все потомство Авраамово. Жертва Иисуса Христа привлекает бесчисленные благословения на всю Церковь, весь человеческий род и весь мир. (Свт. Филарет (Дроздов))
 
 
 
