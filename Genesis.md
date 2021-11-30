@@ -4112,15 +4112,40 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 ### Sarah's Death and Burial
 
+23:1: **Sarah lived 127 years**. The only woman's age at death recorded in Scripture. (MacArthur)
+
+23:1: **Жизни Сарриной было сто двадцать семь лет**. После благословенного рождения Исаака, когда ей было девяносто лет, жила еще тридцать семь лет. (Свт. Филарет (Дроздов))
+
+23:2: **умерла в Кириаф-Арбе**. Разрешая некоторое недоразумение, почему Сарра умерла в Хевроне, а не в Вирсавии, где жил Авраам и откуда он пришел оплакивать ее, митр. Филарет думает, что Авраам имел, под конец своей жизни, два местопребывания, в которых поочередно и кочевал со своими стадами: в одном из этих местопребываний, именно в древней Кириаф-Арбе, отличавшейся лучшими климатическими условиями и жила на покое престарелая Сарра, тогда как сам Авраам чаще находился в другом пункте, в котором были сосредоточены его главные стада, т. е. в Вирсавии.  (Лопухин А.П.)
+
 23:2: **Mourn and weep**. He loved her dearly.
+
+23:3: **said to the Hittites**. God promised the land to Abaraham, but where is it? Abraham still does not own any, and he has to beg for a burying place! However, he was not discouraged. How can one be discouraged, when God speaks to you and makes you successfull in everything you do? In fact, so successful, that Abraham was rich, had an army, and knew that God was the source of these blessings, for he openly spoke about this. One would only ·say something that he's certain about.
 
 23:3: **To the Hittites**. Presumably Abraham addressed the leaders of the Hittites who were assembled at the gate of Hebron. The city gate was commonly the location where public decisions were formally made and transactions between individuals were ratified. (ESV)
 
+23:4: **я у вас пришлец и поселенец**. враам, которому неоднократно сам Бог давал обетования обладать всей Палестиной, смиренно называет себя пришельцем и поселенцем в чужой земле. Он верит, что обетования Божия со временем исполнятся, и не выражает никакого нетерпения по поводу медлительности их исполнения. Поистине трогательное сочетание сильной веры с глубоким смирением. (Лопухин А.П.)
+
+23:4: **я у вас пришлец и поселенец**. Таким вступлением Авраам отклоняет подозрения, показывая, что он не намерен утвердиться в их земле как постоянный житель. (Свт. Филарет (Дроздов))
+
+23:4: **дайте мне в собственность место для гроба**. Место для гроба должно было быть куплено для того, чтобы Хеттеи, по небрежению или по неудовольствию, не могли бы обеспокоить прах его супруги. Притом тягостно было бы для него без разбора смешать прах ее с прахом тех, от которых он всегда старался отделяться. (Свт. Филарет (Дроздов))
+
+23:4: **место для гроба**. Пользуясь такой помощью свыше, сделавшись столь славным и получив обещание столь многочисленного потомства, он не имел  ни своей земли, ни даже собственного места погребения. Он имел довольно богатства душевного, а о вещественном не проявлял никакой заботы. И только побуждаемый крайней необходимостью, он купил поле и пещеру.
+Итак, муж, столь славный и уважаемый, имевший такую близость к Богу и пользовавшийся от всех, живших в том месте, таким вниманием, что сыны Хетовы называли его даже царем (ст. 6), - такой муж не владел даже пядью земли. Поэтому и блаженный Павел, прославляя добродетель этого праведника, писал: "верою обитал он на земле обетованной, как на чужой, и жил в шатрах с Исааком и Иаковом, сонаследниками того же обетования" (Евр. 11:9).
+Потом, научая нас, как тот с верою странствовал, апостол прибавляет: "ибо он ожидал города, имеющего основание, которого художник и строитель Бог" (Евр. 11:10). В надежде будущего, он презирал настоящее и, ожидая больших благ, мало заботился о благах жизни настоящей; и так поступал он еще прежде Закона и прежде Благодати.
+(Свт. Иоанн Златоуст)
+
 23:6: **Prince of God**. Abraham obviously had a reputation of one living under God’s protection and favor.
+
+23:6: **you are a prince of God among us**. They loved Abraham. He had a place of leadership and respect. However, they did not attribute his goodness to him, but rather, to God. Because every time some business succeeded, Abraham told them that God makes it successful.
 
 23:6: **Hear us, my lord; you are a prince of God**. Hb “schemaenu adoni, attah elohim nesi”. **Prince of God**, lit. God’s king, God’s chosen one. Prince, leader, chief, captain, ruler.
 
-23:7: **Bowed**. God’s king respectfully bowing to the people is remarkable.
+23:6: **Ты князь Божий посреди нас**. Слово "князь" означает здесь не независимого владельца земли, но только богатого и сильного человека, каковое о себе мнение приобрел Авраам союзом с Мамре и войною против четырех царей. (Свт. Филарет (Дроздов))
+
+23:6: **Ты князь Божий посреди нас**. Еврейское слово «Элогим», переведенное здесь в смысле указания на Бога, на самом деле должно быть правильнее переведено, как прилагательное: «сильный, могущественный», тогда и вся фраза получит надлежащий вид и будет вполне понятна в устах язычников-хеттеев: «ты могущественнейший князь среди нас». Такое обращение, равно как и все последующее предложение хетеев о безвозмездном отводе лучшего погребального участка, свидетельствует о высоком уважении их к Аврааму. (Лопухин А.П.)
+
+23:7: **Bowed**. Prince of God respectfully bowing to the people is remarkable.
 
 23:8: **Entreat for me**. Probably means that Abraham did not know him well; otherwise, Abraham would have spoken to Ephron himself. Ephron is actually present (v.10).
 
@@ -4130,15 +4155,21 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 23:10: **The Gate**. Where the rulers gathered and where decisions were made.
 
+23:10: **посреди сынов Хетовых**. И теперь еще на Востоке свободные сыны пустыни производят свою меновую торговлю и различные торговые сделки без всяких бумаг и условий, а на честном слове и в присутствии живых свидетелей. Вот почему и договор, заключенный Авраамом с хеттеянами о покупке Махпелы, не был никем нарушен, несмотря даже на продолжительное отсутствие евреев из Палестины, в течение двухвекового египетского рабства. (Лопухин А.П.)
+
 23:12: **Bowed dows before the people**. Abraham is held in great esteem, which can be seen by his title (Elohim nesi, God’s prince), and by the fact that Ephron offers his property for free.
 
 23:15: **Four hundred**. Since the weight of a shekel could vary, it is impossible to be certain about the precise value of the field and cave. It is often suggested, on the basis of comparisons with 1 Kings 16:24 and Jer. 32:9, that this was a high price to pay, but one cannot be sure.  (ESV)
 
+23:15: **Между мною и тобою что это значит?** То есть это и для меня, и для тебя такая малость, в которой не стоит труда считаться. (Свт. Филарет (Дроздов))
+
 23:17: **Land**. By acquiring this plot of land, Abraham not only establishes future rights to it for his family but puts down a marker that his descendants are to be associated with the land of Canaan, as God had already promised (ESV)
 
-23:18: **In the presence of the Hittites, before all**. The author has dedicated the whole chapter to an episode where a certain field was legally transferred to Abraham in the presence of many people. This must have been some important patch of land for the author to pay so much attention to it. Perhaps, that is because it is the first patch of land that he legally obtains; the first step of how God’s promise begins to get fulfilled? Or was the whole episode was probably penned to emphasize the legality of Israel’s possession of that land.
+23:17: **и все деревья, которые на поле**. Отсюда очевидно, что владением Авраама была не одна только пещера, но и поле с деревьями, так что можно полагать, что часть дубравы Мамре отошла к нему. (Лопухин А.П.)
 
-23:19: According to tradition, **the cave of Machpelah** is located beneath the present Mosque of Abraham in Hebron. (ESV)
+23:18: **In the presence of the Hittites, before all**. The author has dedicated the whole chapter to an episode where a certain field was legally transferred to Abraham in the presence of many people. This must have been some important patch of land for the author to pay so much attention to. Perhaps, that is because it is the first patch of land that he legally obtains; the first step of how God’s promise begins to get fulfilled? Or was the whole episode was probably penned to emphasize the legality of Israel’s possession of that land.
+
+23:19: **the cave of Machpelah**. According to tradition, the cave of Machpelah is located beneath the present Mosque of Abraham in Hebron. (ESV)
 
 23:20: **Made over to Abraham as a property**. Abraham’s purchase of the field and cave meant that his descendants would own this land in perpetuity. Abraham, Isaac, Jacob, Rebekah, and Leah would later be laid to rest in this cave. (ESV)
 
