@@ -1209,11 +1209,11 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 5:27: **Methuselah .. died**. **Methuselah** died in the year 1656 after creation; because he hasn’t been in the Ark, the flood must have taken place after he died. Further, Arphaxad, the son of Shem, was born in the year 1658 after creation, and because there is no mention of him when Noah’s family had entered the ark, the flood must have taken place before his birth.
 In the end, the flood must have happened in the years 1656-1658 after creation. It is indeed possible that Methuselah, who outlived his son Lamech, has died in the flood.
-([Chronology charts](https://www.google.com/url?q=https://www.google.com/search?tbm%3Disch%26q%3D%2528chronology%257Ctimeline%2529%2Badam%2Babraham&amp;sa=D&amp;ust=1582399365175000))
+([Chronology charts](https://www.google.com/search?tbm=isch&q=%28chronology%7Ctimeline%29+adam+abraham))
 
 5:27: **Мафусал .. умер**. Мафусал умер на девятьсот шестьдесят девятом году жизни: в тот год, когда начался потоп. (Блж. Иероним Стридонский)
 
-5:29: **он утешит нас**. Откуда у Ламеха столь великий дар предсказания? Ведь Писание не упоминает, чтобы он был муж добродетельный и чудный. 
+5:29: **он утешит нас**. Откуда у Ламеха столь великий дар предсказания? Ведь Писание не упоминает, чтобы он был муж добродетельный и чудный.
 Не удивляйся, возлюбленный: Господь, премудрый и благоискусный, часто и недостойным людям попускает предсказывать чудные и великие дела, и это не только в ветхом, но и в новом завете.
 
 5:29: **он утешит нас в работе нашей и в трудах рук наших**. разве снято было проклятие с земли, наложенное Господом, если, напротив, гнев Божий проявился только сильнее? (Ориген)
@@ -4196,44 +4196,58 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24: (__overview__) In this story, the author highlights how God controls events so that, after a long journey from Canaan to northern Mesopotamia, Abraham’s servant is guided to Rebekah. Then, like Abraham, Rebekah must leave her family and country in an act of faith in order to journey to Canaan and marry Isaac, whom she has never met. Genesis’s first audience would marvel at how God orchestrated the servant’s faithfulness, Rebekah’s positive response, and some unlikely events (e.g., v. 15) to bring about the marriage; they would be better able to see their very existence as the result of God’s guiding hand. (ESV)
 
-24:2: Abraham entrusts the important task of finding a wife for Isaac to his most reliable **servant**. (ESV)
+24:2: **the oldest servant .. who ruled**. He would have received all Abraham's wealth if he had no son (15:2: " I continue1 childless, and the heir of my house is Eliezer of Damascus"); yet, when Isaac was born, the inheritance became Isaac’s. So not only had he loyally served his master despite having been displaced by an heir, but he also faithfully served that heir (v. 67). (MacArthur)
 
-24:2: Likely, the **servant**’s name was Eliezer (Gen 15:2)
+24:2: **swear that .. you will not take a wife for my son .. of the Canaanites**. Matrimonial arrangements were made by parents, and chosen partners were to come from one’s own tribe. It was apparently customary to marry one’s first cousin. But Abraham’s higher motive was to prevent Isaac from marrying a Canaanite pagan after Abraham’s death, possibly leading the people away from the true God. (MacArthur)
+
+24:2: **said to his servant**. Abraham entrusts the important task of finding a wife for Isaac to his most reliable servant. (ESV)
+
+24:2: **servant**. Likely, the servant’s name was Eliezer (Gen 15:2: "I continue childless, and the heir of my house is Eliezer of Damascus")
 
 24:3: **Not take a wife of the Canaanites**. Jewish readers who know the history of Israel would immediately recognize that marrying a pagan woman would jeopardize Isaac’s faith. In v. 1, Abraham is already portrayed as a person who had a special relationship with God (“the LORD had blessed Abraham in all things”), and Isaac also seems to be a worshipper of God (v. 63: “to meditate”).
 
 24:3: **Canaanites**. Abraham is deeply concerned that Isaac should not marry a Canaanite; he fears that this will draw him away from worshiping the Lord. Canaanites are frequently portrayed as being wicked in Genesis. (ESV)
 
-24:4: The journey was approximately 900 km along ancient routes and would have taken Abraham’s servant approximately 21 days to travel. (ESV)
+24:4: **go to my country**. The journey was approximately 900 km along ancient routes and would have taken Abraham’s servant approximately 21 days to travel. (ESV)
 
-24:4: Later, Jacob would make this same journey as he fled from his brother Esau. He will get wives from the same region (29:1–28). (ESV)
+24:4: **to my country**. Later, Jacob would make this same journey as he fled from his brother Esau. He will get wives from the same region (29:1–28). (ESV)
 
-24:4: In spite of having left Haran in northern Mesopotamia almost a hundred years earlier, Abraham refers to it as **my country**. (ESV)
+24:4: **my country**. In spite of having left Haran in northern Mesopotamia almost a hundred years earlier, Abraham refers to it as **my country**. (ESV)
 
 24:6: **Do not take my son back there**. Isaac’s future is to be in Canaan, for God has promised this land to Abraham’s descendants. (ESV)
 
 24:9: **Under the thigh**. By undertaking this action, the servant binds himself to obey Abraham’s request. (ESV)
 
-24:10: **Nahor** is also the name of Terah’s father (Gen 11:25) and Abraham’s brother (Gen 11:26–27; 22:20). The use of the same name for both a city and a person is not unusual; settlements are sometimes named after people, and people are sometimes named after places. (ESV)
+24:9: **his hand under the thigh**. An ancient Near Eastern custom by which an intimate touch affirmed an oath. (MacArthur)
 
-24:14: The servant (like Abraham) has faith in the Lord and prays for guidance. The specific request is not the ordinary way to ask for guidance: the servant might better have asked for wisdom to discern the best wife for Isaac rather than to probe into what God had providentially appointed. Nevertheless, God graciously honors the request (cf. Gideon’s fleece, Judg. 6:36–40) as his means of directing events. (ESV)
+24:10: **to the city of Nahor**. Nahor is also the name of Terah’s father (Gen 11:25) and Abraham’s brother (Gen 11:26–27; 22:20). The use of the same name for both a city and a person is not unusual; settlements are sometimes named after people, and people are sometimes named after places. (ESV)
 
-24:14: The conditions set by the servant reveal that he is seeking a wife who has a generous and caring disposition. (ESV)
+24:14: **let the young woman .. be the one**. The servant (like Abraham) has faith in the Lord and prays for guidance. The specific request is not the ordinary way to ask for guidance: the servant might better have asked for wisdom to discern the best wife for Isaac rather than to probe into what God had providentially appointed. Nevertheless, God graciously honors the request (cf. Gideon’s fleece, Judg. 6:36–40) as his means of directing events. (ESV)
 
-24:17: Eliezer did not appear as a helpless, weary chap begging for a drink. And Rebecca, the daughter of Bethuel, the ruler of Aram Naharaim, was a young woman of nobility, not a poor servant girl accustomed to lugging water from wells. But this is precisely where Eliezer was able to get a glimpse of the righteous Rebecca. (__[Internet](https://www.google.com/url?q=https://www.chabad.org/theJewishWoman/article_cdo/aid/763991/jewish/Rebecca-and-the-Camel-Test.htm&amp;sa=D&amp;ust=1582399365231000)__)
+24:14: **camels a drink**. Hospitality required giving water to a thirsty stranger, but not to animals. A woman who would do that was unusually kind and served beyond the call of duty. (MacArthur)
 
-24:19: **I will draw water for your camels**. Camels need watered about every ten days. They can lose up to 40% of their body weight in water and fat before they feel the effects of the desert’s dry environment. A camel who has not drunk water in ten days can consume 150 liters of water in less than half an hour! 
-Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife, and what the teenage girl was willing to do: she volunteered to tote more than a ton and a half of water from the spring to take care of the caravan and its camels. How many teenagers do you know that would volunteer that kind of work effort today? (__[Internet](https://www.google.com/url?q=https://rlagee.wordpress.com/2013/11/09/how-much-can-a-camel-drink-genesis-2419/&amp;sa=D&amp;ust=1582399365231000)__)
+24:14: **who shall say, 'I will water your camels'**. The conditions set by the servant reveal that he is seeking a wife who has a generous and caring disposition. (ESV)
 
-24:21: He watched to see whether she just made a generous but empty offer, or she was actually going to follow through completely.
+24:14: **let her be the one whom you have appointed**. God appointed a wife for Isaac and the servant was willing to follow the Lord's guidance in this matter. Abraham didn't say that explicitly, but when he ordered to go to "my country and my kindred" (v. 4), he obviously didn't mean to pick just any wife: he must have counted on divine guidance.
 
-24:27: God’s swift answer to the servant’s prayer evokes an immediate response of worship and praise. (ESV)
+24:17: **please give me**. Eliezer did not appear as a helpless, weary chap begging for a drink. And Rebecca, the daughter of Bethuel, the ruler of Aram Naharaim, was a young woman of nobility, not a poor servant girl accustomed to lugging water from wells. But this is precisely where Eliezer was able to get a glimpse of the righteous Rebecca. ([Internet](https://www.chabad.org/theJewishWoman/article_cdo/aid/763991/jewish/Rebecca-and-the-Camel-Test.htm))
+
+24:19: ⭐ **I will draw water for your camels**. Camels need watered about every ten days. They can lose up to 40% of their body weight in water and fat before they feel the effects of the desert’s dry environment. A camel who has not drunk water in ten days can consume 150 liters of water in less than half an hour!
+Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife, and what the teenage girl was willing to do: she volunteered to tote more than a ton and a half of water from the spring to take care of the caravan and its camels. How many teenagers do you know that would volunteer that kind of work effort today? ([Internet](https://rlagee.wordpress.com/2013/11/09/how-much-can-a-camel-drink-genesis-2419/))
+
+24:21: **the man gazed at her in silence**. He watched to see whether she just made a generous but empty offer, or she was actually going to follow through completely.
+
+24:26: **worshipped the Lord**. God’s swift answer to the servant’s prayer evokes an immediate response of worship and praise. (ESV)
 
 24:29: **Rebekah’s brother Laban**. While Laban’s father Bethuel is still alive (cf. v. 50), his lack of involvement in the narrative suggests that he may well be incapacitated, possibly through old age. (ESV)
 
+24:29: **Laban ran out**. From what is revealed about his character later on (ch. 29), there is reason to believe that his sight of all the presents and the camels generated the welcome. (MacArthur)
+
 24:50: **The thing has come from the LORD**. Rebekah’s brother and father acknowledge that the providential nature of all that has taken place convincingly indicates that Rebekah should become Isaac’s wife. This is clearly God’s will. (ESV)
 
-24:53: The gifts confirm what the servant has earlier said about Abraham’s wealth. (ESV)
+24:53: **jewelry**. The gifts confirm what the servant has earlier said about Abraham’s wealth. (ESV)
+
+24:58: **She said, 'I will go'**. Commendably, Rebekah concurred with an immediate departure and showed her confident acceptance of what was providentially coming about in her life. (MacArthur)
 
 24:63: **Isaac went out to meditate**. This is another divinely directed event, which allows for Isaac to be the first person to meet Rebekah when they arrive at Isaac’s homeland. (ESV)
 
