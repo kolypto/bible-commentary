@@ -4196,6 +4196,8 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24: (__overview__) In this story, the author highlights how God controls events so that, after a long journey from Canaan to northern Mesopotamia, Abraham’s servant is guided to Rebekah. Then, like Abraham, Rebekah must leave her family and country in an act of faith in order to journey to Canaan and marry Isaac, whom she has never met. Genesis’s first audience would marvel at how God orchestrated the servant’s faithfulness, Rebekah’s positive response, and some unlikely events (e.g., v. 15) to bring about the marriage; they would be better able to see their very existence as the result of God’s guiding hand. (ESV)
 
+24:1: **Авраам был уже стар**. Исаак был 40 лет, когда он женился на Ревекке (Быт. 25:20: "Исаак был сорока лет, когда он взял себе в жену Ревекку"); а так как он родился на 100-м году жизни Авраама, то последнему, следовательно, в это время было около 140 лет.
+
 24:2: **the oldest servant .. who ruled**. He would have received all Abraham's wealth if he had no son (15:2: " I continue1 childless, and the heir of my house is Eliezer of Damascus"); yet, when Isaac was born, the inheritance became Isaac’s. So not only had he loyally served his master despite having been displaced by an heir, but he also faithfully served that heir (v. 67). (MacArthur)
 
 24:2: **swear that .. you will not take a wife for my son .. of the Canaanites**. Matrimonial arrangements were made by parents, and chosen partners were to come from one’s own tribe. It was apparently customary to marry one’s first cousin. But Abraham’s higher motive was to prevent Isaac from marrying a Canaanite pagan after Abraham’s death, possibly leading the people away from the true God. (MacArthur)
@@ -4203,6 +4205,23 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 24:2: **said to his servant**. Abraham entrusts the important task of finding a wife for Isaac to his most reliable servant. (ESV)
 
 24:2: **servant**. Likely, the servant’s name was Eliezer (Gen 15:2: "I continue childless, and the heir of my house is Eliezer of Damascus")
+
+24:2: **под стегно**. Если однажды эта самая часть тела послужила посредником и если в ней именно обитало некогда божественное семя, то можно было и потом клясться ею как храмом. А кто клянется храмом, тот клянется живущим в нем.
+В самом деле, не так ли и царский дворец? После того как он вме­щал в себе царя однажды, дважды или трижды, то хотя бы потом царь и не обитал в нем, однако самое место, раз навсегда остается освященным вследствие того, что некогда пре­бывал там царь; так и тело патриарха вследствие того, что послужило однажды орудием грядущего искупления, стало хра­мом обетованных благодеяний. Значит, клятва не была несправедливой, ее истинность засвидетельствована.
+(Свт. Иоанн Златоуст)
+
+24:2: **под стегно**. Авраам говорит: положи руку твою под стегно мое, как если бы он говорил: «Возложи руку твою на алтарь, или: возложи руку твою на ковчег завета, или: простри руку твою к храму Божию - и клянись мне». Он положил руку под стегно и принес клятву Богом неба и Богом земли. И не ошибался благословенный Авраам, когда повелел это сделать, но, будучи исполнен пророческого духа, он знал, что из его семени родится Христос, Господь неба и земли. Потому, когда раб его коснулся стегна, он не приносил клятву какой-либо частью плоти, но клялся живым и истинным Богом, ибо Авраам родил Исаака; Исаак родил Иакова; Иаков родил Иуду (Мф. 1:2) - из семени его родился Господь Иисус.
+(Свт. Кесарий Арелатский)
+
+24:2: **под стегно**.  Знаменования сему обряду приписываются различные, по различию толкователей.
+Евреи, по свидетельству Иеронима, относят оный к завету с Богом и обрезанию как знамению сего завета.
+Абенезра думает, что положением рук под стегно изображается покорность.
+Подобно сему один из новейших (Cleric) догадывается, не взят ли сей обряд с образа раба, поддерживающего стегно господина, когда он садится на верблюда.
+Еще одному из новейших (Grot.) пришло на мысль, что клянущийся при стегне клянется мечом, при бедре носимым. Клявшийся таким образом этим самым как бы говорил: если я нарушу клятву, то пусть меня поразит меч.
+Учители христианские, как, например, Амвросий и Августин, которые стараются усматривать Христа и в сени, и в гаданиях Ветхого Завета, утверждают, что положение рук под стегно есть указание на семя обетования. Догадка сия подтверждается как употребительным в еврейском языке выражением потомства чрез исхождение из чресл (Быт. 46:26; Евр. 7:10), так и самою необычайностью обрядового действия.
+(Свт. Филарет (Дроздов))
+
+24:2: **под стегно**. У евреев есть предание, что он клялся освящением Авраама, то есть обрезанием. А мы говорим, что он клялся семенем Авраамовым, то есть Христом, который должен был от него родиться. (Блж. Иероним Стридонский)
 
 24:3: **Not take a wife of the Canaanites**. Jewish readers who know the history of Israel would immediately recognize that marrying a pagan woman would jeopardize Isaac’s faith. In v. 1, Abraham is already portrayed as a person who had a special relationship with God (“the LORD had blessed Abraham in all things”), and Isaac also seems to be a worshipper of God (v. 63: “to meditate”).
 
@@ -4214,7 +4233,15 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24:4: **my country**. In spite of having left Haran in northern Mesopotamia almost a hundred years earlier, Abraham refers to it as **my country**. (ESV)
 
+24:4: **пойдешь в землю мою, на родину мою, и возьмешь жену сыну моему Исааку**. Ранее Авраам получил нечаянное известие о распространении дома Нахорова и о рождении в нем Ревекки, полученное Авраамом в то время, когда Исаак вступил в возраст супружества (Быт. 22:20-24). Намерение возникло не из одной только собственной решимости, но и как следствие особенного происшествия, на которые праведник взирал в Боге и принимал за наставления свыше. (Свт. Филарет (Дроздов))
+
 24:6: **Do not take my son back there**. Isaac’s future is to be in Canaan, for God has promised this land to Abraham’s descendants. (ESV)
+
+24:6: **берегись, не возвращай сына моего туда**. Авраам дважды и с особенной силой запрещает ему оставлять там своего сына Исаака, даже и в том крайнем случае, если бы избранная невеста не согласилась оставлять своей родины. Не муж должен следовать за женой, но жена за мужем. (Лопухин А.П.)
+
+24:7: **Он пошлет Ангела Своего пред тобою**. Надежду помощи Божией в обретении единоплеменной Исааку супруги Авраам основывает, во–первых, на том, что Сам Бог взял его из дома отеческого; а во–вторых, на том, что Бог обещал его потомству землю Ханаанскую. Сила сей последней мысли ощутительна: ибо Тот, который обещал наследие и наследников, без сомнения, предусмотрел и предназначил средства достигнуть и того, и другого.
+Нечаянное известие о благословении Нахора обильным потомством (Быт. 22:20) Авраам принял за глас Промысла, призывающий к союзу с его домом.
+(Свт. Филарет (Дроздов))
 
 24:9: **Under the thigh**. By undertaking this action, the servant binds himself to obey Abraham’s request. (ESV)
 
