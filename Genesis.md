@@ -4249,6 +4249,10 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24:10: **to the city of Nahor**. Nahor is also the name of Terah’s father (Gen 11:25) and Abraham’s brother (Gen 11:26–27; 22:20). The use of the same name for both a city and a person is not unusual; settlements are sometimes named after people, and people are sometimes named after places. (ESV)
 
+24:11: **в то время, когда выходят женщины черпать**. Обыкновенная в древности должность девиц. На сем‑то обыкновении раб Авраамов и основал свой способ выбора невесты господину своему. (Свт. Филарет (Дроздов))
+
+24:12: **сотвори милость с господином моим Авраамом**. Значит, "исполни его желание". (Свт. Иоанн Златоуст)
+
 24:14: **let the young woman .. be the one**. The servant (like Abraham) has faith in the Lord and prays for guidance. The specific request is not the ordinary way to ask for guidance: the servant might better have asked for wisdom to discern the best wife for Isaac rather than to probe into what God had providentially appointed. Nevertheless, God graciously honors the request (cf. Gideon’s fleece, Judg. 6:36–40) as his means of directing events. (ESV)
 
 24:14: **camels a drink**. Hospitality required giving water to a thirsty stranger, but not to animals. A woman who would do that was unusually kind and served beyond the call of duty. (MacArthur)
@@ -4256,6 +4260,26 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 24:14: **who shall say, 'I will water your camels'**. The conditions set by the servant reveal that he is seeking a wife who has a generous and caring disposition. (ESV)
 
 24:14: **let her be the one whom you have appointed**. God appointed a wife for Isaac and the servant was willing to follow the Lord's guidance in this matter. Abraham didn't say that explicitly, but when he ordered to go to "my country and my kindred" (v. 4), he obviously didn't mean to pick just any wife: he must have counted on divine guidance.
+
+24:14: **скажет: «пей, я и верблюдам твоим дам пить »**. Замечай благоразумие раба: он знал страннолюбие праотца, и то, что девице, которую он должен привести к нему, надобно иметь одинаковый с праведником нрав; потому раб не ищет никакого другого знака, а хочет узнать характер девицы по ее гостеприимству. чрез предложение воды она даст достаточное свидетельство о доброте своего нрава. (Свт. Иоанн Златоуст)
+
+24:14: **скажет: «пей, я и верблюдам твоим дам пить »**. Посмотри на мудрость слуги, какой он поставляет признак. Он не сказал: которую я увижу едущую на мулах, везомую на колеснице, сопровождаемую толпою евнухов и множеством прислуги, благообразную и блистающую телесной красотою, эту и назначил Ты отроку твоему; но что? Что делаешь ты, человек? Для господина своего ищешь ты жену столь уничиженную, занимающуюся водоношением, имеющую возможность разговаривать с тобою? Да, говорит; он не послал ведь меня искать обилия богатства, ни знатности происхождения, но благородства души.
+А что за признак есть у добродетели? Величайший и несомненный. Это – признак гостеприимства великий и самый очевидный.
+Смысл слов его, хотя выраженный не теми же словами, следующий: я ищу такой девицы, которая так гостеприимна, что не отказывает ни в какой услуге, какую может оказать.
+Он был из такого дома, который особенно отличался делами гостеприимства, и потому старался, прежде всего, найти такую девицу, которая нравом сходствовала бы с его господами.
+(Свт. Иоанн Златоуст)
+
+24:14: **вот та, которую Ты назначил рабу Твоему Исааку**. Сие испытание воли Божией посредством произвольно избранного знамения некоторым кажется дерзостью и суеверием. Но поступок раба Авраамова словом Божиим не осуждается, успехом его прошения оправдывается и как угодный Богу подтверждается подобными поступками Гедеона (Суд. 6:16: "то сделай мне знамение, что Ты говоришь со мною:
+не уходи отсюда, доколе я не приду к Тебе и не принесу дара моего"; Суд 6:37-39: "я расстелю здесь на гумне стриженую шерсть: если роса будет только на шерсти, а на всей земле сухо") и Ионафана (1 Цар. 14:8-10: "а если так скажут: «поднимитесь к нам», то мы взойдем, ибо Господь предал их в руки наши; и это будет знаком для нас.").
+Последование сим примерам неосторожного в самом деле может ввести в заблуждение и суеверие.
+* Тогда только позволительно молить Бога о знамении, когда мы дарованную от Него же прозорливость нашего ума находим недостаточною к нужному для блага нашего или ближних познанию Его о нас воли.
+* Прошение знамения должно быть приносимо Богу с несомненною верою; в противном случае оно и бесплодно будет, и оскорбительно для Бога, ибо все, что не от веры, есть грех (Рим. 14:23).
+* Вопрошающий Бога посредством какого бы то ни было знамения пусть решится непременно последовать ответу: иначе как можно и надеяться на ответ от Того, который не любит ронять слова Своего (Нав. 23:4).
+* Без крайней нужды и особенного внутреннего побуждения не должно искушать Бога прошением чудесных знамений; довольно просить у Него таких, которые бы, не выходя из естественного порядка вещей, подавали нам нужные внушения, к чему Промысл имеет бесчисленные средства
+Так, раб Авраамов для узнания благонравной девицы избирает такое знамение, которое могло быть естественным следствием доброго и человеколюбивого расположения души.
+(Свт. Филарет (Дроздов))
+
+24:15: **Еще не перестал он говорить**. "и правда твоя пойдет пред тобою, и слава Господня будет сопровождать тебя. тогда ты воззовешь, и Господь услышит" (Ис. 58:9). Таковы молитвы людей добродетельных; прежде окончания они располагают Бога к исполнению просимого. (Свт. Иоанн Златоуст)
 
 24:17: **please give me**. Eliezer did not appear as a helpless, weary chap begging for a drink. And Rebecca, the daughter of Bethuel, the ruler of Aram Naharaim, was a young woman of nobility, not a poor servant girl accustomed to lugging water from wells. But this is precisely where Eliezer was able to get a glimpse of the righteous Rebecca. ([Internet](https://www.chabad.org/theJewishWoman/article_cdo/aid/763991/jewish/Rebecca-and-the-Camel-Test.htm))
 
