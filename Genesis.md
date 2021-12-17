@@ -4271,7 +4271,7 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24:14: **вот та, которую Ты назначил рабу Твоему Исааку**. Сие испытание воли Божией посредством произвольно избранного знамения некоторым кажется дерзостью и суеверием. Но поступок раба Авраамова словом Божиим не осуждается, успехом его прошения оправдывается и как угодный Богу подтверждается подобными поступками Гедеона (Суд. 6:16: "то сделай мне знамение, что Ты говоришь со мною:
 не уходи отсюда, доколе я не приду к Тебе и не принесу дара моего"; Суд 6:37-39: "я расстелю здесь на гумне стриженую шерсть: если роса будет только на шерсти, а на всей земле сухо") и Ионафана (1 Цар. 14:8-10: "а если так скажут: «поднимитесь к нам», то мы взойдем, ибо Господь предал их в руки наши; и это будет знаком для нас.").
-Последование сим примерам неосторожного в самом деле может ввести в заблуждение и суеверие.
+оПследование сим примерам неосторожного в самом деле может ввести в заблуждение и суеверие.
 * Тогда только позволительно молить Бога о знамении, когда мы дарованную от Него же прозорливость нашего ума находим недостаточною к нужному для блага нашего или ближних познанию Его о нас воли.
 * Прошение знамения должно быть приносимо Богу с несомненною верою; в противном случае оно и бесплодно будет, и оскорбительно для Бога, ибо все, что не от веры, есть грех (Рим. 14:23).
 * Вопрошающий Бога посредством какого бы то ни было знамения пусть решится непременно последовать ответу: иначе как можно и надеяться на ответ от Того, который не любит ронять слова Своего (Нав. 23:4).
@@ -4283,16 +4283,30 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 24:17: **please give me**. Eliezer did not appear as a helpless, weary chap begging for a drink. And Rebecca, the daughter of Bethuel, the ruler of Aram Naharaim, was a young woman of nobility, not a poor servant girl accustomed to lugging water from wells. But this is precisely where Eliezer was able to get a glimpse of the righteous Rebecca. ([Internet](https://www.chabad.org/theJewishWoman/article_cdo/aid/763991/jewish/Rebecca-and-the-Camel-Test.htm))
 
+24:18: **спустила кувшин свой на руку свою и напоила его**. Иногда люди, держащие в руках зажженные свечи, на просьбы других, подходящих к ним людей – подождать немного и дать им зажечь свою свечу, не хотят и этого сделать, тогда как нисколько не убавится огня, хотя бы и тысячи были желающих зажечь. А здесь – женщина, девица, несущая водонос на плечах, не только не вознегодовала на просьбу, но сделала даже сверх просьбы: и странника напоила, и верблюдов добровольно поспешила напоить, и таким поступком представила доказательство своего душевного благородства. (Свт. Иоанн Златоуст)
+
 24:19: ⭐ **I will draw water for your camels**. Camels need watered about every ten days. They can lose up to 40% of their body weight in water and fat before they feel the effects of the desert’s dry environment. A camel who has not drunk water in ten days can consume 150 liters of water in less than half an hour!
 Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife, and what the teenage girl was willing to do: she volunteered to tote more than a ton and a half of water from the spring to take care of the caravan and its camels. How many teenagers do you know that would volunteer that kind of work effort today? ([Internet](https://rlagee.wordpress.com/2013/11/09/how-much-can-a-camel-drink-genesis-2419/))
 
 24:21: **the man gazed at her in silence**. He watched to see whether she just made a generous but empty offer, or she was actually going to follow through completely.
 
+24:21: **смотрел на нее с изумлением в молчании**. Это изумление было вполне естественным и понятным психологическим состоянием Елиезера, который был положительно поражен таким удивительным совпадением факта с его молитвою о нем. (Лопухин А.П.)
+
+24:22: **взял золотую серьгу .. и браслеты**. Взял, но ещё не подарил. Сперва он спросит, чья она дочь.
+
+24:24: **я дочь Вафуила, сына Милки, которого она родила Нахору**. Она незлобиво и кротко назвала отца, не обиделась и не сказала: кто ты, разведывающий, исследующий и расспрашивающий о нашем доме. (Свт. Иоанн Златоуст)
+
 24:26: **worshipped the Lord**. God’s swift answer to the servant’s prayer evokes an immediate response of worship and praise. (ESV)
+
+24:26: **И преклонился человек тот и поклонился Господу**. Получив это последнее удостоверение, Елиезер убедился, что его миссия окончена и в порыве горячей благодарности, он молитвенно преклоняется пред всемогущим Промыслителем. (Лопухин А.П.)
+
+24:26: **И преклонился человек тот и поклонился Господу**. Интересно, что Бог может направлять пути людей, не пересекая при этом их свободную волю. Елиезер и Ревекка оказались в нужное время у колодца, Елиезеру пришла в голову затея, которую Ревекка исполнила — но каждый из них при этом действовал по своей воле. И одновременно, по Божьей воле. Как же так? Как Бог это делает? Загадка.
 
 24:29: **Rebekah’s brother Laban**. While Laban’s father Bethuel is still alive (cf. v. 50), his lack of involvement in the narrative suggests that he may well be incapacitated, possibly through old age. (ESV)
 
 24:29: **Laban ran out**. From what is revealed about his character later on (ch. 29), there is reason to believe that his sight of all the presents and the camels generated the welcome. (MacArthur)
+
+24:30: **войди, благословенный Господом**. Хотя Лаван и был идолопоклонником (Быт. 31:30: "зачем ты украл богов моих"), однако, находясь в родственной связи с тем домом, из которого вышел некогда и Авраам, он не успел еще утратить некоторых следов истинного богопознания. Возможно также и то, что Лаван называет так своего гостя со слов сестры Ревекки, слышавшей имя Господа из уст самого Елиезера. (Лопухин А.П.)
 
 24:50: **The thing has come from the LORD**. Rebekah’s brother and father acknowledge that the providential nature of all that has taken place convincingly indicates that Rebekah should become Isaac’s wife. This is clearly God’s will. (ESV)
 
