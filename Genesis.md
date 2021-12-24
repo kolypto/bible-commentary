@@ -3574,6 +3574,7 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 
 
+
 ### Abraham and Abimelech
 
 20:1: **Авраам поднялся оттуда**. Откуда он пошел? От того места, где жил в палатке, и где удостоился принять Господа с ангелами. (Свт. Иоанн Златоуст)
@@ -3693,6 +3694,17 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 
 
+
+
+
+
+
+
+
+
+
+
+
 ### The Birth of Isaac
 
 21:1: **The LORD visited Sarah**. God had said, “I will surely return to you about this time next year, and Sarah your wife shall have a son.”. He did not just promise that she will conceive, but He promised *to return*. And He **visited** Sarah somehow, but no details are given. (Gen 18:10)
@@ -3711,6 +3723,24 @@ Abraham, however, was able to have more children after Sarah died. Probably, God
 21:7: **Who would have said..?**. Sarah’s words emphasize the impossible nature of what God has just done. A miracle. Impossible.
 
 21:7: **Сарра будет кормить детей грудью**. Для того и сообщены ей источники молока, чтобы удостоверять в действительности рождения, чтобы кто-нибудь не стал считать дитя за подложное. Чтобы не счел кто младенца подкинутым, источники молока удостоверяли в за­конности его рождения: чтобы  все видели, как женщина, состарившаяся и дожившая до самых преклонных лет, имеет грудного младенца. (Свт. Иоанн Златоуст)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ### God Protects Hagar and Ishmael
@@ -3787,6 +3817,8 @@ Abraham, however, was given divine approval and assurances.
 
 
 
+
+
 ### A Treaty with Abimelech
 
 21:22: **God is with you in all that you do**. Abimelech attributes Abraham’s success to God. (ESV)
@@ -3836,6 +3868,10 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 21:33: **Бога вечности**, или вечного. Именем вечного истинный Бог отделяется от тварей и противопоставляется мнимым божествам языческим, из коих многие почитались только долговечными, а не вечными. (Свт. Филарет (Дроздов))
 
 21:34: **как странник**. Дни многие, однако жил как иностранец, а не основал себе неподвижного жилища. (Свт. Филарет (Дроздов))
+
+
+
+
 
 
 
@@ -4110,6 +4146,9 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 
 
+
+
+
 ### Sarah's Death and Burial
 
 23:1: **Sarah lived 127 years**. The only woman's age at death recorded in Scripture. (MacArthur)
@@ -4302,17 +4341,29 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 24:26: **И преклонился человек тот и поклонился Господу**. Интересно, что Бог может направлять пути людей, не пересекая при этом их свободную волю. Елиезер и Ревекка оказались в нужное время у колодца, Елиезеру пришла в голову затея, которую Ревекка исполнила — но каждый из них при этом действовал по своей воле. И одновременно, по Божьей воле. Как же так? Как Бог это делает? Загадка.
 
+24:27: **прямым путём**. Слуга наверняка думал, что поиск жены в чужой стране — задача крайне непростая, но едва он прибыл, Бог всё решил. Действительно, это самый что ни на есть прямой путь!
+
 24:29: **Rebekah’s brother Laban**. While Laban’s father Bethuel is still alive (cf. v. 50), his lack of involvement in the narrative suggests that he may well be incapacitated, possibly through old age. (ESV)
 
 24:29: **Laban ran out**. From what is revealed about his character later on (ch. 29), there is reason to believe that his sight of all the presents and the camels generated the welcome. (MacArthur)
 
 24:30: **войди, благословенный Господом**. Хотя Лаван и был идолопоклонником (Быт. 31:30: "зачем ты украл богов моих"), однако, находясь в родственной связи с тем домом, из которого вышел некогда и Авраам, он не успел еще утратить некоторых следов истинного богопознания. Возможно также и то, что Лаван называет так своего гостя со слов сестры Ревекки, слышавшей имя Господа из уст самого Елиезера. (Лопухин А.П.)
 
+24:40: **Господь, пред лицем Которого я хожу**. ходить пред Богом — значит угождать Ему или жить в полном согласии с Его святой волей . (Лопухин А.П.)
+
+24:50: **Вафуил**. До сих пор он лишь упоминался как отец Ревекки, но никак не участвовал в происходящем. Вероятно, он болел, или был стар, и Лаван занимался хозяйством. Но когда встал вопрос о замужестве дочери, Вафуил всё же решал.
+
 24:50: **The thing has come from the LORD**. Rebekah’s brother and father acknowledge that the providential nature of all that has taken place convincingly indicates that Rebekah should become Isaac’s wife. This is clearly God’s will. (ESV)
+
+24:50: **от Господа пришло это**. Он был чужестранец. И раб. И неизвестный. И путь далёкий. И не известны были ни свёкор, ни жених, и никто другой из их родственников, и каждое из этих обстоятельств само по себе достаточно было воспрепятствовать браку. Однако ничто не воспрепятствовало, но все это оказалось легким и родители смело вверили ему невесту, как бы человеку знакомому, живущему вблизи и издавна обращавшемуся с ними. А причиною было то, что Бог был среди них. (Свт. Иоанн Златоуст)
+
+24:50: **Мы не можем сказать вопреки тебе ни худого, ни доброго.**. Внимание Лавана и Вафуила к делам Провидения может служить поучением или даже устыжением для некоторых между самими христианами. (Свт. Филарет (Дроздов))
 
 24:53: **jewelry**. The gifts confirm what the servant has earlier said about Abraham’s wealth. (ESV)
 
 24:58: **She said, 'I will go'**. Commendably, Rebekah concurred with an immediate departure and showed her confident acceptance of what was providentially coming about in her life. (MacArthur)
+
+24:58: **Она сказала: пойду**. Сие решительное согласие Ревекки идти в отдаленную страну и вступить в неизвестное семейство — чем может быть изъяснено, как не доверенностью к Провидению? (Свт. Филарет (Дроздов))
 
 24:63: **Isaac went out to meditate**. This is another divinely directed event, which allows for Isaac to be the first person to meet Rebekah when they arrive at Isaac’s homeland. (ESV)
 
@@ -4341,17 +4392,23 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### Abraham's Death and His Descendants
 
-25:1: **Took another wife**. God must have permanently enabled Abraham to have children, for even before the birth of Isaac his body had already been “as good as dead”, and he still was able to produce more children after Isaac.
+25:1: **took another wife**. God must have permanently enabled Abraham to have children: for even before the birth of Isaac his body had already been “as good as dead”, and he still was able to produce more children after Isaac.
 
-25:1: **Took another wife**. Like Hagar, she has the status of a “concubine”. See 1 Chron. 1:32: “his concubine”. No indication is given as to when this relationship was established; it possibly existed before the death of Sarah. Reflecting the culture of the ancient Near East, it was not unknown for men to take “second” wives, but this was usually an action of those who were wealthy. The precise status of Keturah is unknown; she may have been a maidservant of Sarah. (ESV)
+25:1: **took another wife**. Like Hagar, she has the status of a “concubine” (1 Chron. 1:32: “Keturah, Abraham’s concubine”). No indication is given as to when exactly this relationship was established; it possibly existed before the death of Sarah. Reflecting the culture of the ancient Near East, it was not unknown for men to take “second” wives, but this was usually an action of those who were wealthy. The precise status of Keturah is unknown; she may have been a maidservant of Sarah. (ESV)
 
-25:2: **Midian**. Moses will kill an Egyptian and come to live in the land of the **Midianites**, where he will be in exile for 40 years.
+25:1: **took another wife**. Keturah had a lower status than Sarah. Her sons became the progenitors of various Arab tribes to the east of Canaan. (MacArthur)
 
-25:5-6: **Abraham gave all he had to Isaac**, but he **sent away** all his other sons, including the firstborn. 
+25:2: **Midian**. Moses will kill an Egyptian and come to live in the land of the Midianites, where he will be in exile for 40 years.
 
-25:8: **Abraham died** when Isaac was 75 years old. (ESV)
+25:5-6: **gave all he had to Isaac, .. sent away the sons**. Abraham gave all the inheritance to his firstborn, and sent away all his other sons. But not Ishmael: in v. 9 Isaac and Ishmael bury their father, which means Ishmael was not sent away but lived nearby.
 
-25:8: **Gathered to his people**. Indicates that even in the OT people’s spirits did not disappear, but were gathered together somewhere.
+25:5-6: **gave all he had to Isaac, .. sent away the sons**. Through gifts and the sending away, Abraham ensured that Isaac would be considered as the rightful heir without competition or threat from his half-brothers. (MacArthur)
+
+25:8: **Abraham .. died**. Isaac was 75 years old. (ESV)
+
+25:8: **gathered to his people**. Indicates that even in the OT people’s spirits did not disappear, but persons were reunited with previously departed friends (MacArthur).
+
+25:9: **Isaac and Ishmael .. buried him**. Ishmael had no grudge against his father and still payed respects. His other sons did not attend the funeral because they were sent away.
 
 25:11: **God blessed Isaac**. There existed a special relationship between God and Isaac, the continuation of the relationship Abraham had.
 
@@ -4378,23 +4435,29 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### Esau and Jacob
 
-25:21: Like Sarah, Rebekah is also **barren**. (ESV)
+25:21: **Rebekah .. was barren**. Like Sarah, Rebekah is also barren. (ESV)
+
+25:21: **Rebekah .. was barren**. Confronted by 20 years of his wife's barrenness (Isaac was 40 when they married (v.20: "Isaac was forty years old when he took Rebekah"); he was 60 when she gave birth (v.26: "Isaac was 60 years when she bore them")), Isaac rose to the test and earnestly turned to God in prayer, obviously acknowledging God’s involvement and timing in the seed-promise. (MacArthur)
 
 25:22: **Children struggled within her**. Introduces one of the main themes of the coming chapters: the conflict between the two brothers. (ESV)
 
-25:22: Conflict between brothers is a recurring motif in Genesis, beginning with Cain and Abel, and is a constant reminder of the negative impact of the fall on human existence. (ESV)
+25:22: **Children struggled within her**. Conflict between brothers is a recurring motif in Genesis, beginning with Cain and Abel, and is a constant reminder of the negative impact of the fall on human existence. (ESV)
 
-25:22: **Went to inquire**. To a seer.
+25:22: **went to inquire of the Lord**. To a seer.
 
-25:23: Normally, younger brothers were subservient to the firstborn male, who enjoyed special privileges, but God reverses human expectations. (ESV)
+25:23: **the older shall serve the younger**. Normally, younger brothers were subservient to the firstborn male, who enjoyed special privileges, but God reverses human expectations. (ESV)
 
-25:24: **Days to give birth**. The twins are born 15 years before the death of Abraham. (ESV)
+25:23: **the older shall serve the younger**. God's sovereign elective purpose did not necessarily have to follow custom. (MacArthur)
 
-25:26: The motif of deception appears in a number of episodes associated with **Jacob**. (ESV)
+25:24: **to give birth**. The twins are born 15 years before the death of Abraham. (ESV)
 
-25:31: While **Jacob** may be criticized for exploiting his brother in a moment of weakness, **Esau** is indifferent toward his **firstborn** status. (ESV)
+25:26: **holding Esau's heel**. The motif of deception appears in a number of episodes associated with Jacob. (ESV)
 
-25:34: Because of **Esau despising** his birthright, Heb 12:16 describe him as “unholy” (“sexually immoral or unholy like Esau, who sold his birthright for a single meal”).
+25:31: **Sell me your birthright**. While Jacob may be criticized for exploiting his brother in a moment of weakness, Esau is indifferent toward his firstborn status. (ESV)
+
+25:31: **birthright**. This involved a double portion of the inheritance (Deut. 21:17: "he shall acknowledge the firstborn, the son of the unloved, by giving him a double portion of all that he has") and the right to be family chief and priest (Ex. 4:22: "Israel is my firstborn son"). (MacArthur)
+
+25:34: **Esau despised his birthright**. This conversation indicates that there were prior discussions or arguments sufficient for Jacob to conclude how little Esau valued his birthright. He became, therefore, known as irreligious, i.e. "a profane person" (Heb 12:16). (MacArthur)
 
 
 
