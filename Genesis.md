@@ -2650,6 +2650,8 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 Abram has proved himself righteous by his deeds, he is counted (that is, regarded) as righteous because of his faith. 
 (ESV)
 
+15:6: **credited to him as righteousness**. Righteousness was credited to Abraham not only because he believed God, but also because he kept God's commandments (Gen 26:5: "because Abraham obeyed my voice and kept my charge, my commandments, my statutes, and my laws.”") and walked before God (Gen 24:40: "The Lord, before whom I have walked").
+
 15:6: **Аврам поверил Господу**. Поскольку поверил он неудобоисполнимому, чему не всякий человек мог поверить, то вменилось ему это в правду. (Прп. Ефрем Сирин)
 
 15:6: **Аврам поверил Господу**. Чему он поверил? Тому, что Христос через принятие плоти будет его наследником. И, дабы ты знал, почему он поверил в это, Господь говорит: Авраам увидел день Мой и возрадовался (Ин. 8:56). Это было вменено ему в праведность, потому что он не искал разума, но уверовал ревностной верой. (Свт. Амвросий Медиоланский)
@@ -4560,15 +4562,25 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### God's Promise to Isaac
 
-26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. **Isaac**, however, is stopped by God and instructed to remain in **Gerar** while he was already moving south. (ESV)
+26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. Isaac, however, is stopped by God and instructed to remain in Gerar while he was already moving south. (ESV)
+
+26:1: **Philistines**. This tribe became fierce enemies of Israel when they settled along the southwest coast of Palestine. Friendly to Isaac, they were forerunners of hostile descendant enemies. (MacArthur)
 
 26:1: **Abimelech**. It may be the same king mentioned in chs. 20-21; it is perhaps more likely that he is the son or grandson of the Abimelech known to Abraham. However, in v.26 we see that the name of the commander of the army is still Phicol, as in 21:22; this makes it likely that it actually is the very same king. (ESV)
+
+26:1: **famine .. besides the former famine**. The author takes care that the reader does not confuse the two. Therefore, he knows well that the wife-as-a-sister story (Gen 12:10), Abimelech and the wife-as-a-sister story (Gen 20:1), Phicol and the well-digging story (Gen 21:22), are the same. The repetition here is intentional: it's not the same story, but a different one that mirrors the life of Abraham.
+
+26:2: **do not go down to Egypt**. The situation is the same, but still different: God forbids Isaac to go to Egypt. Isaac was searching for a land where his family can live well, but God promised that He Himself will be the source of blessing right where Isaac was: in Gerar.
 
 26:3: **the oath that I swore to Abraham**. This chapter also confirms that the divine promises to Abraham are passed on to Isaac. (ESV)
 
 26:3: **Sojourn in this land, and I will bless you**. The Lord instructs Isaac to remain in Canaan, with the promise that he will be blessed for doing so. (ESV)
 
+26:3: **I will bless you**. God confirmed the Abrahamic covenant with Isaac, emphasizing the same three elements as before: land, seed, and blessing. (MacArthur)
+
 26:5: **Kept my commandments**. The words underline that Abraham’s obedience to God was unreserved. (ESV)
+
+26:5: **kept my charge, my commandments, my statutes, my laws**. Righteousness was credited to Abraham not only because he believed God, but also because he kept God's commandments and walked before God (Gen 24:40: "The Lord, before whom I have walked").
 
 
 
@@ -4591,36 +4603,46 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### Isaac and Abimelech
 
-26:1: **Besides the former famine that was in the days of Abraham**. These words 
+26:7: **she is my sister**. Obedience and deceit are both present. This reflects familiar shades of Abraham's strategy for survival. (MacArthur)
 
-26:6: Much of Isaac’s life mirrors that of Abraham. The famine, moving south, now this wife-as-a-sister episode.
+26:7: **she is my sister**. Perhaps, the goal of the author is to show that Isaac inherited some bad traits of Abraham.
 
 26:8: **Looked out of a window**. Unlike Abraham’s story, no one has taken Rebekah as wife.
 
-26:8: **saw Isaac laughing with Rebekah**. In this context the Hebrew verb “**to laugh**” implies **laughing** as they caress affectionately. The narrator deliberately chooses this verb to create a play on the name “Isaac,” which means “he laughs.” (ESV)
+26:8: **Looked out of a window**. Unlike his ancestor, this king providentially discovered Rebekah's relationship to Isaac.
+
+26:8: **saw Isaac laughing with Rebekah**. In this context the Hebrew verb “to laugh” implies *laughing* as they caress affectionately. The narrator deliberately chooses this verb to create a play on the name “Isaac,” which means “he laughs.” (ESV)
+
+26:11: **Whoever touches this man or his wife shall surely be put to death.**.  pagan king imposing the death penalty on anyone troubling Isaac or Rebekah suggests God was at work to preserve His chosen seed. (MacArthur)
 
 26:13: **became rich**. Because of the Lord’s blessing. (ESV)
 
-26:15: The Philistines may have **closed up the wells** to discourage seminomadic herdsmen from grazing their livestock in this region. (ESV)
+26:14: **Philistines envied him**. His efforts were blessed by God, but envied by the Philistines. (MacArthur)
+
+26:15: **Philistines .. stopped .. the wells**. The Philistines may have closed up the wells to discourage seminomadic herdsmen from grazing their livestock in this region. (ESV)
+
+26:15: **stopped up all the wells**. Water was so precious in that desert land that wells were essential. Plugging someone’s well was ruinous to them and constituted serious aggression, often leading to war. Isaac could have retaliated, but he did not; rather, he dug new wells. (MacArthur)
 
 26:20: **Quarreled**. Since water was a vital commodity in this arid region, disputes over the ownership of wells were common. (ESV)
 
-26:22: **Isaac** was **moving** away from any land that brought contention and strife, until he found a place where no one challenged him. Isaac exhibits a peaceful spirit: he is willing to give up and start anew.
+26:22: **he moved from there**. Isaac was moving away from any land that brought contention and strife, until he found a place where no one challenged him. Isaac exhibits a peaceful spirit: he is willing to give up and start anew.
 
-26:24: **The Lord appeared**. Isaac experienced God’s presence.
+26:22: **they did not quarrel**. Now that they were no longer perceived as encroaching upon another's territory, Isaac selected an appropriate place-name which reflected hos he saw God providenially working out their situation. "Rehoboth" means "room enough". (MacArthur)
 
-26:26: **Phicol** could be the name of the very same person, or, alternatively, “Phicol” could be a family name or title and here refer to someone else. (ESV)
+26:24: **Fear not, for I am with you**. God appeared to ease Isaac's anxiety at facing envy, quarrels, and hostility. (MacArthur)
 
-26:28: **Abimelech** makes the very same **covenant** with Isaac that he had made with Abraham, at the very same place (Beersheba), and for the very same reason: **the Lord has been with you**. The desire to make a peaceful covenant arises from a change of heart by Abimelech, who now acknowledges the Lord’s presence with Isaac. 
+26:26: **Abimelech .. and Phicol**. Because 90 years had passed since Abraham was visited by men with the same names, they must have been titles rather than proper names. Like Pharaoh: a title, not a name. (MacArthur)
+
+26:28: **let us make a covenant**. Abimelech makes the very same covenant with Isaac that he had made with Abraham, at the very same place (Beersheba), and for the very same reason: "the Lord has been with you". The desire to make a peaceful covenant arises from a change of heart by Abimelech (after the events with Abraham) who now acknowledges the Lord’s presence with Isaac.
 The covenant seems to become a covenant between nations.
 
 26:29: **You are now the blessed of the Lord**. The blessed, the one on earth. Just like his father had been.
 
-26:33: **Beersheba**. The word had already been used in v. 23, and had been used before in the Abraham’s story, which indicates that the author is well aware of anachronisms he intentionally inserts for clarity.
+26:33: **Beersheba**. The very same place where his father Abraham had made an oath with another Abimelech and Phicol (MacArthur)
 
-26:34: **Esau** chose two wives, not one. Apparently, he did not choose wisely either. Both of the are of the Hittite origin, which may indicate ungodliness. (ESV)
+26:34: **Wsau .. took .. wives**. Esau chose two wives, not one. Apparently, he did not choose wisely either. Both of the are of the Hittite origin, which may indicate ungodliness. (ESV)
 
-
+26:35: **made life bitter for Isaac and Rebekah**. Esau's choice of wives from among neighboring Hittite women saddened his parents. His action had deliberately ignored the standard set by Abraham for Isaac. (MacArthur)
 
 
 
