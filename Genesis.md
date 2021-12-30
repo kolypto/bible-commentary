@@ -4562,6 +4562,8 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### God's Promise to Isaac
 
+=26:1: Глава 26 — единственная в книге Бытия глава, посвященная исключительно истории Исаака, тогда как со ст. 20 гл. 25, равно и в гл. 27 и 28, 16 ст., история Исаака соединяется с историей сынов его, а ранее того она входила в историю Авраама. (Лопухин А.П.)
+
 26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. Isaac, however, is stopped by God and instructed to remain in Gerar while he was already moving south. (ESV)
 
 26:1: **Philistines**. This tribe became fierce enemies of Israel when they settled along the southwest coast of Palestine. Friendly to Isaac, they were forerunners of hostile descendant enemies. (MacArthur)
@@ -4570,7 +4572,15 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 26:1: **famine .. besides the former famine**. The author takes care that the reader does not confuse the two. Therefore, he knows well that the wife-as-a-sister story (Gen 12:10), Abimelech and the wife-as-a-sister story (Gen 20:1), Phicol and the well-digging story (Gen 21:22), are the same. The repetition here is intentional: it's not the same story, but a different one that mirrors the life of Abraham.
 
+26:1: **к Авимелеху, царю Филистимскому**. Один ли действительно царь именем Авимелех царствовал от 80 до 90 лет? Или Авимелех было общее имя царей филистимских, подобно как Фараон — египетских? Возможно и то, другое; а что из двух достовернее, для настоящей истории не важно. (Свт. Филарет (Дроздов))
+
+26:1: **к Авимелеху**. «Авимелех» — «отец мой царь» или «царь отец мой» — обычный титул царей филистимских, как «фараон» египетских: имя Авимелеха носят цари филистимские времен Авраама (Быт. 20–21 гл.), Исаака (26) и Давида (Пс. 33:1: "Псалом Давиду, внегда измени лице свое пред Авимелехом", ср.1 Цар. 21:13: "И сказал Давид Ахимелеху:").
+
 26:2: **do not go down to Egypt**. The situation is the same, but still different: God forbids Isaac to go to Egypt. Isaac was searching for a land where his family can live well, but God promised that He Himself will be the source of blessing right where Isaac was: in Gerar.
+
+26:2: **Не ходи в Египет**. Из сих слов видно, что Исаак имел намерение идти в Египет. Бог, который не попускает человеку быть искушаему более, нежели он может снести (1 Кор. 10:13), сохранил Исаака от Египта, который был опаснее Герара, как можно видеть из истории Авраама. (Свт. Филарет (Дроздов))
+
+26:2: **Я буду с тобою и благословлю тебя**. Но чтобы праведник не подумал, что Бог дает ему такое повеление, не позволяет идти в Египет, потому, что хочет подвергнуть его испытанию голода, Бог говорит ему: не смущайся, не озабочивайся, а оставайся здесь: «Аз бо с тобою буду». Имея близ себя Подателя всех благ, не заботься ни о чем; Я, Владыка всего, буду с тобою, и не только буду, но и «благословлю тя», то есть, сделаю тебя славным, и дам тебе Мое благословение. (Свт. Иоанн Златоуст)
 
 26:3: **the oath that I swore to Abraham**. This chapter also confirms that the divine promises to Abraham are passed on to Isaac. (ESV)
 
@@ -4582,6 +4592,7 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 26:5: **kept my charge, my commandments, my statutes, my laws**. Righteousness was credited to Abraham not only because he believed God, but also because he kept God's commandments and walked before God (Gen 24:40: "The Lord, before whom I have walked").
 
+26:5: **за то, что Авраам послушался гласа Моего и соблюдал**. Замечай премудрость Божию, как она возбуждает дух праведника, ободряет его и направляет к тому, чтобы он стал подражателем отцу своему. Если он, говорит Бог, за то, что «послушался гласа Моего», удостоился столь великого обетования, и за его добродетель Я намерен исполнить это обетование на тебе, сыне его, то подумай, каким ты пользоваться будешь от Меня благоволением, какого удостоишься промышления, если будешь ревностным подражателем его и пойдешь путем его. Тот, кто за добродетель другого может получить благо, гораздо большего удостоится попечения свыше, если и сам будет добродетелен.  (Свт. Иоанн Златоуст)
 
 
 
