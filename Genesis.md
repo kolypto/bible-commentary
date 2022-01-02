@@ -4654,9 +4654,17 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 26:20: **Quarreled**. Since water was a vital commodity in this arid region, disputes over the ownership of wells were common. (ESV)
 
+26:20: ⭐ **спорили с ним**. Это-то и есть истинная кротость, когда кто не от сильнейших себя переносит благодушно обиды, а уступает в случае оскорблений от людей, считающихся низшими его. А иначе может кто-нибудь сказать, что он обнаруживает кротость потому, что не в силах противиться силе обидящего.
+Чтобы ты знал, что и в отношении к царю он оказывал кротость не по причине его могущества, а по своему характеру, смотри: он точно так же поступает и с пастухами.
+(Свт. Иоанн Златоуст)
+
+26:21: **спорили также и о нём**. Но претерпевая такие оскорбления каждый, так сказать, день от окрестных жителей, не унывал, не показывал малодушия, не помыслил сам в себе или не сказал: вот у меня нет и настолько силы, чтобы пользоваться колодцами, – уж не оставила ли меня помощь свыше, не лишился ли я промышления Господня? Ничего такого он не думал и не помышлял, но все переносил с совершенною кротостью. Зато тем большую имел во всем помощь свыше. Такие случаи были, так сказать, некоторым упражнением для добродетели праведника. (Свт. Иоанн Златоуст)
+
 26:22: **he moved from there**. Isaac was moving away from any land that brought contention and strife, until he found a place where no one challenged him. Isaac exhibits a peaceful spirit: he is willing to give up and start anew.
 
 26:22: **they did not quarrel**. Now that they were no longer perceived as encroaching upon another's territory, Isaac selected an appropriate place-name which reflected hos he saw God providenially working out their situation. "Rehoboth" means "room enough". (MacArthur)
+
+26:22: **теперь Господь дал нам пространное место**. Заметь благомыслие праведника. Когда хотели отнять у него первые колодцы, он не огорчался, не противился, а только названием колодцев оставил неизгладимую память о злобе жителей. А теперь, когда уже никто не препятствовал ему, и он с полною свободою наслаждался трудами своими, он все это приписывает Богу. (Свт. Иоанн Златоуст)
 
 26:24: **Fear not, for I am with you**. God appeared to ease Isaac's anxiety at facing envy, quarrels, and hostility. (MacArthur)
 
