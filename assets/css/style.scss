@@ -7,9 +7,13 @@
 #header_wrap header {
     padding: 10px;
     #project_tagline { display: none; }
+    #forkme_banner { display: none; }
 }
 
 /* Content width */
 #main_content {
     max-width: 800px;
 }
+
+/* pre sections */
+pre { white-space: pre-wrap; }
