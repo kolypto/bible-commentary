@@ -1,7 +1,8 @@
 # Article categories
 
 * [Digest Articles](digest/)
-* [Notes](note/)
+* [Заметки](note/)
+* [Лекции](lectures/)
 
 # All Articles
 

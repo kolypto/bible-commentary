@@ -4,5 +4,7 @@ Table of Contents
 * [Bible Commentary](bible-commentary/)
 * [Articles](articles/)
 
+
     * [Digest Articles](articles/digest/)
-    * [Notes](articles/notes/)
+    * [Заметки](articles/note/)
+    * [Лекции](articles/lectures/)
