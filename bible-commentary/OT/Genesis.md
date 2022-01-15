@@ -1310,6 +1310,8 @@ One must be cautious about reading “giants” back into the present passage. T
 
 6:6: **grieved Him to His heart**. Sin sorrowed God who is holy and without blemish. (MacArthur)
 
+6:6: **God repented**. God relates to us in human terms. Okay? In other words, when it says, “It repented God that He made man,” did God really repent? No, but we understand that, that that means that on the surface it appears as though God was sorry about something that He had done. He felt sorry that He even made man. What that means is that God is not ipso facto saying, “I am sorry I made man,” like He did something wrong. But He’s relating to us in a human emotion that helps us identify with what God was feeling when He saw people turning their back on Him.  (MacArthur)
+
 6:6: **раскаялся Господь**. Бог признал человека далеко уклонившимся от своего назначения. Человек до того унизил себя, что трудно открыть в нем следы совершенств, данных ему при сотво­рении: словно это и не тварь Божия, словно не то существо, которое сотворено по образу и подобию Божию.  (Еп. Виссарион (Нечаев))
 
 6:6: **раскаялся Господь**. В 1 Цар 15:29 Самуил говорит о Боге, что "Он не человек, чтобы Ему раскаяться", и тут же, в 1 Цар 15:35, Самуил приписывает Богу *раскаяние* в воцарении Саула. Из сего видно, что когда говорится о Его раскаянии, тогда говорится о Нём как о человеке, простым и понятным человеческим языком. (Свт. Филарет (Дроздов))

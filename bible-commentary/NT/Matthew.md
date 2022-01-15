@@ -309,6 +309,9 @@ Because types are veiled revelation, divine testimony to their identity must be 
 
 2:16: Those innocent and precious babies of **Bethlehem** were the first casualties in the now-intensified warfare between the kingdoms of this world and the kingdom of God's Christ. (MacArthur)
 
+2:16: **избить всех младенцев**. С христианской точки зрения, ни одна капля страдания и, происходящих в мире, не происходит в пустую точка за каждое страдание господь воздает человеку многократно,. Эти младенцы пострадали вместо Христа, и их страдании также не является бессмысленным. И смысл этот положительный. за эти страдания эти дети получат величайшее благо, возможно, такое, которое они ни за что не смогли бы получить при обычной жизни. Не только дети, а также подумайте о горе их матерей, их отцов, их сестёр. К их убиении имело огромный духовный смысл для всех этих людей.
+Бог есть любовь, поэтому не может быть бессмысленных страданий, который причиняется бесцельно. (Зубов)
+
 2:17: The term "**fulfilled**" (from pleroo, "to fill up") marks this our as completing an OT prediction. This prophecy was also in the form of a *type*: a non-verbal prediction. 
 
 2:18: It's not that Matthew has found some random weeping woman in the OT to use in his text. It was at Bethlehem that Jacob buried **Rachel** (Gen 35:19), the traditional site of whose tomb is still shown to tourists today. (MacArthur)
@@ -541,8 +544,6 @@ Jesus came into the world to identify with men; and to identify with men is to i
 
 4:1-11: In this struggle, we are given clear and applicable insights into satan's strategy against God and HIs people, and also into Christ's way of victory over the tempter. (MacArthur)
 
-<a id="id.hftn0e4zt2y9"></a>
-
 4:1: Since the Fall in the Garden of Eden, there's never been an era of man's history when temptation was not a problem. A fifth-century Christian, Polemon (A. D. 450), wrote of his own personal struggle: "Fly from all occasions of temptation, if still tempted fly further still; if there is no escape possible then have done with running away and show a bold face and take the two-edged sword of the Spirit. Some temptations must be taken by the throat, as David killed the lion; others must be stifled, as David hugged the bear to death. Some you had better keep to yourselves and don't give them air; shut them up as a scorpion in a bottle. Scorpions in such confinement die soon but if allowed out for a crawl and then put back into the bottle and corked down they will live a long while and give you trouble. Keep the cork on your temptations, and they'll die of themselves.". See also: Mt 5:29 ("pluck the eye out"). (MacArthur)
 
 4:1: (Перевод) Полемон, верующий, живший в пятом веке, писал про свою личную битву с искушением: "Бегите от каждой возможности к искушению; а если несмотря на это, продолжаете искушаться, то бегите ещё дальше. Если выхода всё равно не найти, то остановитесь и с храбростью обернитесь, взяв в руки обоюдоострый меч Святого Духа. Некоторые искушения нужно брать за горло, как царь Давид, убивший льва; другие же искушения нужно душить, как тот же Давид, умерщвивший медведя. Некоторые искушения нужно держать тихо при себе и не позволять им дышать: закрыть их наглухо, как скорпиона в бутыли. Находясь в такой ловушке, скорпион вскоре умрёт; однако если ему дать хоть иногда выбираться, то он надышится и напитается, и проживёт ещё долго, доставляя вам неприятности. Не забывайте о своих искушениях, держите их под пробкой, и они умрут сами по себе"
@@ -556,6 +557,13 @@ What better proof can there be that spiritual and moral failure are not caused b
 4:1: "**To be tested**" (Gk. *peirazo*) is a morally neutral word in Greek that simply means "to test". Whether the testing is for a good or evil purpose depends on the intent of the one giving the test. The fact that **the devil** was doing the testing indicates that Jesus was being **tempted**, enticed to do evil. But God used satan's tempting to evil as His own means of testing for good: to demonstrate the Son's holiness and worthiness. 
 James 1:2-4 even tells us to "consider it all joy" when you encounter *testing*, because that is God's purpose — to use satan's temptations as a means of strengthening our faith and of our growing stronger in righteousness. God never tests in the sense of enticing to evil (Jas 1:13: "let no one say, 'I am being tempted by God'"). God never has a part in that sort of testing, but He can and will turn even the worst sort of testing into the right sort, when it is surrendered to His will and power. It's God's great desire to turn into victory what satan intends for failure, to strengthen us at the very point where the adversary wants to find us weak.
 (MacArthur)
+
+4:1: **искушения**. Три искушения Христа представляют собой три основных соблазна человеческих.
+Первое, чтобы камни стали хлебом. Желание изобилия. Сластолюбие.
+Второе, ...? Сребролюбие.
+Третье. Славолюбие.
+Эти "три С" являются самой главной опасностью для человечества.
+(Осипов)
 
 4:2: **Fasting fourty days**. Even in His perfect humanity, Jesus needed time for thought and for prayer, as we all do. (MacArthur)
 
@@ -770,6 +778,10 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 
 5:1: A rabbi commonly **sat down** when he taught. If he spoke while standing or walking, what he said was considered to be informal and unofficial. But when he sat down, what he said was authoritative and official. (MacArthur)
 
+5:1: **the mountain**. And there on that little hill sat Jesus and spoke.  And it wasn’t anything but a mountain but the Greek says “the mountain.”  And it isn’t “the mountain” because of what mountain it was, but of what mountain he made it to become.  It wasn’t a “the mountain” till He gave this sermon, and then it was “the mountain.”  It was “the mountain” when Matthew wrote it and it was “the mountain” because that’s where Jesus taught.  He made it “the mountain.”
+He had a way of sanctifying the very insignificance of the place and setting it apart as “the mountain.”  And throughout all the hundreds of years since, the Christians have always remembered where that mountain was.  It’s just a little slope, but it’s “the mountain.”  Why?  He made it “the mountain.”
+(MacArthur)
+
 
 
 
@@ -824,6 +836,8 @@ But Jesus’ way was not any of those. To the Pharisees He said that true spirit
 
 5:2: “**opened His mouth**” was a common colloquialism used to introduce a message that was especially solemn and important. It was also used to indicate intimate, heartfelt, testimony or sharing. Jesus’ sermon was both authoritative and intimate; it was of the utmost importance and was delivered with the utmost concern. (MacArthur)
 
+5:2: **opened His mouth**. “He opened his mouth” is a colloquialism in Greek -  beautiful colloquialism.  It is used of solemn, grave, dignified, serious, weighty statements.  This is not just off the cuff.  This is dignified, solid, grave teaching.  And also this phrase, “He opened his mouth,” is used in some extrabiblical references to speak of somebody who really shares his heart intimately.  So it was official.  It was solemn.  It was serious.  It was dignified.  And it was his heart.  (MacArthur)
+
 
 
 
@@ -866,6 +880,10 @@ True blessedness is on a higher level than anything in the world. Here is a comp
 
 5:3-12: The Beatitudes are not in random order, but lead to the other in logical succession: being poor in spirit reflects the right attitude we should have to our spiritual condition, which then should lead us to mourn, to be meek and gentle, to hunger and thirst for righteousness, to be merciful, pure in heart, and have a peacemaking spirit. A Christian who has all those qualities will be so far above the level of the world that his life will rebuke the world — which will bring persecution from the world and light to the world. (MacArthur)
 
+5:3: **Blessed**. Blessedness is a kind of happiness that is unaffected by circumstance. That is inner peace, inner bliss, inner happiness. It is a state of joy in which God wants his children to be
+The beattitudes teach one thing: there is no happiness to be found in this world, happiness is to be found in higher realms. And the point of the sermon is that we are to know genuine happiness, what kind of lifestyle produces genuine happiness.
+(MacArthur)
+
 
 
 
@@ -890,6 +908,8 @@ True blessedness is on a higher level than anything in the world. Here is a comp
 5:3: **Blessed** are those who know (see, recognize, acknowledge) that they are **poor in spirit**.
 
 5:3: **poor in spirit** “those devoid of spiritual arrogance, those who regard themselves as insignificant” (AMP)
+
+5:3: **poor in spirit**. Why does Jesus start with this, saying that you got to be poor in spirit? Because this is so fundamental , no Christian Life can start any other way. in order to be filled, you've got to be empty. in order to come to god, you've got to realize that you cannot do it. You cannot do it. (MacArthur)
 
 5:3: One who is proud, self-reliant, and self-righteous, will not enter the **kingdom of heaven** because he sees no need for God.(John Strohman)
 
@@ -1663,6 +1683,9 @@ Those who insist on coming to God in their own way and their own power will neve
 It is tragic that many people today, like the scribes and the Pharisees, will try any way to God but His way. They will pay any price, but will not accept the price He paid. They will do any work for Him, but they will not accept the finished work of His Son for them. Such people are religious but not regenerated, and they **shall not enter the kingdom of heaven**.
 (MacArthur)
 
+5:20: **your righteousness exceeds that of the Pharisees**. The Pharisees thought that they upheld the law because of the things they did not do. They saw themselves righteous because they did not kill and did not steal. Jesus says, your righteousness has to exceed that. (MacArthur)
+
+5:20: **your righteousness exceeds that of the Pharisees**. You see what man tends to do is this, if he doesn’t want to come God’s way.  He creates his own god.  He creates his own religious system.  Says, “This is what is required.  This is what I’ll accomplish, therefore I am justified when I do it.”  He drags the law of God down to something he can do, does it, and then convinces himself he’s okay. (MacArthur)
 
 
 
@@ -1699,7 +1722,10 @@ In a less extreme way, the Jews of Jesus’ day had been separated from their Sc
 ANd most scribes and rabbis did not attempt to expound the scriptural text itself, but rather taught from the Talmud, an exhaustive collection of rabbinical traditions.
 (MacArthur)
 
+5:21: **You have heard it was said by those of old**. Ancient rabbis. the Lord says, “You have heard that it was said by them of old,” He is saying, “The religion you have is the oral tradition of the rabbis, not the written Word of God,” you see?  Very critical.  And so our Lord comes along and says, “I am here to loose the law of God from the shackles of rabbinic mishmash.”  And most significantly, He attacks their emphasis on external works righteousness.  And so He says, “You have heard it said by them of old,” and then He says in verse 22, “but I say unto you - ”  And, beloved, here He sets Himself up as the authority.  This is tremendous.  He says, “I tell you what God’s law is.”  This literally shattered the people.  They couldn’t handle this.  They were shocked. Who are You to speak like that?!  The prophets always said, “Thus saith the Lord.”  The rabbis said, “There is a teaching that says.”  But Jesus said, “I say unto you.”
+William Barkley says, “Clearly one of two things must be true.  Either Jesus is mad, or unique.  Either He is a meglomaniac, or else He is the Son of God.  No ordinary person would claim what He claimed.” (MacArthur)
 
+5:21: **You have heard it was said by those of old**. And you remember that I told you last time that the Jewish people at the time of Jesus were totally dependent upon this tradition.  Because the Old Testament was written in Hebrew, remember I told you that?  The Old Testament was written in Hebrew.  They did not any longer speak Hebrew.  Since the Babylonian captivity and following, they spoke Aramaic, and so the Hebrew Scriptures were lost to them, in a sense.  When they came back from captivity, rather than the rabbis and the scribes and the rest of them as the time went on providing a Scripture in their own language, they kept them in ignorance.  And so they couldn’t really read and understand the Hebrew for themselves.  (MacArthur)
 
 
 
@@ -1731,9 +1757,16 @@ ANd most scribes and rabbis did not attempt to expound the scriptural text itsel
 
 5:21: “**You shall not murder**” is from the decalogue, and it does not prohibit every form of killing. The term used for **murder** has to do with criminal killing. It’s clear from other teachings in Scripture that capital punishment, just warfare, accidental homicide, and self-defense are excluded. The commandment is against the intentional killing for purely personal reasons, whatever those reasons might be. (MacArthur)
 
+5:21: **You shall not murder**. God had always been concerned with attitudes, always.  That isn’t anything new.  But the people of Israel had lowered the standard and then justified themselves by what they didn’t do, while their hearts were full of murder, full of lust, full of lies, full of hate, full of anger.  And yet they were self-righteous, because they had lowered the standard to accommodate their abilities.  Jesus lifted it right back where it belonged. "You may not do the deed, but if you thought the thought you’re damned, because your heart it rotten".
+For the scribes and Pharisees you see a man or woman was righteous if they never did the forbidden thing.  They didn’t care about their thoughts.  They didn’t care about attitudes.  But Jesus said, “A man is righteous if he never desires the forbidden things.” (MacArthur)
+
+5:21: **You shall not murder**. They were right on at this point.  That was alright, it was basically scriptural. But the point that Jesus is making here is it doesn’t go far enough.  That much is true, but there’s so much more.  You have taken part of God’s law.  You have interpreted it only partially and then satisfied yourself with keeping your partial interpretation, and therefore justifying yourself. (MacArthur)
+
 5:21: (<u>Rabbinical definition of murder</u>) As in most cultures and religions, the rabbinical tradition defined **murder** as strictly limited to the act of physically taking another person’s life. Jesus had already warned that God’s righteousness “surpasses that of the scribes and the Pharisees” (v. 20). As the chosen custodians of God’s Word, they should have known that God commands heart-righteousness, not just external, legalistic behavior. But the rabbinical interpretation obscured the divinely intended meaning. (MacArthur)
 
 5:21: (<u>Punishment reduced by the rabbinical teaching</u>) Although the commandment, **though shall not murder**, is Scriptural, the penalty (**“shall be liable to court**”) fell short of the biblical standard because it did not prescribe the penalty of death. The rabbis confined murder to a merely civil issue, prosecuted by a human court; and they confined its evil to the physical act. (MacArthur)
+
+5:21: **will be liable to judjment**. What's wrong with this verse? the court that is mentioned here is the civil Court period so it basically says, don't kill, because you'll get in trouble. It doesn't even mention god. Nothing about the purity of heart. So mundane. So superficial (MacArthur)
 
 5:22: (<u>**Anger** is the source</u>) Jesus attacks the self-confidence of people who are certain that are innocent of murder, because the first step of murder is **anger**. To one degree or another, it makes all men would-be murderers.
 It is possible for a model, law-abiding citizen to be as guilty of murder as anyone on death row. It is possible for a person to have more of a murderous spirit that a multiple killer. Many people, in the deepest feelings of their hearts, have anger and hatred to such a degree that their true desire is for the hated person to be dead. At the same time, other feelings may be preventing them from doing that: fear, cowardice, lack of opportunity, [or even pride].
@@ -1741,12 +1774,16 @@ It is possible for a model, law-abiding citizen to be as guilty of murder as any
 
 5:22: **But I say to you**. Jesus contrasts His teaching not with the OT, but with the rabbinical tradition. He told people God’s truth on the matter. (MacArthur)
 
+5:22: **But I say to you**. They all follow a similar pattern.  Jesus is saying, “Your religion teaches you this, but I say unto you.”  And what He’s doing is this.  He’s not comparing Himself with the Old Testament.  He’s not raising the standard higher than the law of God.  He’s not talking about what Moses said.  He’s not talking about what the Old Testament said.  He’s not talking about what God said.  He’s talking about what their religious system taught them.  And He’s saying, “Your standard is too low.  You only worry about murder.  God looks at the heart and says, ‘If there’s hate there, it’s the same thing.’  You only murder or worry about fornication.  God says, ‘If there’s lust in the heart, it’s the same thing.’  You see, God’s standard is an attitudinal standard.  Yours is only dealing with action.”  That’s the difference. (MacArthur)
+
 5:22: **liable to judgment**. Jesus uses the same phrase He had used in the previous verse to indicate that, since the very same punishment is applicable to **anger**, the guilt itself is also identical. Murder is prefigured by anger and is preceded by anger; therefore, anger, being the source, makes the person **guily**, even though the physical act hasn’t been committed.
 It is the thoughts of heart, not the acts of the hand, that is God’s foremost concern (Ps 51:6: “you delight in truth in gthe inward being”; 1 Sam 16:7: “the LORD looks on the heart”).
 
 5:22: **Angry**. Jesus says that if a person is angry, hates, curses, or maligns another person, — he is guilty of murder (!) and deserves a murderer’s punishment. 
 John teaches the same truth: “Everyone who hates his brother is a murderer” (1 Jn 3:15).
 (MacArthur)
+
+5:22: **angry**. Hate brings you nearer to murder than any other emotion.  And hate is merely the extension of what?  Anger.  Anger, hatred, leads to murder. (MacArthur)
 
 5:22: (<u>the story of Two-Gun Crowley</u>) In the spring of 1931 one the most notorious criminals of that day was captured. Known as Two-gun Crowley, he had brutally murdered a great many people, including several policemen, to whom he had great hatred since childhood.
 His girlfriend notified the police about his whereabouts after seeing Crowley with another woman.
@@ -1793,6 +1830,9 @@ In the valley, King Ahaz had “burned his sons in fire” (2 Chron 28:3) and er
 
 5:23: The phrase **your brother has something against you** could mean that even if we are holding nothing against him, if he is angry with or hates us, we should do everything in our power to be reconciled to him. Regardless of who is responsible for the break in relationship, we should determine to make a reconciliation before we come to God to worship. (MacArthur)
 
+5:23: **brother has something against you**. Maybe if we had better hymns, or better special music, or better sermons, or whatever it is.
+Listen, if you want to enhance worship, then everybody who’s got something against a brother, leave! ... And come back when it’s right.  Then we’ll see the power of the Spirit of God in our midst, amen?  Thank you, both of you.  It’s hard.  This is where we live, isn’t it?  Pretty tough, pretty tough. (MacArthur)
+
 5:25: (<u>The effect on our relations with others</u>) This verse is essentially a commentary on the previous one. The time for reconciliation is always now. Tomorrow is often too late. We are not to allow bitterness or any other sin to keep us separated from other people. (MacArthur)
 
 5:25: **To be put in prison** is an analogy of God’s punishment. (MacArthur)
@@ -1835,6 +1875,13 @@ In the valley, King Ahaz had “burned his sons in fire” (2 Chron 28:3) and er
 5:28: **Looks**. Present participle, refers to the continuous process of looking. Not an incidental glance, but an intentional and repeated gazing. (MacArthur)
 
 5:28: **To lust for**. Indicates a goal or an intention. The **looking** is done with the purpose of lusting. Jesus is speaking of the man who looks so that he may satisfy his desire. He is speaking of the man who goes to an X-rated movie, who selects a TV program known for its sexual content, who goes to a place known for its display of naked bodies, and who does so with the expectation and desire of being sexually and sinfully titillated (aroused). (MacArthur)
+
+5:28: **To lust for**. And by the way I’ll show you an interesting thing about this verse.  Listen to what He says.  “Whoever looks on a woman to lust after her.”  Now listen to this.  He doesn’t say, “commits adultery.”  No.  He doesn’t say that.  Whoever looks on a woman to lust after her commits adultery?  No.  He says, “Whoever looks on a woman to lust after her has already committed adultery in his heart.”  Why?  Because it is the vile, adulterous heart that results in the wanton look, do you see?  The sin has already happened in the heart.  The adultery is conceived, and thus the look is prompted.
+That’s why you may find in this life that someone passes into your gaze involuntary and appears as a temptation from Satan, or maybe even trying to attract attention.  And an involuntary glance means you just resist and turn away.  But when you latch on, and you cultivate, and you pursue the desire, it’s because your lustful, adulterous heart has been seeking an object, and you fulfill the fantasy that’s already there in your heart.
+Now notice the word “lust.”  It’s very helpful to see the Greek here.  “Whoever looks on a woman to lust.”  And it uses a Greek form - for you Greek students, pros to, with the infinitive - and any time you see that it means a purpose, “with the purpose of lusting.”  In other words, it isn’t an involuntary glance.  It is a purposeful one.  The heart is filled with adultery, wanting to find an object to which to attach the fantasy.
+It’s when you’re looking for the woman to lust after, when you go to the film because you know when you get there you will see what you desire in your heart to see, that which will meet your lust.  It’s when you go around the dial on the television to find the thing that panders your lust.  It’s when you seek the object.  It’s the purpose.
+So it would read this way, “Emphatically I say to you that whoever continues looking on a woman for the purpose of lusting gives evidence of already committing adultery in his heart.”  The continued look is the manifestation of the vile heart.
+(MacArthur)
 
 5:28: **Has already committed**. It is not lustful looking that causes the sin in the heart, but the sin in the heart causes lustful looking. The lustful looking is the expression of a heart that is already immoral and adulterous. (MacArthur)
 
@@ -2007,6 +2054,10 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 5:39: Подставь другую щёку? Это вообще как? Господи, я не могу! Да, ты не можешь. Но Бог поможет. Что же теперь, ходить всем щёки подставлять? Нет; но если придётся, если будет ситуация, подставляй. (Андроник Пантак)
 
 5:39: **Подставь другую щёку**. Здесь Христос на самом деле не говорит ничего нового, а повторяет учение ветхого завета: "подставляет ланиту свою биющему его, пресыщается поношением, ибо не навек оставляет Господь." (Плач 3:30-31)
+
+5:39: **Подставь другую щёку**. Что значит, подставь другую щеку?
+В конфликте, сделай вид что ты не прав. Подставь другую щеку. Пусть. Но потом, когда страсти уляшутся, вы, может быть, сможете спокойно объясниться, и тогда человек сам поймёт, что был не прав.
+(Осипов)
 
 5:40: **His tunic**. Rightfully his. When someone takes what’s rightfully yours, **resisting** such a person, **an evil person**, is a natural reaction of a selfish human nature. And when our supreme concern is getting and keeping what we think is rightfully ours, everything that gets in the way becomes expendable. Including the law. (MacArthur)
 
@@ -2816,6 +2867,11 @@ Obviously, such commands demand that we employ a certain kind of judgment before
 
 7:1: **Не судите**. Итак, судить Он не запретил, но научил. (Блж. Иероним Стридонский)
 
+7:1: **Не судите**.  Осуждение всегда связано с внутренней укоризной к человеку, то есть, с нелюбовью.
+Пример. Когда родители рассуждают о своих детях, они не осуждают, но рассуждают: ищут как ему помочь. А когда мы осуждаем, мы этого не ищем. Просто возмущаемся , и всё.
+А когда нет любви, о какой святыне, о каком Боге может идти речь??!
+(Осипов)
+
 7:1: **Да не судимы будете**. Выражение “да не судимы будете” толкуют в том смысле, что здесь разумеется исключительно суд Божий. “Не судите”, чтобы не быть судимыми на последнем суде. (Лопухин А.П.)
 
 7:1: **lest you be judged**. Jesus remind the scribes and the Pharisees that they are not the final court. To judge another person's motives is to play God. (MacArthur)
@@ -2838,6 +2894,10 @@ Obviously, such commands demand that we employ a certain kind of judgment before
 7:3: **do not notice the log**. Almost by definition, self-righteousness is a sin of blindness, or of grossly distorted vision, because it looks directly at its own sin and still imagines it sees only righteousness. (MacArthur)
 
 7:3: **И что ты смотришь**. Спаситель не все вообще грехи повелевает не судить и не всем без исключения запрещает это делать, но тем только, которые, сами будучи исполнены бесчисленных грехов, порицают других за маловажные какие-нибудь поступки. (Свт. Иоанн Златоуст)
+
+7:3: **сучок**. Эти слова говорят о том, я что мы с осуждением относимся к поступкам окружающих, замечая за ними оплошности, я а за собой при этом ничего не замечаем. Глядя на себя мы считаем, что я хорош, или сделал что-то по такой-то и такой-то причине.
+Глупый человек не видит своих ошибок: А чем 4 человек умнее, тем больше глупостей он видит в себе.
+А еще, глядя на других, мы ведь не знаем, В какой он ситуации, и в каком окружении он рос. Сразу спешим его осудить. А про себя мы всё знаем, и поэтому оправдываем себя причинами теми или иными. К себе и мы более снисходительно, окружающим более критичны.
 
 7:5: **First take the log out of your own eye**. The person who is poor in spirit, humble, and who hungers and thirsts for God's righteousness, will be the person who first of all sees and mourns over his own sin (Mt 5:3-4). (MacArthur)
 
@@ -3103,6 +3163,11 @@ Explanations:
 No doubt, all three will be represented. In any case, the people who did them did not belong to Jesus and did not truly recognize Him as **Lord**, despite their profession.
 (MacArthur)
 
+7:22: **разве не от Твоего имени**. Оказывается, можно  творить именем Иисуса чудеса и изгонять бесов, будучи при этом развращенным им и отрекшимся от веры.
+Например, Иуда, один из 12-ти: изгонял бесов? Пророчествовал? Исцелял? А кем он был по своему существу? Предателем с самого начала.
+Оказывается, это возможно. Так что никакие пророчества и чудеса не являются знаком святости этого человека. Истинность жизни — вот, это показатель; поэтому Иисус и говорит: "отойдите от Меня, делающие беззаконие"
+(Осипов)
+
 7:23: **I never knew you**. "To know" was a Hebrew idiom that represented intimate relationships. Jesus never knew them as His disciples, and they have never known Him as their Lord. (MacArthur)
 
 7:23: **I never knew you**. All their words and all their works will be declared empty and worthless. They may have had God's name in their mouths, but rebellion was in their hearts. (MacArthur)
@@ -3250,9 +3315,16 @@ Matthew was a traitor.  Matthew was an extortioner.  Matthew was a robber and 
 I think what makes it so fascinating to me also: he also had a name Levi, which indicates that he really was in the flow of Jewish tradition.  And what also is interesting is that in the gospel of Matthew, you might be interested to note, there are more quotes of the Old Testament than in Mark, Luke and John combined.  So, Matthew knew the Old Testament.  In fact, he quotes out of the three sections of the Old Testament that a Jew knew: the law, the prophets, and the Hagiographa, the Holy Writings.  Matthew knew the law of God in the Old Testament.  And yet, we have no idea of him at all being interested in spiritual things.  But when Jesus comes along, verse 9, He says to him, “Follow Me,” and he arose and followed Him.  Instantly.
 (MacArthur)
 
+9:12: **не здоровые нуждаются во враче**. Какая здесь евангельская ирония! Кто такие "здоровые"? Разве есть человек не согрешил? Здоровые здесь — это те, кто мнит себя праведным. С такими уже бесполезно говорить, уже врач не поможет. Это самое страшное бедствие для человека: увидеть себя вполне хорошим, нормальным человеком: тогда Бог уже ничем не может ему помочь.
+Только как тому, кто видит, что не может справиться со своими страстями, — только к таким приходит Христос.
+Бог только стучится в наше сердце, и кто откроет — будет пировать с ним. Он только стучится, и больше ничего. Кому нужен врач — откроет, а кто считает себя здоровым — откажется от врача, и отправит его с порога дома своего.
+(Зубов)
+
+9:13: **призвать не праведников, но грешников к покаянию**. Без осознания своей греховности нет молитвы, и нет религии. Всё это закрыто, пока ты считаешь, что ты молодец. Это один из центральных моментов христианской жизни. (Осипов)
+
 9:14: Devout Jews  used to fast twice a week (Lk 18:12: "I fast twice a week"). To them, that was emblematic of holiness. And so they ask Jesus: why don't Your disciples fast??! What Jesus told them was that there is a time for fasting, and there is a time for joy. Fasting is a unique experience that is identified with grief and sorrow and pain, isolation, loneliness, fear, those kinds of times that *would not exist when you are walking in the presence of Jesus Christ*! Fasting, in the teaching of Jesus, is for the times of great concern, great anxiety, great sorrow, and great prayer. There are times when it wouldn't be appropriate to fast because you're enjoying the fullness of the presence of God and His blessing. Fasting reserved for the times of prayer: when we're so engulfed that we have no desire to eat. // Some people think that if you just arbitrarily don't eat, there's some spiritual virtue in it. But the real issue is in the prayer area.  (MacArthur)
 
-
+9:17: **new wineskins**. He is saying, look, I am not here as an addendum to Judaism. I am not here to put some new wind in old wineskins. I am here with a new covenant, and I think He’s representing His ministry, not as something that in any way in the earth can fit into pharisaic Judaism as it existed in the land of Israel. That’s really what He’s saying. There’s no way that I can accommodate the system that is, and He was really calling men to come out totally from that self-righteous, legalistic, works centered system that was Judaism. He wasn’t accommodating Himself to that in any way shape or form. What He brought was something new and it had to come in a new package, didn’t it? It couldn’t be contained by that old self-righteous works system. That’s the essence of what He’s saying, I think, in that parable.  (MacArthur)
 
 
 
@@ -3586,7 +3658,7 @@ But we have no right to go beyond the pages of holy scriptures and bind things o
 
 19:24: See note on 6:4, where it explains that Jews believed giving alms saves the soul. Consequently, it was easier for the rich to get into heaven.
 
-
+19:25: **сильно удивились**. Почему ученики изумились? Потому что по иудейскому воззрению, богатство — это дар от Бога, а дары даются за праведную жизнь. А бедность, соответственно, за грехи. Меру праведности оценивали земным благополучием. А на самом деле и благополучие, и скорби, посылаются Богом для того, чтобы человек познал свои страсти, потому что только через познание своих слабостей происходит принятие Бога. Ведь если человек видит себя праведным, ему Бог не нужен. (Осипов)
 
 
 
@@ -3742,10 +3814,19 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 ### Chapter 25
 
+25:13: **watch**. Do not live with your lights gone out. Because when the time comes come, you might not be able to light them back up! (MacArthur)
+
+25:20: **пять талантов**. Тот, кому изначально было дано пять талантов, всю свою жизнь превосходил двух других, потому что ему изначально было дано больше. Но он точно так же мог оказаться ленивым и не дать плода. Тогда другие всё равно бы смотрели на него с восхищением, потому что у него больше, но мы же не знаем, сколько человеку было дано изначально.
+Поэтому не надо смотреть с осуждением на тех кто грешит больше нас. Возможно, он на самом деле вообще святой, потому что он проделал огромный путь.
+(Павел Островский)
+
+25:28: **to the one who has 10 talents**. Not the one who has used 10 talents, but the one who still has them. The talents are not taken from the servant: when the master returned, the servant discovered that he could keep them to himself! (MacArthur)
+
 25:44: The hallmark of the wicked is to do good (including showing mercy) to people only when there is something in it for themselves: be it any immediate benefit, a potential of reciprocity, or just a chance to look good in the eyes of others. The wicked share in the surprise of the righteous when they learn that the Lord was among those needy people, but their additional surprise was about missing such an opportunity: had they only known that there have been chances to do the right thing personally to the Lord (servility, fake obedience), they wouldn’t have missed it.
 
 25:44: The vindictive, heartless, indifferent are not subjects of Christ’s kingdom. When they pass need by on the other side, as the priest and the Levite did in the story of the good Samaritan, they show they have passed Christ by.
 
+25:44: **Lord, when?**. They say so in astonishment, because if they had recognized the lord, they would have treated him differently from ordinary people. God does not want such hypocritical worship. On the other hand, the first group took care of people regardless. Their astonishment is different. (MacArthur)
 
 
 
@@ -3781,6 +3862,8 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 What does it say about their religion?
 
 26:60: They were unable to find two **witnesses** whose testimony were in agreement. Jewish Law required this for every criminal proceeding: Dt 19:15
+
+26:63: **ты ли Христос?**. Здесь первосвященники обнаруживают, что они прекрасно понимают, кто такой Христос, и всё равно решают убить Его, и Лазаря, как живое свидетельство, тоже. Это и есть хула на духа святого, и грех к смерти: когда человек сознательно его совершает, и не желает раскачиваться. (Осипов)
 
 26:65: It was forbidden by the Law for the **High Priest** to tear **his robes** (Lev 21:10). The whole proceeding is a farce, with many God's laws broken. This adds another detail to their hypocritical righteousness, and voids the High Priest's false concern for God's Name being **blasphem**ed.
 

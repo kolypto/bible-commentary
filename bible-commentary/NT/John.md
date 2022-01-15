@@ -24,6 +24,10 @@ http://www.sinergia-lib.ru/index.php?section_id=982
 
 1:12: To **receive** Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
 
+1:12: **become children of God**. We were born by the divine parent and given new life as children of God.  Now if you want a technical definition for he begat us, here is one that I think is excellent.
+It’s given by the theologian Berkhoff many years ago, but really says it.  "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy".  That is a great definition.  Regeneration is that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy.  That is a total transformation.  That doesn’t sound anything like Romans 3, does it or anything like Ephesians 2:1 to 3.  In fact, Peter says, we become partakers of the divine nature.  God gives us his own life, his own self, his own righteous character, his own holiness is implanted in us, just a tremendous thought.  As a Christian, you and possess the very nature of God, 2 Peter 1:4.  We are partakers of this divine nature.  Now, in its fullness, we are yet to receive all that that implies, but already that new life principle is planted in us.  This is completed in a moment of time.  It is not a process.  It is an event.  It is an act by which God creates you new.  It is a secret work.  It cannot be perceived.  That’s why we can’t, in the words of Jesus, tell the wheat from the tares, because this particular act is imperceptible.  It is known only through its effect.  We can’t see God recreate someone.  That is a divine miracle unseen by any human eye.
+(MacArthur)
+
 1:14: **dwelt** is literally "tabernacled". The term for tabernacle is *mishkan*, which comes from *shakan*, meaning to dwell, rest, or abide. From that root the term *shekinah* has also come, referring to the presence of God's glory. The child born was to be the Shekinah, the true Tabernacle of God. (MacArthur)
 
 1:19: In the OT, on Rosh Hashanah (Jewish new year, the most holy day of the year, and the day of redemption), the sins of God’s people were transferred onto a scapegoat and were re.
@@ -61,6 +65,9 @@ Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. H
 (MacArthur)
 
 3:16: See also note on Jn 14:15 which explains how faith means obedience.
+
+3:16: **Бог есть любовь**. Если вспомнить языческие релегии, то какие у них боги? Обладающие всеми теми же пороками, что и люди. В самом продвинутом случае человеческая мысль решила что Бог -- это вселенский принцип справедливости. А христианство что говорит? Что Бог есть любовь. Не такая любовь, как у нас людей -- что мы добро творим тем кто нам нравится, а кто не нравится -- ухх покажу я тебе где раки зимуют! Божья любовь -- она всегда направлена на то, чтобы принести добро человеку.
+(Осипов)
 
 4:19: **I perceive that you are a prophet**. Женщина только что убедилась, что сидящий перед ней Человек знает сокрытое. Встретив такого человека, из всех вопросов которые она могла бы задать, ей больше всего хотелось знать, как и где правильно поклониться Богу. У неё было ищущее сердце.
 

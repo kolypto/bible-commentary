@@ -1,5 +1,12 @@
 ## Deuteronomy
 
+5:9: **наказывающий за грехи родителей**. Если родители ведут развращенный образ жизни, то они тем самым искажают свою наследственность.
+Посмотрите какие разные бывают дети. Некоторые рождаются с ярко выраженными страстями. Это так называемая родовая поврежденность.
+Однако же если родители жили благочестивой жизнью, то это передаётся на тысячу родов! И это Божий закон: не Он каждый раз посылает, а это действующий закон.
+(Осипов)
+
+5:9: **наказывающий за грехи родителей**. Здесь налицо закон уменьшения наказания: грехи длятся только ограниченное время, в то время как благодетель укрепляется Господом в веках! (Кураев)
+
 24:1: **Indecency** literally is “the nakedness of a thing”. Some interpret it as repeated indecent exposure. 
 The only other place where the word is used is in Dt 23:13-14 where it relates to an uncovered excrement: “Because the LORD your God walks in the midst of your camp ... your camp must be holy, so that he may not see anything indecent among you and turn away from you.”.
 So the word actually means every kind of improper, shameful, or indecent behavior unbecoming to a woman and embarrassing to her husband. It cannot refer to adultery, because death was the penalty for that. 

@@ -22,11 +22,20 @@ http://www.sinergia-lib.ru/index.php?section_id=996
 
 ## Luke
 
+1:7: **Elizabeth was barren**. This is a great misfortune (v. 25: "my reproach among people"), at people see it. Why did it happen to her? She was righteous (v.6), and having a baby is something any woman would want and find fulfillment in. It is even commanded that we have children (Gen 1:28: "be fruitful and multiply") and said that children is a blessing from the Lord ( Ps 127:3-5: "Children are a heritage from the LORD, offspring a reward from him"). can God withhold the blessing from a righteous person? Can a righteous woman be barren?
+Yes; there is no contradiction. In this case, because God had other plan: she would become a mother, but much later, in her old age (v.6), and give birth to a prophet, at just the right time, to announce the coming of Jesus Christ! This was also the answer to their prayers (v. 13: "your prayer has been heard"), but it was answered in God's timing; not when the righteous family asked!
+So, what comfort do we have in this verse? Even if we are righteous, God may not give us good things at this time, because there is another, proper time, for them to come.
+(MacArthur?)
+
 1:28: The literal translation of "**favored one**" is "one endued with grace". The Bible knows nothing of Mary's own grace except that which she received from the Lord. She was never a source of grace. (MacArthur)
 
 1:38: From **Mary**'s reply we see that she was a godly woman who was sensitive and submissive to the Lord's will. Mary's humble reverence, thankfullness, and love for God is seen in her magnificent Magnificat in vv. 46-55. (MacArthur)
 
 1:46,48: **Mary** was just as much a sinner as all other human beings ever born. She was likely much better, morally and spiritually, than most people of her time, she was deeply devout and faithful to the Lord, but she was not sinless. Mary needed a Savior, as she herself acknowledged: "**my Savior**" and "**humble estate of His servant**". The notions of her being co-redemptrix and co-mediator with Christ are wholly unscriptural and were never a part of early church doctrine. Those heretical ideas came into the church several centuries later, through accommodations to pagan myths. By the fourth century A.D. much of the polytheistic paganism of Rome had found its way into the church. It was from that source that the ideas of Lent, of Mary's immaculate conception, and of her being the "queen of heaven" originated: Semiramis (aka Ashtoreth, Isis, Aphrodite, Venus, Ishtar) was miraculously conceived by a sunbeam, and her son, Tammuz (Baal, Osiris, Eros, Cupid) was killed and raised from the dead after 40 days of fasting by his mother (the origin of Lent, the origins of the mother-child cult). Paganism had been infecting Israel before: see Jer 44:17-19: "Ishtar, the queen of heaven"; Ezek. 8:13-14: "weeping for Tammuz". (MacArthur)
+
+1:47: **my Savior**. She said this because she herself was not sinless. The mother of God is a sinner and needs a Savior like everyone else. Isn't it something that the King of kings and Lord of lords allowed a sinner to become his mother?!
+And not only her. There were many sinners in Jesus' genealogy. King Jeconiah was so evil that his whole line was cursed. And yet the only sinless man in history, God Himself, is born in that line.
+(MacArthur)
 
 2:7: Бог пришёл в мир, Младенец, самая большая ценность в нашей истории. А Ему не нашлось места в обычной гостинице.
 
@@ -61,6 +70,20 @@ http://www.sinergia-lib.ru/index.php?section_id=996
 
 6:46: **Господи!**. Если слово "Господь" сказано всерьёз, то оно означает, что для этого человека Бог -- руководитель его жизни. Не иногда, от случая к случаю, а всегда.
 
+6:46: **why do you call Me Lord**.
+> '''Why call me "Lord, Lord", and do not the things I say?
+> You call Me the way, and walk Me not;
+> You call Me the life, and live Me not;
+> You call me Master, and obey me not;
+> If I condemn you; blame me not.
+>
+> You call Me Bread and eat Me not!
+> You call Me Truth and believe Me not!
+> You call Me Lord and serve Me not!
+> If I condemn you blame Me not.
+>
+> Jeffrey O'hara.
+
 6:48: **Человеку, строящему дом**. Строительство дома -- это строительство жизни, того, кем ты становишься. Иисус здесь имеет в виду именно религиозную жизнь, но она, тем не менее, не отделена от "светской": здесь и поклонение и церковь, а также все поступки слова и дела человека.
 
 6:49: **Построил дом**. Один человек построил дом где хочется, а другой -- где правильно. И у обоих ведь получилось построить, и ещё неизвестно чей дом красивее вышел. Но один выстоит, а другой нет.
@@ -71,6 +94,8 @@ http://www.sinergia-lib.ru/index.php?section_id=996
 Невидимый фундамент является самой главной частью всей конструкции.
 
 7:6: People had said he was worthy (v 4), but he himself said he was **not worthy**.
+
+7:32: **они подобны детям, которые сидят на улице**. Блаженный Иероним в своем толковании подчеркивает, что с детьми, сидевшими на площади, в притче сравнивается иудейский народ. Бог посылал к нему проповедников, но «поскольку иудейский народ не желал слушать, то они не только говорили ему, но и кричали во весь голос». Два вида проповеди — это увещание к добродетелям и призыв к покаянию. Этим «двойным путем ко спасению» пренебрегли иудеи, не приняв ни Иоанна, ни Сына Человеческого.
 
 12:20: **безумный!**. В чём трагедия этой истории? В том, что богач потерял всё в один миг. Скольким бы он не владел, он потеряет всё в один миг: всё чем он дорожил, что копил, и на что полагался. Любые материальные вещи теряются в один миг. (Лунёв МЦЦ)
 
@@ -95,6 +120,8 @@ http://www.sinergia-lib.ru/index.php?section_id=996
 14:18: John Stott wrote in his helpful little book Basic Christianity, “The Christian landscape is strewn with the wreckage of derelict half-built towers, the ruins of those who began to build and were unable to finish.  For thousands of people still ignore Christ’s warning, and undertake to follow Him without first pausing to reflect on the cost of doing so.  The result is the great scandal of Christendom today, so-called nominal Christianity.  In countries to which Christian civilization has spread, large numbers of people have covered themselves with a decent but thin veneer of Christianity.  They have allowed themselves to become somewhat involved, enough to be respectable, but not enough to be uncomfortable.  Their religion is a great, soft cushion.  It protects them from the hard unpleasantness of life while changing its place and shape to suit their convenience.  No wonder the cynics speak of hypocrites in the church and dismiss religion as escapism,” end quote. (MacArthur)
 
 14:27: Whoever does not carry his own cross [expressing a willingness to endure whatever may come] and follow after Me [believing in Me, conforming to My example in living and, if need be, suffering or perhaps dying because of faith in Me] cannot be My disciple. (AMP)
+
+15:1: The Parable of the Prodigal Son. This parable is misnamed. It should not be called "the parable of the prodigal son", because the parable is not about the son. It's about the father. It is the parable of the forgiving father. (MacArthur)
 
 15:12: The request of the **younger** son is outrageous, but instead of punishing his son, the father did as he asked and **divided his property**. This is how God acts: He lets us have it our own way, until we understand how wrong we were!
 
@@ -186,6 +213,11 @@ Yet Jesus said that, despite **the tax-collector’s** treachery and sin, he wou
 
 22:3: **Вошёл же сатана в Иуду**. Не думайте что причастие само по себе что-то может дать человеку. Посмотрите что с Иудой случилось, как Иоанн Златоуст пишет: Иуда причастился, но вошёл в него не Христос, а сатана. А всё почему? Потому что причастие он принял недостойно, и после причастия так и оставался: иудой. (Осипов)
 
+22:19: **преломил .. тело Моё**. В этот момент Иисус с хрустом преломил мацу: еврейский пасхальный хлебец.
+
+22:20: **чаша**. Обратите внимание, что лука, в отличие от Мф и Мк упоминает две чаши. Это потому, что в соответствии с еврейской традицией я за столом совершался Седер, и чаш на самом деле было четыре. Две шли перед трапезой, две — после, и именно о них говорит Лука.
+В порядок пасхальной трапезы вошло четыре чаши, по словам из исхода: выйду, избавлю, спасу, приму.
+
 23:9: Herod remains the only person in the Bible to whom Jesus gave absolutely **no answer**.
 
 23:40: **The other rebuked him**. The other Gospel tells us that this very thief has started out speaking in the very same way (Mt 22:44: "And the robbers .. also reviled him in the same way."), but now he has a change of heart. (MacArthur)
@@ -199,3 +231,14 @@ Then he confesses the sinlessness of Christ and affirms his messiah-ship and his
 
 23:40: **Do you not fear God?**. The first thing you see in a real conversion is a heightened awareness that God is a threat. This is what means "to fear God".  
 He really is not seeking someone to get him off the cross.  He’s not trying to find someone who can save him from physical death.  He wants to make sure he is saved from divine judgment. (MacArthur)
+
+23:42: **помяни меня**. Почему разбойник сказал, "помяни меня"?
+Потому что он действительно раскаялся, но зная, какую злую жизнь он прожил, он понимал, что сам в Царствие уже не войдёт. И потому он просит Того, Который, как он видит, точно там будет.
+Причём даже боль не озлобляет разбойника. Потому что раскаяние было искреннее.
+(Осипов)
+
+24:43: **ел пред ними**. В ту эпоху считалось, что мёртвые не едят: мёд, который сладок для живых, будет горек для мёртвых. Это можно найти в ведической традиции.
+Иисус ест для того, чтобы показать всем присутствующим, что Он не просто вернувшийся с того света мертвец, а то что Он по-настоящему живой.
+(А. Б. Зубов)
+
+

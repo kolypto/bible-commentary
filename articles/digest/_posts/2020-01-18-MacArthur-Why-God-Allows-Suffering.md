@@ -86,3 +86,4 @@ You never will understand how righteous God is until you go to the cross. And yo
 
 Let God be God and worship Him for the sovereign that He is, unfolding the glory of His own nature through wrath and mercy, which necessitate evil. This is our God.
 
+
