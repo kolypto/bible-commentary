@@ -1,1 +1,8 @@
+# https://github.com/pages-themes/slate
 theme: jekyll-theme-slate
+# remote-theme: pages-themes/slate
+
+title: Bible Commentary
+description:
+
+# markdown: kramdown

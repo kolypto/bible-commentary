@@ -1,0 +1,15 @@
+---
+---
+
+@import "{{ site.theme }}";
+
+/* Site header */
+#header_wrap header {
+    padding: 10px;
+    #project_tagline { display: none; }
+}
+
+/* Content width */
+#main_content {
+    max-width: 800px;
+}

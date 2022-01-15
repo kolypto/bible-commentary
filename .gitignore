@@ -1,3 +1,14 @@
+# Hidden root files: tools, IDEs, etc
+/.*
+
+# Generated files
+/_site
+
+# Dependencies
+/vendor
+
+# === Common
+
 # Temps
 *~
 *.tmp
@@ -7,9 +18,6 @@
 *.DS_Store
 Thumbs.db
 
-# www utils
-.sass-cache/
-
-# Runtime
-/*.log
-/*.pid
+# But ...
+!.gitkeep
+!.gitignore
