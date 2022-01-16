@@ -54,6 +54,7 @@ Commentary:
 
 
 
+## 1
 
 ### The Creation of the World
 
@@ -310,6 +311,8 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 1:31: **хорошо весьма**. В совокупности мир заслуживает ещё большей похвалы, чем по частям. (Блж. Августин)
 
+## 2
+
 2:2: **On the seventh day**. Just think of how we measure time. Our year is defined by the Earth's orbit. Our months are dictated by the moon (or rather, were). Our days follow sunrises and sunsets. But where do weeks come from? They have no astronomical meaning, and yet all peoples throughout the Earth follow the same pattern of seven-day weeks. And that's where it comes from: from the pattern that is established by God Himself. (MacArthur)
 
 2:2: **God .. rested**. When God works, there is no dissipation of His energy. He cannot be fatigued, and He does not need rejuvenation. The word simply means that He abstained from creative work. (MacArthur)
@@ -538,6 +541,7 @@ In ancient Israel, sons did not move away when they married, but lived near thei
 
 
 
+## 3
 
 ### The Fall
 
@@ -928,6 +932,7 @@ This was also a graphic object lesson showing that only God can provide a suitab
 
 
 
+## 4
 
 ### Cain and Abel
 
@@ -1159,7 +1164,7 @@ Note that external devotion does not mean internal devotion even exists. But tru
 
 
 
-
+## 5
 
 ### Adam’s Descendants
 
@@ -1243,7 +1248,7 @@ In the end, the flood must have happened in the years 1656-1658 after creation. 
 
 
 
-
+## 6
 
 ### Increasing Corruption on Earth
 
@@ -1393,6 +1398,8 @@ Many more insights on the ask design here: [AnswersInGenesis](https://answersing
 Постройка ковчега заняла огромное количество времени. Верхний предел -- 70 лет, нижний предел -- неизвестно. Но явно не один год. И всё это время Ной и его семья занимались непростым трудом, готовя место для животных, которые даже ещё не пришли. Всё это время они верили, что настанет день, и Бог приведёт к ним тысячи животных.
 Вот что такое вера праведника.
 
+## 7
+
 7:1: **Then the Lord said**. Is is not known whether the Lord spoke immediately upon completion of the ark, or was there some difficult waiting period after it was completed.
 It may also be that Noah still wanted to improve a thing or two, but God stopped Him with these words.
 
@@ -1442,7 +1449,7 @@ People were in panic, fleeing, and the water was getting them anyway.
 
 
 
-
+## 8
 
 ### The Flood Subsides
 
@@ -1584,6 +1591,8 @@ People ask why, oh, why, there is so much evil in this world, and God does nothi
 Earth has become much better.
 
 8:22: **Во все дни земли**. Сим показывается, что изображенное обетование не вечно, а имеет свой предел. Дни земли, наконец, должны уступить место дням небес (Пс 88:30: "И положу в век века семя Его."), и тогда не только времен года, но и нощи не будет (Откр. 21:25: "Ворота его не будут запираться днем; а ночи там не будет"). (Свт. Филарет (Дроздов))
+
+## 9
 
 9:1: **be fruitful and multiply**. God says the words similar to those He had said to Adam, because Noah is a sort of second Adam, in that he (like Adam) is father of the whole human race. (ESV)
 
@@ -1837,7 +1846,7 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 
 
-
+## 10
 
 ### The Table of Nations
 
@@ -1946,7 +1955,7 @@ According to one legend preserved in the Babylonian Talmud, God cursed Ham becau
 
 
 
-
+## 11
 
 ### The Tower of Babel
 
@@ -2145,7 +2154,7 @@ In Acts 7:4, however, Stephen says that Abram left Haran after the death of Tera
 
 
 
-
+## 12
 
 ### The Call of Abram
 
@@ -2406,7 +2415,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 
 
-
+## 13
 
 ### Abram and Lot Separate
 
@@ -2490,7 +2499,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 
 
-
+## 14
 
 ### Abram Rescues Lot and is blessed by Melchizedek
 
@@ -2615,7 +2624,7 @@ God has taught Abram a lesson that when he does not trust God and take shortcuts
 
 
 
-
+## 15
 
 ### God’s Covenant with Abram
 
@@ -2749,7 +2758,7 @@ In response, God affirmed His promise with a remarkable ceremony where God gives
 
 
 
-
+## 16
 
 ### Sarai and Hagar
 
@@ -2867,7 +2876,7 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 
 
 
-
+## 17
 
 ### Abraham and the Covenant of Circumcision
 
@@ -3040,7 +3049,7 @@ The highest quality evidence indicates that circumcision does not decrease the s
 
 
 
-
+## 18
 
 ### Isaac's Birth Promised
 
@@ -3285,7 +3294,7 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 
 
-
+## 19
 
 ### God Rescues Lot
 
@@ -3577,7 +3586,7 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 
 
-
+## 20
 
 ### Abraham and Abimelech
 
@@ -3707,7 +3716,7 @@ The fear was sufficiently strong to drive the whole family into a distant cave.
 
 
 
-
+## 21
 
 ### The Birth of Isaac
 
@@ -3890,7 +3899,7 @@ Because Beersheba will mark the southern boundary of Israel, this episode may si
 
 
 
-
+## 22
 
 ### The Sacrifice of Isaac
 
@@ -4151,7 +4160,7 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 
 
-
+## 23
 
 ### Sarah's Death and Burial
 
@@ -4233,7 +4242,7 @@ And surely Isaac and the ram is a type of mankind and Christ: mankind had to die
 
 
 
-
+## 24
 
 ### Isaac and Rebekah
 
@@ -4392,7 +4401,7 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 
 
-
+## 25
 
 ### Abraham's Death and His Descendants
 
@@ -4558,7 +4567,7 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 
 
-
+## 26
 
 ### God's Promise to Isaac
 
@@ -4726,7 +4735,7 @@ The covenant seems to become a covenant between nations.
 
 
 
-
+## 27
 
 ### Isaac Blesses Jacob
 
@@ -4798,7 +4807,7 @@ The covenant seems to become a covenant between nations.
 
 
 
-
+## 28
 
 ### Jacob Sent to Laban
 
@@ -4907,7 +4916,7 @@ The covenant seems to become a covenant between nations.
 
 
 
-
+## 29
 
 ### Jacob Marries Leah and Rachel
 
@@ -5004,6 +5013,8 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 29:34: **Левий**. Иаков по-прежнему не любит Лию. Рождение детей не исправило ситуацию. Однако как сказано? "Господь, видя, что она нелюбима". Он подарил ей детей, чтобы в них у неё было утешение. Она же воспринимает этот дар совсем иначе: она считает, что теперь её полюбит муж. (МЦЦ)
 
 29:35: **На этот раз**. Только с четвёртым сыном она наконец поблагодарила господа Господа. До сих пор она пребывала в горечи, теперь же она начинает понимать, в чём её счастье. (МЦЦ)
+
+## 30
 
 30:1,2: **Envied her sister** ... **Jacob's anger was kindled**. There was plenty of bitterness in the family.
 
@@ -5154,7 +5165,7 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 
 
 
-
+## 31
 
 ### Jacob Flees from Laban
 31:1-2: **Jacob has taken all**, **Laban did not regard him with favor**. Jacob’s growing wealth becomes a source of friction within Laban’s family. Even Laban’s own attitude toward Jacob changes. (ESV)
@@ -5280,7 +5291,7 @@ Ancient Near Eastern treaties normally involved the gods as witnesses, the treat
 
 
 
-
+## 32
 
 ### Jacob Fears Esau
 
@@ -5422,7 +5433,7 @@ How did he understand that? Well, he has recently prayed, fervently. His heart a
 
 
 
-
+## 33
 
 ### Jacob Meets Esau
 
@@ -5518,7 +5529,7 @@ Why then did he send messengers (Gen 32:3) to inform Esau of his coming, if he w
 
 
 
-
+## 34
 
 ### The Defiling of Dinah
 
@@ -5629,7 +5640,7 @@ Dinah have not returned was still at Shechem's house (v. 26). But probably, he c
 
 
 
-
+## 35
 
 ### God Blesses and Renames Jacob
 
@@ -5835,7 +5846,7 @@ This is supported by the words of Jesus in Mt 22:32: "And as for the resurrectio
 
 35:29: **Buried**.Isaac was buried in the cave at Machpelah (Gen 49:30-31: "in the cave that is in the field at Machpelah, to the east of Mamre, in the land of Canaan, which Abraham bought with the field from Ephron the Hittite to possess as a burying place. There they buried Abraham and Sarah his wife. There they buried Isaac and Rebekah his wife, and there I buried Leah”"). (ESV)
 
-25:29: **Breathed his last**. The report of Isaac’s death, like that of Abraham in 25:7–10, marks the end of an era and brings to a natural conclusion the main narrative section that began with 25:19. (ESV)
+35:29: **Breathed his last**. The report of Isaac’s death, like that of Abraham in 25:7–10, marks the end of an era and brings to a natural conclusion the main narrative section that began with 25:19. (ESV)
 
 
 
@@ -5854,7 +5865,7 @@ This is supported by the words of Jesus in Mt 22:32: "And as for the resurrectio
 
 
 
-
+## 36
 
 ### Esau's Descendants
 
@@ -5931,7 +5942,7 @@ vv. 2 and 8 remind us that Esau is Edom, so the author likely expected the reade
 
 
 
-
+## 37
 
 ### Joseph's Dreams
 
@@ -6138,7 +6149,7 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 
 
 
-
+## 38
 
 ### Judah and Tamar
 
@@ -6235,7 +6246,7 @@ The story turns around: Judah has to acquit the woman and accept his own failure
 
 
 
-
+## 39
 
 ### Joseph and Potiphar's Wife
 
@@ -6336,7 +6347,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 40
 
 ### Joseph Interprets Two Prisoners' Dreams
 
@@ -6393,7 +6404,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 41
 
 ### Joseph Interprets Pharaoh's Dreams
 
@@ -6501,7 +6512,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 42
 
 ### Joseph's Brothers Go to Egypt
 
@@ -6624,7 +6635,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 43
 
 ### Joseph's Brothers Return to Egypt
 
@@ -6687,7 +6698,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 44
 
 ### Joseph Tests His Brothers
 
@@ -6733,7 +6744,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 45
 
 ### Joseph Provides for His Brothers and Family
 
@@ -6816,7 +6827,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 46
 
 ### Joseph Brings His Family to Egypt
 
@@ -6910,7 +6921,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 47
 
 ### Jacob's Family Settles in Goshen
 
@@ -7020,7 +7031,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 
 
-
+## 48
 
 ### Jacob Blesses Ephraim and Manasseh
 
@@ -7111,7 +7122,7 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 
 
 
-
+## 49
 
 ### Jacob Blesses His Sons
 
@@ -7326,6 +7337,8 @@ Dan is the first child mentioned born of a concubine.
 49:33: **gathered to his people**. This idiom, commonly used in connection with dying, seems to reflect a belief in being reunited with others in the afterlife. (ESV)
 
 49:33: **и положил ноги свои на постель, и скончался**. Посмотри и на кончину праведника, как она была чудесна. Сделав распоряжение относительно своих детей, он положил ноги свои на одр, как бы с удовольствием встречал свою смерть. (Свт. Иоанн Златоуст)
+
+## 50
 
 50:2: **embalm**. To delay the normal process of putrefaction and so enable Jacob’s corpse to be transported to Hebron. (ESV)
 
