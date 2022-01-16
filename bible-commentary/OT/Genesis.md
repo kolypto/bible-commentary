@@ -4739,44 +4739,60 @@ The covenant seems to become a covenant between nations.
 
 ### Isaac Blesses Jacob
 
-27:4: **That I may bless you**. God had said that "the older shall serve the younger" (Gen 25:23), but Isaac's preference for another son leads him to an attempt to give a different blessing. The events show that God's declaration cannot be circumvented, and peculiar events will eventually lead to the fulfillment of the prophecy. God's word cannot be broken.
+27:4: **before I die**. Isaac was 137 and certainly did not expect to live another 43 years as he actually did. (MacArthur)
 
-27:4: **May bless you before I die**. Such blessings were very important, for as prayers addressed to God they were viewed as shaping the future of those blessed. (ESV)
+27:4: **that I may bless you**. Ignoring the words of God to Rebekah (25:23), forgetting Esau's bartered birthright (25:33), and overlooking Esaus grievous marriages (26:35), Isaac was still intent on treating Esau as the eldest and granting him the blessing of birthright. (MacArthur)
+
+27:4: ⭐ **that I may bless you**. God had said that "the older shall serve the younger" (Gen 25:23), but Isaac's preference for another son leads him to an attempt to give a different blessing. The events show that God's declaration cannot be circumvented, and peculiar events will eventually lead to the fulfillment of the prophecy. God's word cannot be broken.
+
+27:4: **may bless you before I die**. Such blessings were very important, for as prayers addressed to God they were viewed as shaping the future of those blessed. (ESV)
 
 27:6: **Rebekah**. Rebekah instigates and coordinates the deception undertaken by Jacob. This mitigates, but does not remove, Jacob’s guilt in deceiving his father. (ESV)
 
-27:8: **Obey my voice as I command you**. God clearly did not cause them to deceive Isaac, but He foresaw these events.
+27:8: **my son, obey my voice as I command you**. God clearly did not cause them to deceive Isaac, but He foresaw these events.
 
-27:8: **Obey my voice**. Readers would see the ways in which God in his sovereignty uses all kinds of actions (good, bad, and mixed) to bring his people to the place in which they find themselves. (ESV)
+27:8: **obey my voice**. Readers would see the ways in which God in his sovereignty uses all kinds of actions (good, bad, and mixed) to bring his people to the place in which they find themselves. (ESV)
+
+27:12: **I shall seem to be a deceiver to him and bring a curse upon myself**. Jacob is more concerned about what comes out of this rather than whether it is a right thing to do or not.
 
 27:13: **Let your curse be on me**. It's not clear whether such words can or cannot divert the responsibility for one's actions.
 
 27:13: **Let your curse be on me**. Rebekah's actions are no doubt motivated by her special love for her son Jacob. (ESV)
 
+27:15: **choice clothes of her elder son**. Esay, having been married for 37 years, would have had his own tents and his own wives to do for him; so how and why Rebekah came by some of his best clothes in her tent is unbeknown. (MacArthur)
+
 27:19: **I am Esau**. This is a blunt lie told to the face of his father.
 
-27:20: **God granted me success**. This probably falls into the category "use the Lord's name falsely". What Jacob does is simply unacceptable.
+27:20: **God granted me success**. This probably falls into the category "use the Lord's name falsely". What Jacob does is simply unacceptable: he lies, invoking God's name.
 
-27:23: **Лия**. Иаков оказался в ситуации, когда работал семь лет чтобы жениться на любимой женщине, а в итоге оказался обманом женат на другой. При этом он в состоянии примака: когда у тебя ничего нет, и тебя кормит твой дядя. Каково это вообще мужчине жить в такой ситуации?
-А всё почему? Потому что они с мамой решили помочь Богу исполнить Его обетование, которое и так было дано. А правда: вдруг Бог не справится, и обетование не исполнится; ужас-то какой, только подумайте! (МЦЦ)
+27:20: **God granted me success**. Jacob had a choice: to confess and stop the deceit, or to say another lie to sustain a lie, which he does with ease. Although Jacob received a blessing, there were severe consequences: 1) he never saw his mother after than 2) Esau wanted him dead 3) Laban deceived him 4) his family life was full of conflict 5) he was exiled for years from his family. (MacArthur)
 
 27:24: **I am**. Jacob, having just received a blessing, lies again. Everything happens in the presence of the God, evidenced by frequent mentions of the Lord.
 
 27:26: **Come near**. Isaac heard the words, and felt the hairy skin, but was not completely convinced until he smelled the clothes.
 
-27:28: **Dew of heaven**, **fatness of the earth**, **plenty**: these blessings request an abundance of material necessities. (ESV)
+27:28: **dew of heaven**, **fatness of the earth**, **plenty**: these blessings request an abundance of material necessities. (ESV)
 
-27:29: **Let nations bow down**. Here Isaac asks for universal sovereignty, embracing not only immediate family but also **peoples** and **nations**. This blessing clearly builds on the divine promise to Abraham that kings will be among his descendants (Gen 17:6).
+27:29: **let  .. nations bow down**. Here Isaac asks for universal sovereignty, embracing not only immediate family but also peoples and nations. This blessing clearly builds on the divine promise to Abraham that kings will be among his descendants (Gen 17:6).
 
-27:29: **Blessed be everyone who blesses you**. Echoes God’s promise to Abraham in Gen 12:3. (ESV)
+27:29: **blessed be everyone who blesses you**. Echoes God’s promise to Abraham in Gen 12:3. (ESV)
+
+27:32: **I am .. your firstborn**. Esau did not forget about giving the birthright away (v. 36), but he still expects to be blessed as a firstbord. Either he did not take that episode seriously, thinking it was a joke, or he silently cheated Jacob by desiring to take the blessing as the firstborn.
+Anyway, Esau was going to take what was not his. Jacob's deceit restored justice, but this does not excude sim: he's still a deceiver.
+
+27:33: **Isaac trembled exceedingly**. In part, because he knew that he had attempted to circumvent the Lord's words to Rebekah (25:23). (MacArthur)
 
 27:36: **He cheated me two times**. From Esau’s perspective, Jacob has cheated him out of both his birthright, although Esau willingly forfeited it (see 25:33). (ESV)
 
+27:36: **He cheated me two times**. Esau is acting as the innocent victim and shifts the blame for the loss of birthright and blessing to Jacob. (MacArthur)
+
 27:37: **I have made him lord over you**. This blessing seems to have some real, irreversible power.
 
-27:39-40: The words are prophetic, granted by the Spirit. There's no way that Isaac himself could have known to say that.
+27:39-40: **Said to ［Esau］**. The words are prophetic, granted by the Spirit. There's no way that Isaac himself could have known to say that or was willing to say that.
 
-27:40: **You shall break his yoke**. Although Jacob has been given authority over his older twin brother, Isaac indicates that Esau will eventually free himself from his brother’s control. Later, Esau’s descendants settle outside the Promised Land, to the east of the Jordan River (see note on Gen 32:3–5), eventually taking control of Seir, which is later named “Edom” (see note on Gen 36:1–37:1). (ESV)
+27:40: **you shall break his yoke**. Although Jacob has been given authority over his older twin brother, Isaac indicates that Esau will eventually free himself from his brother’s control. Later, Esau’s descendants settle outside the Promised Land, to the east of the Jordan River (see note on Gen 32:3–5), eventually taking control of Seir, which is later named “Edom” (see note on Gen 36:1–37:1). (ESV)
+
+27:40: **you shall break his yoke**. In later history, the Edomites fought time and again with Israel and shook off Israelite control on several occasions (2 Kgs 8:20; 2 Chr 21:8–10; 28:16-17). (MacArthur)
 
 27:41: **I will kill my brother**. Out of hate, but also, perhaps, thinking that the blessings will be passed to him.
 
@@ -4787,6 +4803,8 @@ The covenant seems to become a covenant between nations.
 27:42: **The words were told to Rebekah**. Once again Rebekah drives the events into the direction which God has predicted: Jacob will live to become the one God had told he would.
 
 27:45: **Why should I be bereft of you both in one day?**. Rebekah is not just afraid for Jacob, but is afraid that both of them may die in a fight.
+
+27:45: **until your brother's anger turns away from you**. Until he sees that he is doing well, despire the blessing that pronounced hard life.
 
 27:46: **Hittite women**. Isaac and Rebekah's life was bitter because of Esau's wives (Gen 26:35), and here Rebekah uses this situation to convince Isaac to send Jacob away. Like Abraham did with Isaac, they encourage Jacob to get a wife from among their relatives who are living in northwest Mesopotamia. Their advice to Jacob in turn prompts Esau to take another wife, on this occasion from Ishmael’s family. (ESV)
 
@@ -4954,6 +4972,9 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 29:23: **Took Leah**. In Gen 31:15 we learn that none of the girls was happy with what their father has done. They called it "he has sold us".
 
 29:23: **Took Leah**. Darkness in a world without artificial lighting can be pitch-black. At this stage, Jacob did not realize that Leah was the bride. She may also have come to him wearing a veil, the sign of a betrothed woman. (ESV)
+
+29:23: **Лия**. Иаков оказался в ситуации, когда работал семь лет чтобы жениться на любимой женщине, а в итоге оказался обманом женат на другой. При этом он в состоянии примака: когда у тебя ничего нет, и тебя кормит твой дядя. Каково это вообще мужчине жить в такой ситуации?
+А всё почему? Потому что они с мамой решили помочь Богу исполнить Его обетование, которое и так было дано. А правда: вдруг Бог не справится, и обетование не исполнится; ужас-то какой, только подумайте! (МЦЦ)
 
 29:25: **It was Leah**. How come Jacob didn't notice the substitution? He must have known Rachel well enough to recognize. Probably, either Jacob was drunk, or Leah didn't talk at all. Perhaps, Laban made sure that Jacob drank too much, or he instructed Leah to keep quiet. Or perhaps, Leah had herself put her eye on Jacob? It's not clear.
 
