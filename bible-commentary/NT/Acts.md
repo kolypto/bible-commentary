@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Acts
 
 2:22-24: The chief actor here is **God**: did **wonders**, had a **plan**, and **raised** Him up.

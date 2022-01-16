@@ -1,3 +1,7 @@
+---
+layout: bible-commentary
+---
+
 ## 1 Thessalonians
 
 2:3: Paul emphasizes that despite them been *shamefully treated in Phillipi (v. 2),* they suffered for their honest service to God, not for deceitfulness.

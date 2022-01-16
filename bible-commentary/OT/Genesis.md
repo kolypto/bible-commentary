@@ -1,8 +1,6 @@
-<style>
-div {
-    white-space: pre-line;
-}
-</style>
+---
+layout: bible-commentary
+---
 
 
 

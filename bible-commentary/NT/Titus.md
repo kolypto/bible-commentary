@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Titus
 
 Main theme: teaching sound doctrine; devotion to good works

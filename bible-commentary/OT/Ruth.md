@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Ruth
 
 **Goel** (the Go’el HaDahm) is a Hebrew term which comes from the word lig'ol ("to redeem"), hence meaning "redeemer", which in the Hebrew Bible and the rabbinical tradition denotes a person who as the nearest relative of another is charged with the duty of restoring the rights of another and avenging his wrongs. The obligations of the goel include the duty to redeem the relative from slavery, if the latter had been obliged to sell himself into serfdom (Lev 25:48-49); to repurchase the property of a relative who had had to sell it because of poverty; to avenge the blood of his relative; to marry his brother's widow in order to have a son for his brother, in case the brother had not got any son to pass his name forth (Dt 25:5-6); and to receive the restitution if the injured relative had died (Numbers 5:8).

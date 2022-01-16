@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Exodus
 
 12:7: This command does not make any logical sense; it is only by faith that one can do it: take the word of God seriously, even when it does not make sense to us. Therefore, the blood on the doorpost is a mark of a family that has faith.

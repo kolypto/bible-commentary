@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## 1 Corinthians
 
 Letter to a troubled church. Strife between the Jews and the Gentiles. The rich eating separately from the poor. Sexual immorality in the church. People were getting drunk at the Holy Communion! And that's a church Paul had planted. Imagine how he felt like hearing all these news.

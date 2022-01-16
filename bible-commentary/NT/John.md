@@ -1,21 +1,6 @@
-Толкование на четвероевангелия Аверкия Таушева: 
-http://www.sinergia-lib.ru/index.php?section_id=982
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+---
+layout: bible-commentary
+---
 
 
 

@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Ephesians
 
 1:7: “**In Him we have redemption through His blood**.”  He redeemed us.  What does it mean to redeem?  To buy back.  What did He do to buy us?  Well, we were slaves to sin.  We were slaves to death, and hell, and Satan, and demons.  We were slave to the fallen flesh.  We were slave to the world.  And there we were in the slave market.  And He came to the slave market and He bought us.  Worthless, wretched, vile, rotten, darkened, hopeless, with minds that could never know God, and hearts that could never seek righteousness, and all our desire was lust and evil, and we were unworthy, and He came and bought us.  Why?  Because He chose us.  Because He predestined us.  Because He was wanting to grace us with grace.  You say, “Why did He want to do that?”  I don’t know.  He just did.  That was His will, that was His purpose, that was His good pleasure.

@@ -1,3 +1,7 @@
+---
+layout: bible-commentary
+---
+
 ## 1 Peter
 
 2:9: The rest of the chapters, as well as the next chapter, are dedicated to proper Christian behavior. Therefore, Peter means that** proclaiming** **the excellencies** of God is achieved by the conduct of a person. Have a look at 3:1, where an unbelieving husband "may be won without a word, by the conduct of their believing wives".

@@ -1,2 +1,7 @@
+---
+layout: bible-commentary
+---
+
+
 ## Daniel
 

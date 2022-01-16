@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Minor Prophets
 
 

@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Ezekiel
 
 16: Ezek 16. This is the longest chapter in Ezekiel’s prophecy. There are forty-eight chapters, chapter 16 is the longest. It is the most vivid, it is the most dramatic, and it is the most forceful chapter in Ezekiel and one of the most dramatic in all of Scripture. And what it does is explain to us this unique love that God has for His own. He loves, so He chooses, and He will redeem whom He loves and chooses. It is an incredible chapter.

@@ -1,5 +1,5 @@
 ---
-title: MacArhur: Pharisees, Sadducees, Essenes
+title: "MacArhur: Pharisees, Sadducees, Essenes"
 ---
 First of all, the Pharisees.  Now here you go.  The Pharisees believed that happiness was found in tradition or legalism.  They were hot on the past, big on the past, real big.  They believed that real happiness came through obeying the traditions of the fathers.
 

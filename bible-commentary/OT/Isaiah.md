@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Isaiah
 
 7:14: The **you** here is a plural *you*, indicating that Isaiah was also speaking to the entire nation, telling them that God would not allow anyone to destroy them and the line of David. Be (MacArthur)

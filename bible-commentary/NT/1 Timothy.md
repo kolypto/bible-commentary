@@ -1,3 +1,7 @@
+---
+layout: bible-commentary
+---
+
 ## 1 Timothy
 
 1:2: On **mercy** and **grace**, see Mt 5:7.

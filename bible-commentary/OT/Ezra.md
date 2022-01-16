@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Ezra
 
 8:21: **Fast**. The most beautiful indication of a fast out of fear. **“I proclaimed a fast there, at the river of Ahava,”** -- They were leaving Babylon and we stopped and we had a fast. Why? – **“that we might afflict ourselves”** – that’s what a fast does. It is self-denial, self-affliction – **“before our God,”** – Why? – **“to seek of him a right way for us,”** – We're carrying a mass of people and we didn’t know the right path – **“and for our little ones,”** – that our children could cross that dessert, that our children would be safe – **“and for all our substance"**. Why?

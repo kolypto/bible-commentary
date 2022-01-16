@@ -1,3 +1,8 @@
+---
+layout: bible-commentary
+---
+
+
 ## Romans
 
 1:1: The good news (**the gospel**) is in that Jesus has conquered the grave, conquered sin, and by His death has given us the power to defeat sin in ourselves. Because of the ressurection we can be saved. (Byron Johnson, UA)
