@@ -117,7 +117,7 @@ The message is the theme of Jesus' kingship: a King who is revealed, rejected, a
 
 
 
-### Chapter 1
+## 1
 
 1:1: The genealogy: Gk. *genesis*.
 
@@ -198,7 +198,7 @@ The message is the theme of Jesus' kingship: a King who is revealed, rejected, a
 
 
 
-### Chapter 2
+## 2
 
 2:1: Matthew continues to establish **Jesus**' kingship. The homage of the **magi**: powerful oriental kingmakers from Persia who traveled a great distance to recognize and honor a King. And a negative testimony of Herod's hatred to a child. (MacArthur) 
 
@@ -335,7 +335,7 @@ The early Jewish persecutors of the church apparently considered Jesus' being fr
 
 
 
-### Chapter 3
+## 3
 
 3:1: Nearly 30 years had elapsed between chapters 2 and 3. (MacArthur)
 
@@ -524,7 +524,7 @@ Jesus came into the world to identify with men; and to identify with men is to i
 
 
 
-### Chapter 4
+## 4
 
 4:1-11: One of the most monumental and mysterious spiritual battles of all time is recounted. The encounter occurred immediately after Jesus' baptism and proved that He was worthy to receive and to reign over the Kingdom. His baptism declared His royalty; His testing demonstrated it. Jesus consistently lived in perfect harmony with the divine plan, and here He demonstrated His power over the prince of this world. (MacArthur)
 
@@ -737,7 +737,7 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 
 
 
-### Chapter 5
+## 5
 
 
 
@@ -758,7 +758,7 @@ The synagogue served as a public school for boys, where they studied the Talmud 
 
 
 
-#### The Sermon on the Mount
+### The Sermon on the Mount
 
 5:3-7:29: The Sermon is the supreme  model of good preaching, a homiletical masterpiece. It beautifully and powerfully flows from the introduction (5:3-12) to the first point (the citizens of the kingdom, 5:13-16), to the second point (the righteousness of the kingdom, 5:17-7:12), to the third point (the exhortation to enter the kingdom, 7:13-27), and to the conclusion (the effect of the sermon on its hearers, 7:28-29). The transitions from point to point are clear and unmistakable. (MacArthur)
 
@@ -787,7 +787,7 @@ He had a way of sanctifying the very insignificance of the place and setting it 
 
 
 
-#### The Beatitudes
+### The Beatitudes
 
 5:2: Until this point, Jesus’ words have been limited; now, in one powerfully comprehensive yet compact message, the Lord sets forth the foundational truths of the gospel of the kingdom He came to proclaim. (MacArthur)
 
@@ -1464,7 +1464,7 @@ We serve and obey Christ first of all because we love Him, but secondly, it’s 
 
 
 
-#### Salt and Light
+### Salt and Light
 
 5:13: **Salt** is a flavoring, and a preservative. As Christian, we are to be people of influence, and not just be "tasteless" . We are to serve as a preserving elements of an otherwise degrading and ungodly society. (John Strohman)
 
@@ -1535,7 +1535,7 @@ But when what we do causes people to be attracted to us rather than to God, to s
 
 
 
-#### Christ Came to Fulfill the Law
+### Christ Came to Fulfill the Law
 
 5:17-20: Framework:
 v. 17: the *preeminence* of Scripture (def: the superiority, surpassing all others)
@@ -1691,7 +1691,7 @@ It is tragic that many people today, like the scribes and the Pharisees, will tr
 
 
 
-#### Introduction: Correcting Pharisees
+### Introduction: Correcting Pharisees
 
 5:21-43: (<u>contrast</u>) In the rest of the chapter, Jesus gives 6 illustrations correcting the rabbinical, traditional teaching. Knowing that His self-righteous hearers could not possibly understand what He was saying, Jesus contrasted human teaching with the divine Word of God.
 In vv. 17-20 Jesus just said that His teaching stands firmly in agreement with the OT teaching, while the Jewish religious tradition *did not*. 
@@ -1730,7 +1730,7 @@ William Barkley says, “Clearly one of two things must be true.  Either Jesus i
 
 
 
-#### Anger
+### Anger
 
 5:21-26: (<u>the flow of the Sermon on the Mount</u>) From the beginning of the Sermon on the Mount, Jesus focuses on the internal, on what men are like in their minds and hearts. This is the primary thrust of the rest of the chapter. Contrary to the superficial righteousness of the Pharisees, God requires internal righteousness. If it does not exist in the heart, it does not exist at all. 
 (MacArthur)
@@ -1842,7 +1842,7 @@ Listen, if you want to enhance worship, then everybody who’s got something aga
 
 
 
-#### Lust
+### Lust
 
 5:27-30: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to unmask the self-righteous externalism typified by the scribes and Pharisees by showing that the only righteousness acceptable to God is purity of heart. Without that purity, the outward life makes no difference. God’s divine evaluation takes place in the heart. (MacArthur)
 
@@ -1922,7 +1922,7 @@ Getting rid of harmful influences will not change a corrupt heart into a pure he
 
 
 
-#### Divorce
+### Divorce
 
 5:31-32: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to correct the perversions of the rabbinical tradition, which accommodated for the desires of the people to lower God’s standard to their own sinful needs, and is bringing people back to the understanding of the Law as it was given in the OT.
 
@@ -1967,7 +1967,7 @@ That’s not a change of the OT law. In the OT, adultery would necessarily disso
 
 
 
-#### Oaths
+### Oaths
 
 5:33-37: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to correct the perversions of the rabbinical tradition, which accommodated for the desires of the people to lower God’s standard to their own sinful needs, and is bringing people back to the understanding of the Law as it was given in the OT.
 
@@ -2006,7 +2006,7 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 
 
-#### Retaliation
+### Retaliation
 
 5:38-43: (<u>the flow of the Sermon on the Mount</u>) Jesus continues to correct the rabbinical tradition which has come to a point where it allowed personal retaliation. Which is against both the OT and the NT. (MacArthur)
 
@@ -2078,7 +2078,7 @@ Obviously, an oath, no matter how strong the words used, is only as reliable as 
 
 
 
-#### Love Your Enemies
+### Love Your Enemies
 
 5:43-48: (<u>the flow of the Sermon on the Mount</u>) This is the 6-th, and the last, illustration contrasting the false righteousness of the scribes and Pharisees with the true righeousness of God. Nowhere was it more evident how their religion was corrupted and different from God's. (MacArthur)
 
@@ -2162,7 +2162,7 @@ Jesus did not quote scripture, but taught, placing an emphasis on His authority 
 
 
 
-### Chapter 6
+## 6
 
 6:1-18: (<u>the flow of the Sermon on the Mount</u>) Mt 5:21-48 focuses on *the teaching* of the law: on what men believe; the following verses of 6:1-18 focus on *the practice* of the law, what men do. 
 The three representative illustrations that Jesus considered: our religion as it acts towards others (alms); our religion as it acts towards God (praying); our religion as it acts in relation to ourselves (fasting).
@@ -2187,7 +2187,7 @@ The three representative illustrations that Jesus considered: our religion as it
 
 
 
-#### Giving to the Needy
+### Giving to the Needy
 
 6:1: **чтобы заметили**. "Вот две женщины моют пол. Одна для того, чтобы 15-го получить зарплату, а вторая, чтобы было чисто.". Пётр Мамонов.
 
@@ -2287,7 +2287,7 @@ You say, “But what am I going to do to make sure?" The Lord will bless. And th
 
 
 
-#### On Prayer
+### On Prayer
 
 6:5-8: (<u>the flow of the Sermon on the Mount</u>) Jesus continues His contrast of true and false righteousness. He exposed the hypocritical giving, will expose their hypocritical fasting, and now He exposes an equally hypocritical praying, as typified by the scribes and Pharisees. (MacArthur)
 
@@ -2377,7 +2377,7 @@ Some people prayed it honestly, with a worshipful heart. Others went through the
 
 
 
-#### The Lord's Prayer
+### The Lord's Prayer
 
 6:9: **Pray**. "Prayer will make a man cease from sin, or sin will entice a man to cease from prayer" (John Bunyan)
 
@@ -2426,7 +2426,7 @@ The second section deals with man's needs: petitions for daily bread, forgivenes
 
 
 
-##### The Lord's Prayer: Petitions for God's glory
+#### The Lord's Prayer: Petitions for God's glory
 
 6:9: (<u>God' Paternity</u>) **Our Father**. God is the Father in heaven of those who trust in Him.
 Pagans invariably had fear for their deities; to be able to go to God as our heavenly Father means the end of fear. It also gives hope: if our earthly father spares no effort to help and protect his children, how much more will the heavenly Father love, protect, and help His children? We also know that our heavenly Father will never leave us or forsake us. And **Our Father** indicates God's eagerness to hear our prayers, and to use His power to the petitions of His children.
@@ -2482,7 +2482,7 @@ To pray for God's will to be done is to pray for satan's will to be undone.
 
 
 
-##### The Lord's Prayer: Petitions for man's needs
+#### The Lord's Prayer: Petitions for man's needs
 
 6:11: **Daily bread** represents all of our physical needs. 
 John Stott has observed that to Martin Luther: "everything necessary for the preservation of this life is bread, including food, a healthy body, good weather, house, home, wife, children, good government, and peace".
@@ -2565,7 +2565,7 @@ To receive pardon from the perfectly holy God and then to refuse to pardon other
 
 
 
-#### Fasting
+### Fasting
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) ...
 
@@ -2629,7 +2629,7 @@ You can tell people that you have fasted; just don't parade that. And God will s
 
 
 
-#### Lay Up Treasures in Heaven
+### Lay Up Treasures in Heaven
 
 6:19-24: (<u>the flow of the Sermon on the Mount</u>) "The Pharisees .. were lovers of money" (Lk 16:14), and Jesus first shows how their view of nonessential material things was perverted (vv. 4-24), and then how their view of essential material things was also perverted (vv. 25-34). (MacArthur)
 
@@ -2719,7 +2719,7 @@ A dirty window would prevent light from entering.
 
 
 
-#### Do Not Be Anxious
+### Do Not Be Anxious
 
 6:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus continues with the topic of material possessions, now in the light of trusting God to provide.
 
@@ -2781,7 +2781,7 @@ In their own, limited way, they illustrate what we should know: that **the Heave
 
 
 
-### Chapter 7
+## 7
 
 
 
@@ -2802,7 +2802,7 @@ In their own, limited way, they illustrate what we should know: that **the Heave
 
 
 
-#### Judging others
+### Judging others
 
 7:xx: (<u>the flow of the Sermon on the Mount</u>) Jesus turns to human relations. Six verses (do not judge) focus on the negative aspect of a self-righteous, judgmental spirit, and the following six verses (ask, and it will be given) focuses on the positive aspect of a spirit that is humble, trusting, and loving. (MacArthur)
 
@@ -2950,7 +2950,7 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 
-#### Ask, and It Will Be Given
+### Ask, and It Will Be Given
 
 7:xx: (<u>the flow of the Sermon on the Mount</u>) The first thing to ask God for is *wisdom*: then you will know how to help a sinning brother, how to discern falsehood and apostasy. Go to your Father, **ask, seek, and knock**. (MacArthur)
 
@@ -2999,7 +2999,7 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 
-#### The Golden Rule
+### The Golden Rule
 
 7:12: (<u>the flow of the Sermon on the Mount</u>) Here is the conclusion to the main theme of the Sermon on the Mount, which is to give the standards for kingdom living. Here He concludes giving the standards related to human relationships begun in vv.1-6. (MacArthur)
 
@@ -3028,7 +3028,7 @@ The text shows that in such a situation the believer does not condemn, but rathe
 
 
 
-#### The Narrow Gate
+### The Narrow Gate
 
 7:13: (<u>the flow of the Sermon on the Mount</u>) Here is the appeal to which Jesus has been moving through the whole sermon. He gives the call to decide now about becoming a citizen of God's kingdom and inheriting eternal life, or remaining a citizen of this fallen world and receiving damnation. The way to life is on God's terms alone; the way to damnation is on any terms a person wants, because every way but God's leads to the same fate. (MacArthur)
 
@@ -3076,7 +3076,7 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 
 
-#### A Tree and its Fruit
+### A Tree and its Fruit
 
 7:15: (<u>the flow of the Sermon on the Mount</u>) After giving the invitation to "enter by the narrow gate", Jesus warns that not everyone who claims to have entered actually has done so. The narrow way would be difficult and demanding, but the broad way is easy and permissive. (MacArthur)
 
@@ -3121,7 +3121,7 @@ Two kinds of trees: the good and the bad, which produce two kinds of fruit: the 
 
 
 
-#### I Never Knew You
+### I Never Knew You
 
 7:21: (<u>the flow of the Sermon on the Mount</u>) Now Jesus gives the final reason why so few enter the narrow gate of salvation: self-deception. Sinful man is biased in his own favor and, because of pride, tends to reject the true gospel. (MacArthur)
 
@@ -3184,7 +3184,7 @@ No doubt, all three will be represented. In any case, the people who did them di
 
 
 
-#### Build Your House on the Rock
+### Build Your House on the Rock
 
 7:24: (<u>the flow of the Sermon on the Mount</u>) Jesus has spoken about two groups of people: those who have a true profession of faith, and those who do not (v. 21). Being obedient (**doing** the will of God) was the key difference. Jesus continues with another example that demonstrates this distinction.
 
@@ -3229,7 +3229,7 @@ This is the destiny of all who build on the **sand** of man's ideas, man's philo
 
 
 
-#### The Authority of Jesus
+### The Authority of Jesus
 
 7:28: (<u>the flow of the Sermon on the Mount</u>) The response to the sermon. 
 
@@ -3262,7 +3262,7 @@ This is the destiny of all who build on the **sand** of man's ideas, man's philo
 
 
 
-### Chapter 8
+## 8
 
 7:xx: (<u>the flow of the Sermon on the Mount</u>) 
 
@@ -3287,7 +3287,7 @@ This is the destiny of all who build on the **sand** of man's ideas, man's philo
 
 
 
-### Chapter 9
+## 9
 
 9:9-10: One of the worst aspects of Roman oppression was a ruthless system of **tax**ation: income tax, and property tax. Officials would buy from the government at public auction the right of collecting income taxes for a period of 5 years. Whatever was collected above that amount was kept as profit. Those who help such taxing rights were called *publicani*. **Tax collectors** (Gk. *telones*) were then hired by them, and whatever they managed to collect above the amount demanded by the *publicani* they kept as their own profit. Backed by full authority, they had strong motivation to exact and collect as much tax as possible. Quite naturally, they were hated by their own people: not only as extortioners, but as traitors: ranked with the lowest of human society — **sinners**, prostitutes and Gentiles. **Matthew,** also called Levi, was a tax gatherer. It is doubtful that he was very religious, because tax-gatherers were ostracized from many synagogues, and sometimes even from the Temple. Partly for that reason so many tax-collectors were attracted to Jesus (mt 11:19: "a friend of tax collectors and sinners"). (MacArthur)
 
@@ -3329,7 +3329,7 @@ I think what makes it so fascinating to me also: he also had a name Levi, which 
 
 
 
-### Chapter 10
+## 10
 
 10:1: (<u>unqualified disciples</u>) **Twelve**. It’s a tremendous thrill for me, and I trust for you as well, to find out that these men chosen as the personal agents of Jesus Christ, these men that we imagine so often to be stained glass saints with some kind of holy perfection that has eluded the rest of us, are nothing more than people just like we are, and that God is in the business of using all kinds of people to do very, very high level, divine, spiritual and eternal tasks.  It struck me, particularly this week, as I was thinking about the apostles, how few there were of them. Just 11 faithful men, not particularly gifted either. All of them basically unqualified for the task. And yet, these men literally turned the world upside down. It is amazing what God can do with just a very few people. 
 Watch this verse: “For there is no restraint to the Lord to save by many or by,” what? “few.” (1 Sam 14:6)  Did you get that?  It doesn’t matter to God whether you have a lot or a little.  That is never the issue with Him.  He can put all of His divine power through one person as easily as He could put it through a multitude.  It doesn’t matter to the Lord. 
@@ -3370,7 +3370,7 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 
 
-### Chapter 11
+## 11
 
 11:12: “От дней же Иоанна Крестителя и доныне Царство Небесное силою берется, и люди стремятся овладеть им, полагаясь на свои усилия” (BTI)
 
@@ -3397,7 +3397,7 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 
 
-### Chapter 12
+## 12
 
 12:1: Dt 23:25 permits people to **eat grain** on any **field**, and that was not counted as theft. The violation of Sabbath was in *rubbing *them with their hands: see parallel in Lk 6:1.
 
@@ -3434,7 +3434,7 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 
 
-### Chapter 13
+## 13
 
 13:3: **одни во сто, другие в шестьдесят, третьи в тридцать**. Вера у людей бывает разной. У кого-то она не имеет корня и быстро засыхает. У других суета и заботы этой жизни заглушают росток веры, душат как сорняки. У кого-то из сердца веру похищает дьявол.
 Более того, даже у настоящих верующих семя веры может принести 30 плодов, у других - 60, и только у немногих все 100. ([Владимир Панарин](https://zen.yandex.ru/media/popbloger/feikovye-pravoslavnye-6079da4754617a67e753aaac))
@@ -3472,7 +3472,7 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 
 
-### Chapter 14
+## 14
 
 14:6: Now when somebody comes along and says, Well, how come you Christians say you’re the only ones that have the truth?” You tell them that’s what Jesus said. Jesus, without question, is the most narrow-minded human who ever lived. He said, “Everything I say to you is true and anything else is false.” Only He back up the fact that He had a right to say it. Amen?
 You see, this is what he’s saying here. You don’t make it, people, you don’t make it. You come miserably, woefully short of the standard for my kingdom. I’m a king. Matthew is saying that all the way through and I’m offering a kingdom, but you’re not going to get in it on the terms that you are now offering. There’s another way. And that is to realize that you can’t make it. Your theology is inadequate. Your religion is inadequate and your approach to life is inadequate. You need somebody to wash away your sin, purify you, give you a new nature fit for my kingdom. And I’m that somebody is what Christ is saying.
@@ -3502,7 +3502,7 @@ So, before you get on Peter’s case, realize where he was. People say, well, Pe
 
 
 
-### Chapter 15
+## 15
 
 15:19:  sin pervades us, all of our inmost being.  Sinfulness is at the very core of the human soul.  Jesus said, for example in Matthew 15:19 and 20, “Out of the heart come evil thoughts, murders, adulteries, fornications, thefts, false witness, slanders.  These are the things which defile the man.”  And then he said, “The evil man out of the evil treasure of his heart brings forth what is evil, for his mouth speaks from that which fills his heart,” Luke 6:45.  In other words, down deep in the human heart is pervasive sinfulness, and it rises to create the kind of words and the kind of actions that we label as sinful.  Frankly, it is human nature to love sin and hate God.  The carnal mind, Romans 8:7 says, is enmity against God.  We are born loving sin, loving ourselves, hating righteousness, and hating God.  Yet, though we are born that way, mark this, sin is not a weakness or a flaw for which we cannot be held responsible.  It is an energetic, purposeful antagonism toward God that rises out of our will.  Sinners freely, willfully and gladly choose sin.  In other words, the sin that is in us manifests itself in a deliberate, willful rebellion against God. (MacArthur)
 
@@ -3527,7 +3527,7 @@ So, before you get on Peter’s case, realize where he was. People say, well, Pe
 
 
 
-### Chapter 16
+## 16
 
 16:6: The **Pharisees** expected their reward in heaven, while the **Sadducees** expected theirs in this life, but the trust of both groups was in personal works and self-effort. Both emphasized the superficial and nonessential, and had no concern for the genuine inner spiritual life of for the welfare of their fellow man. That was "the leaven of the Pharisees and Sadducees," the hypocritical, self-serving, dead externalism about which Jesus warned His disciples (Mt 16:6). (MacArthur)
 
@@ -3579,11 +3579,9 @@ Whatever it is that I have spent my life accumulating, even if I gain the world
 
 
 
-### Chapter 17
+## 17
 
-17:12: The difficulty here is that John explicitly says that he is not **Elijah **in Jn 1:21. John indeed is not Elijah himself, but has come “in the spirit and power of Elijah" (Lk 1:17). See: [https://christianity.stackexchange.com/questions/14020/](https://www.google.com/url?q=https://christianity.stackexchange.com/questions/14020/how-did-john-the-baptist-have-the-spirit-and-power-of-elijah?newreg%3De7331f57bde74d2eb4da877bdec06cce&amp;sa=D&amp;ust=1582399365454000)
-
-
+17:12: The difficulty here is that John explicitly says that he is not **Elijah **in Jn 1:21. John indeed is not Elijah himself, but has come “in the spirit and power of Elijah" (Lk 1:17). See: [https://christianity.stackexchange.com/questions/14020/](https://christianity.stackexchange.com/questions/14020/)
 
 
 
@@ -3602,7 +3600,9 @@ Whatever it is that I have spent my life accumulating, even if I gain the world
 
 
 
-### Chapter 18
+
+
+## 18
 
 18:17: **Как язычник и мытарь** — а это как? Отпусти его, и пусть сам разбирается. (Авксентий)
 
@@ -3640,7 +3640,7 @@ But we have no right to go beyond the pages of holy scriptures and bind things o
 
 
 
-### Chapter 19
+## 19
 
 19:24: See note on 6:4, where it explains that Jews believed giving alms saves the soul. Consequently, it was easier for the rich to get into heaven.
 
@@ -3663,7 +3663,7 @@ But we have no right to go beyond the pages of holy scriptures and bind things o
 
 
 
-### Chapter 20
+## 20
 
 20:2: The Jewish interpretation by Rashi argued that when a stranger comes to town, the proper thing to do would be to inquire if he needs food and drink, not whether his female companion is a married woman, and hence as Abimelech did the latter, it tipped off Abraham to the fact that there is no fear of God in this place, and so he lied about his relationship with Sarah in order to avoid being killed. Consequently, it could be argued that the parallel behaviour results from this lack of fear of God by the antagonists in the other two similar situations.
 Christian interpretation of the incidents has varied considerably. Some commentators have seen them as regrettable exceptions in the lives of those who otherwise lived upright lives, in the same sense perhaps as Noah's and Lot's drunkenness and David's adultery. On the other hand, commentators such as Allan Turner, in his essay "Lying: Is It Ever Right?", takes the standpoint that the patriarchal individuals did not actually lie, but merely concealed part of the truth.
@@ -3688,7 +3688,7 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
-### Chapter 21
+## 21
 
 21:9: “**Hosanna!**" was something the Jews would have shouted during this feast anyway, since this is a line from the Hallel (Ps 118:25). (*Hallel* are Ps 113-118: Psalms of praise, recited by observant Jews on every Jewish holidays)
 
@@ -3717,7 +3717,7 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
-### Chapter 22
+## 22
 
 
 
@@ -3738,7 +3738,7 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
-### Chapter 23
+## 23
 
 23:3: It is interesting that instead of saying “don't listen to the Pharisees", Jesus actually to **do and observe** whatever they say. At the same time, He rebukes their hypocrisy (v. 13).  All together, He says that there's nothing wrong about being scrupulous; just make sure that the greatest commandment is taken care of first.
 
@@ -3770,7 +3770,7 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
-### Chapter 24
+## 24
 
 
 24:44: **Будьте готовы**. Что значит быть готовым? Не откладывать, и сохранять себя в состоянии готовности, то есть, праведности: готовности к встрече с Господом.
@@ -3798,7 +3798,7 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
-### Chapter 25
+## 25
 
 25:13: **watch**. Do not live with your lights gone out. Because when the time comes come, you might not be able to light them back up! (MacArthur)
 
@@ -3832,7 +3832,7 @@ Christian interpretation of the incidents has varied considerably. Some commenta
 
 
 
-### Chapter 26
+## 26
 
 26:17: **Passover**. В еврейской традиции, Пасху можно было отмечать в день пасхи, днём ранее, или через месяц. Иисус решил отметить её со своими учениками на день ранее, чтобы быть закланным в сам праздник Пасхи. (Андроник Пантак)
 
@@ -3878,14 +3878,14 @@ What does it say about their religion?
 
 
 
-### Chapter 27
+## 27
 
 27:45: **Darkness**. The black darkness lasted for three hours straight.
 What has started as a mockery and spectacle, has now become a tragedy. God has made His presence known in the darkness and the earthquake, and nobody spoke for three hours, terrified. (MacArthur)
 
 27:45: **From the sixth hour**. It's 3:00: time for the sacrifice of the Passover lambs, which was done between 3:00 and 5:00. And it was absolute chaos. There would be tens of thousands of animals ready to be sacrificed by the full contingency of the priests who are in horror because the curtain has been torn from the top to the bottom: the curtain that separates the Holy of Holies, the presence of God, which is so fearful that only one person could go in once a year, the High Priest on the Day of Atonement. The chaos at the temple would have been indescribable.  They wouldn’t know what to do. (MacArthur)
 
-27:51: Geological evidence for the earthquake:”We have tabulated a varved chronology from a core from Ein Gedi on the western shore of the Dead Sea between deformed sediments due to a widespread earthquake in 31 BC and deformed sediments due to an early first-century earthquake. The early first-century seismic event has been tentatively assigned a date of 31 AD with an accuracy of ±5 years.” [https://christianity.stackexchange.com/q/14153/43703](https://www.google.com/url?q=https://christianity.stackexchange.com/q/14153/43703&amp;sa=D&amp;ust=1582399365459000)
+27:51: Geological evidence for the earthquake:”We have tabulated a varved chronology from a core from Ein Gedi on the western shore of the Dead Sea between deformed sediments due to a widespread earthquake in 31 BC and deformed sediments due to an early first-century earthquake. The early first-century seismic event has been tentatively assigned a date of 31 AD with an accuracy of ±5 years.” [https://christianity.stackexchange.com/q/14153/43703](https://christianity.stackexchange.com/q/14153/43703)
 
 27:59: **Joseph took the body**. Коснувшись мёртвого тела, Иосиф стал нечист, и потому не мог продолжать отмечать пасху. Столкнувшись с выбором между милостью к человеку и религиозной традицией, Иосиф сознательно выбирает милость. (Андроник Пантак)
 
@@ -3908,7 +3908,7 @@ What has started as a mockery and spectacle, has now become a tragedy. God has m
 
 
 
-### Chapter 28
+## 28
 
 28:2: **Angel .. rolled back the stone**. The angel did not move the stone to let the Lord out; the angel moved the stone to let the women in! The angel moved the stone so that the world could come in and see that Jesus was gone! (MacArthur)
 
