@@ -5,6 +5,8 @@ layout: post
 
 
 <style>
-#main_content { white-space: pre-line; }
-#main_content p { margin }
+#main_content p {
+    white-space: pre-line;
+    margin: 0;
+}
 </style>
