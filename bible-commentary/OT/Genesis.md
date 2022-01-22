@@ -4796,9 +4796,16 @@ The covenant seems to become a covenant between nations.
 
 27:19: **I am Esau**. This is a blunt lie told to the face of his father.
 
+27:19: **я Исав, первенец твой, я сделал как ты сказал**. Здесь троякая ложь.
+Некоторые комментаторы стараются дать сему происшествию лучший вид через указание на прообразовательный смысл. Однако это не исключает суждения о нравственном характере деяний, который от свободы человеческой. Фараон не потому достоин осуждения, что был образом отверженного князя тьмы; Иаков не потому прав, что был образом избранных и предопределенных благодатию.
+Сам Иаков называет свой поступок обманом (Быт 27:12: "и я буду в глазах его обманщиком и наведу на себя проклятие"), равно как и Исаак (Быт 27:35: "брат твой пришел с хитростью и взял благословение твое"). Однако Исаак не осудил Иакова, ибо не отнял хитростью похищенного благословения.
+(Свт. Филарет (Дроздов))
+
 27:20: **God granted me success**. This probably falls into the category "use the Lord's name falsely". What Jacob does is simply unacceptable: he lies, invoking God's name.
 
 27:20: **God granted me success**. Jacob had a choice: to confess and stop the deceit, or to say another lie to sustain a lie, which he does with ease. Although Jacob received a blessing, there were severe consequences: 1) he never saw his mother after than 2) Esau wanted him dead 3) Laban deceived him 4) his family life was full of conflict 5) he was exiled for years from his family. (MacArthur)
+
+27:22: **голос Иакова; а руки, руки Исавовы**. Часто духовные не познаются по рукам или делам и внешнему образу жизни, которые могут иметь наружность рук Исавовых. Но голос Иаковлев, голос обоженных душ, никогда не изменяется. Может быть, Бог нередко видит и благословляет Иакова под наружностью Исава. (Свт. Филарет (Дроздов))
 
 27:24: **I am**. Jacob, having just received a blessing, lies again. Everything happens in the presence of the God, evidenced by frequent mentions of the Lord.
 
@@ -4806,9 +4813,15 @@ The covenant seems to become a covenant between nations.
 
 27:28: **dew of heaven**, **fatness of the earth**, **plenty**: these blessings request an abundance of material necessities. (ESV)
 
+27:28: **да даст тебе Бог от росы небесной**. Роса — первое условие плодородия на знойном и в летние месяцы почти лишенном дождя Востоке (Лопухин А.П.)
+
 27:29: **let  .. nations bow down**. Here Isaac asks for universal sovereignty, embracing not only immediate family but also peoples and nations. This blessing clearly builds on the divine promise to Abraham that kings will be among his descendants (Gen 17:6).
 
+27:29: **да поклонятся тебе сыны матери твоей**. Подчинение Исава Иакову осуществилось в лице их потомков, при Давиде: не только сыны через Сарру, но и через Агарь и Хеттуру. (Лопухин А.П.)
+
 27:29: **blessed be everyone who blesses you**. Echoes God’s promise to Abraham in Gen 12:3. (ESV)
+
+27:29: **благословляющие тебя - благословенны**. Слова близко напоминают обетования Аврааму, но и отличие от последних не содержат обетования о благословении в семени Иакова всех народов, как бы в возмездие за неблаговидный способ получения благословения; только уже после, когда Иаков бегством из дома отца начал искупать грех свой, упомянутое высокое благословение дается и ему (Быт. 28:14: "и благословятся в тебе и в семени твоем все племена земные; и вот Я с тобою"). (Лопухин А.П.)
 
 27:32: **I am .. your firstborn**. Esau did not forget about giving the birthright away (v. 36), but he still expects to be blessed as a firstbord. Either he did not take that episode seriously, thinking it was a joke, or he silently cheated Jacob by desiring to take the blessing as the firstborn.
 Anyway, Esau was going to take what was not his. Jacob's deceit restored justice, but this does not excude sim: he's still a deceiver.
