@@ -4811,9 +4811,11 @@ The covenant seems to become a covenant between nations.
 
 27:26: **Come near**. Isaac heard the words, and felt the hairy skin, but was not completely convinced until he smelled the clothes.
 
+27:27: **благословил его**. Благословение Исаака рассматривать должно не как желание только, но как пророчество. (Свт. Филарет (Дроздов))
+
 27:28: **dew of heaven**, **fatness of the earth**, **plenty**: these blessings request an abundance of material necessities. (ESV)
 
-27:28: **да даст тебе Бог от росы небесной**. Роса — первое условие плодородия на знойном и в летние месяцы почти лишенном дождя Востоке (Лопухин А.П.)
+27:28: **да даст тебе Бог от росы небесной**. В странах жарких, где дожди редки, недостаток сей восполняется обильною росою вечернею и утреннею. (Свт. Филарет (Дроздов)) Роса — первое условие плодородия на знойном и в летние месяцы почти лишенном дождя Востоке (Лопухин А.П.)
 
 27:29: **let  .. nations bow down**. Here Isaac asks for universal sovereignty, embracing not only immediate family but also peoples and nations. This blessing clearly builds on the divine promise to Abraham that kings will be among his descendants (Gen 17:6).
 
@@ -4823,16 +4825,28 @@ The covenant seems to become a covenant between nations.
 
 27:29: **благословляющие тебя - благословенны**. Слова близко напоминают обетования Аврааму, но и отличие от последних не содержат обетования о благословении в семени Иакова всех народов, как бы в возмездие за неблаговидный способ получения благословения; только уже после, когда Иаков бегством из дома отца начал искупать грех свой, упомянутое высокое благословение дается и ему (Быт. 28:14: "и благословятся в тебе и в семени твоем все племена земные; и вот Я с тобою"). (Лопухин А.П.)
 
+27:30: **как только вышел Иаков .. брат его пришел**. Если бы он успел застать брата, то, может быть, увлеченный яростью, и убил бы его; если он хотел (сделать) это уже после, тем более сделал бы это во время самого происшествия. Но десница Божия хранила отрока. Кто не изумится промышлению Божию? (Свт. Иоанн Златоуст)
+
 27:32: **I am .. your firstborn**. Esau did not forget about giving the birthright away (v. 36), but he still expects to be blessed as a firstbord. Either he did not take that episode seriously, thinking it was a joke, or he silently cheated Jacob by desiring to take the blessing as the firstborn.
 Anyway, Esau was going to take what was not his. Jacob's deceit restored justice, but this does not excude sim: he's still a deceiver.
 
 27:33: **Isaac trembled exceedingly**. In part, because he knew that he had attempted to circumvent the Lord's words to Rebekah (25:23). (MacArthur)
+
+27:33: **вострепетал Исаак**. Исаак трепещет вследствие ясного ощущения, что случившееся произошло по допущению силы Божьей. (Лопухин А.П.)
+
+27:33: **я благословил его; он и будет благословен**. Исаак, без соснения, знал, что сам он действовал пророчески. Ведь если бы он не знал, что делает, то, верно, разгневался бы на сына за то, что тот обманул его. (~Блж. Августин Иппонский)
+
+27:33: **я благословил его; он и будет благословен**. Праведник что устами его руководила премудрость Божия, дабы Исав, в точности все узнав, сам уже видел, что ему не может быть уже никакой пользы ни от первородства, ни от настоящей ловли. (Свт. Иоанн Златоуст)
+
+27:33: **я благословил его; он и будет благословен**. Произнося благословение, он чувствовал себя в состоянии вдохновения. Почему первая мысль его была: каким образом к действию вдохновения могло примешаться заблуждение? И она возмутила его. За нею следовала другая: что внушенное Богом слово не может быть погрешительно, и он подтвердил произнесенное прежде благословение. Такая непоколебимость среди толикого замешательства есть верный признак души, на все взирающей в Боге и в Боге утвержденной. (Свт. Филарет (Дроздов))
 
 27:36: **He cheated me two times**. From Esau’s perspective, Jacob has cheated him out of both his birthright, although Esau willingly forfeited it (see 25:33). (ESV)
 
 27:36: **He cheated me two times**. Esau is acting as the innocent victim and shifts the blame for the loss of birthright and blessing to Jacob. (MacArthur)
 
 27:37: **I have made him lord over you**. This blessing seems to have some real, irreversible power.
+
+27:37: **что же я сделаю для тебя, сын мой**. Благословение, данное Иакову, Исаак почитает препятствием благословению Исава: а) по самому содержанию первого благословения, в котором уже включалось унижение Исава; б) потому, что в нечаянном благословении Иакова он видит руку Божию, карающую Исава; в) не потому ли еще, что сила благословения, которая обитала в патриархе и посредством духовного общения переходила от предков к потомкам, обыкновенно изливалась раз, и не не возбуждалась более? (Свт. Филарет (Дроздов))
 
 27:39-40: **Said to ［Esau］**. The words are prophetic, granted by the Spirit. There's no way that Isaac himself could have known to say that or was willing to say that.
 
