@@ -4850,9 +4850,19 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 27:39-40: **Said to ［Esau］**. The words are prophetic, granted by the Spirit. There's no way that Isaac himself could have known to say that or was willing to say that.
 
+27:39: **от тука земли будет обитание твое и от росы небесной свыше**. Исаак, тронутый, хотя и после некоторого раздумья, благословляет его — в выражениях, по началу тождественных с благословениями Иакову. Плодородие почвы и обилие росы обещается Исаву так же, как и Иакову; а различие — лишь в степени политической самостоятельности и благосостояния. Впрочем, сравните Мал 1:3: "а Исава возненавидел и предал горы его опустошению, и владения его - шакалам пустыни". (Лопухин А.П.)
+
+27:39: **будешь жить мечом**. «Жить мечом» — жизнь разбойнических нападений на караваны и путников, — такова, действительно, была жизнь идумеев. (Лопухин А.П.)
+
+27:39: **будешь служить брату твоему;**. Пророчество Исаака на них сбывается с точностью. Сначала потомство Исава возрастает, богатеет и имеет царей раньше Израиля (Быт. 36:31: "цари, царствовавшие в земле Едома, прежде царствования царей у сынов Израилевых"). Но уже 1-й царь Израиля Саул имел успех против Едома (1 Цар. 14:47: "Саул .. воевал со всеми окрестными врагами своими, .. и с Эдомом, .. и имел успех"), а при Давиде все идумеи сделались рабами (2 Цар. 8:14: "поставил охранные войска, и все Идумеяне были рабами Давиду."), а затем, исключая отдельные восстания при Соломоне (3 Цар. 11:14: "И воздвиг Господь противника на Соломона, Адера Идумеянина, из царского Идумейского рода"), Ахазе (4 Цар. 14:7: "Он поразил десять тысяч Идумеян на долине Соляной, и взял Селу войною") и др., после разрушения остатков Едома (Ам. 9:11–12: "чтобы они овладели остатком Едома и всеми народами"; Иер. 49:17: "И будет Едом ужасом; всякий, проходящий мимо, изумится и посвищет, смотря на все язвы его"), наконец, при И. Гиркане, через обрезание, окончательно вошли в состав Иудейского государства. Но «пришло время» — по Таргуму: «когда Израиль отверг иго закона, то Едом сверг с себя иго его», — и в лице Ирода Вел. и его дома Иудея приняла даже царей от идумеев. (Лопухин А.П.)
+
 27:40: **you shall break his yoke**. Although Jacob has been given authority over his older twin brother, Isaac indicates that Esau will eventually free himself from his brother’s control. Later, Esau’s descendants settle outside the Promised Land, to the east of the Jordan River (see note on Gen 32:3–5), eventually taking control of Seir, which is later named “Edom” (see note on Gen 36:1–37:1). (ESV)
 
 27:40: **you shall break his yoke**. In later history, the Edomites fought time and again with Israel and shook off Israelite control on several occasions (2 Kgs 8:20; 2 Chr 21:8–10; 28:16-17). (MacArthur)
+
+27:41: **возненавидел**. Не просто временный гнев, а особо великая сила злобы, постоянное пребывание во вражде. (Свт. Иоанн Златоуст)
+
+27:41: **возненавидел**. Исав возненавидел Иакова тайною, коварною ненавистью, но из почтения к отцу решает отложить мщение до ожидаемой смерти его. Со временем, однако он забыл обиду, причиненную ему Иаковом. (Лопухин А.П.)
 
 27:41: **I will kill my brother**. Out of hate, but also, perhaps, thinking that the blessings will be passed to him.
 
@@ -4860,15 +4870,23 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 27:41: **The days of mourning are approaching**. Esau sees murder as something acceptable, given the situation with his brother, but the only thing that holds him down is his father.
 
+27:41: **приближаются дни плача по отце моем**. Щадя старость отца, Исав отсрочивает преднамереваемое братоубийство. Ни слова о матери: он небрежет о ней, как о виновнице своего унижения. (Свт. Филарет (Дроздов))
+
 27:42: **The words were told to Rebekah**. Once again Rebekah drives the events into the direction which God has predicted: Jacob will live to become the one God had told he would.
+
+27:43: **беги**. Вражда и мщение — пища плотских; молчание и бегство — оружие духовных. (Свт. Филарет (Дроздов))
 
 27:45: **Why should I be bereft of you both in one day?**. Rebekah is not just afraid for Jacob, but is afraid that both of them may die in a fight.
 
 27:45: **until your brother's anger turns away from you**. Until he sees that he is doing well, despire the blessing that pronounced hard life.
 
+27:45: **Тогда я пошлю и возьму тебя оттуда**. Сие не исполнилось. Конечно, жизнь Ревекки прекратилась скорее, нежели вражда Исава. (Свт. Филарет (Дроздов))
+
+27:45: **Для чего мне в один день лишиться обоих вас?** Ибо сын убиенный и сын–убийца равно потеряны для сердца матери. (Свт. Филарет (Дроздов))
+
 27:46: **Hittite women**. Isaac and Rebekah's life was bitter because of Esau's wives (Gen 26:35), and here Rebekah uses this situation to convince Isaac to send Jacob away. Like Abraham did with Isaac, they encourage Jacob to get a wife from among their relatives who are living in northwest Mesopotamia. Their advice to Jacob in turn prompts Esau to take another wife, on this occasion from Ishmael’s family. (ESV)
 
-
+27:46: **если Иаков возьмет жену из дочерей Хеттейских**. Ревекка утаивает от Исаака важнейшую причину, по которой нужно было удалить Иакова. Так любовь покрывает самые тяжкие грехи и старается отвратить зло, не возмущая невинных и не раздражая виновных. (Свт. Филарет (Дроздов))
 
 
 
