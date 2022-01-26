@@ -4907,12 +4907,17 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 ### Jacob Sent to Laban
 
-28:1: **Called Jacob and blessed him**. Interestingly, if Isaac was disappointed in Jacob after his nefarious deception, he still wants the best for him: **You must not take a wife from the Canaanite women**. Or is he afraid that Jacob would pick up their pagan religion?
+28:1: **Called Jacob and blessed him.. "You must not take a wife from the Canaanite women"**. Interestingly, if Isaac was disappointed in Jacob after his nefarious deception, he still wants the best for him. Or is he afraid that Jacob would pick up their pagan Caananite religion?
 
-28:4: **The blessing of Abraham**. Previously, Isaac only gave him a blessing concerning prosperity (*dew of heaven*) and lordship (*nations bow down*). Now, Isaac explicitly pronounces the blessing of Abraham, which concerns the many **offsptring** and the inheritance of the promised **land**. 
+28:2: **take as your wife**. Rebekah, anxious for the safety of her son, easily convinced here husband that the time has come for him to seek a non-Caananite wife back in their homeland. (MacArthur)
+
+28:3: **God Almighty**. Significantly, *El Shaddai* was the name Isaac chose to use when blessing Jacob. It was the name of sovereign power with which God had identified Himself to Abraham in covenant reaffirmation (17:1), an encouraging factor to both him and his son. (MacArthur)
+
+28:4: **The blessing of Abraham .. offspring .. land**. Previously, Isaac only gave him a blessing concerning prosperity (*dew of heaven*) and lordship (*nations bow down*). Now, Isaac explicitly pronounces the blessing of Abraham, which concerns the many "offspring" and the inheritance of the promised "land".
 
 28:4: **The blessing of Abraham**. Esau now sees that another blessing misses him and goes to Isaac. He must have felt cheated again.
 
+28:5: **Isaac sent Jacob away**. This must have been a hard departure for the domestic Jacob. (MacArthur)
 
 
 
@@ -4934,12 +4939,13 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 ### Esau Marries an Ishmaelite
 
-28:6-7: There is an antithesis of the two sons. Esau **took Canaanite women**, but Jacob did not. Esau disobeyed his father in this, but **Jacob obeyed**. 
+28:6-7: **Esau .. Jacob**. There is an antithesis of the two sons. Esau took Canaanite women, but Jacob did not. Esau disobeyed his father in this, but Jacob obeyed.
 
 28:8: **Did not please Isaac**. Esau seeks to make amends for his earlier actions. To gain his parents’ approval, he marries one of Ishmael’s daughters. Esau, however, still retains his two Hittite wives. (ESV)
 
 28:8: **Did not please Isaac**. The text clearly shows that his motivation for taking another wife was to please his father. Why? Did he hope to receive a blessing?
 
+28:9: **So Esau went to Ishmael**. Marrying back into the line of Abraham was hopeful of gaining favor with his father. He actually increased iniquity by adding to his pagan wives a wife from a family God had rejected. (MacArthur)
 
 
 
@@ -4961,29 +4967,27 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 ### Jacob's Dream
 
-28:10: **Bersheeba.. Haran**. A 900km journey. (ESV)
+28:10: **left Bersheeba and went to Haran**. A 900km journey. (ESV)
 
-28:12: **A ladder.** May be a stairway or a ziggurat. What matters most is not the precise shape of this structure but its purpose; it provides a bridge between heaven and earth, revealing that God is still committed to making the earth his dwelling place. (ESV)
+28:12: **A ladder**. May be a stairway or a ziggurat. What matters most is not the precise shape of this structure but its purpose; it provides a bridge between heaven and earth, revealing that God is still committed to making the earth his dwelling place. (ESV)
 
-28:12: **A ladder.** Jesus identifies himself as the ladder linking earth and heaven (John 1:51: "you will see heaven opened, and the angels of God ascending and descending on the Son of Man") (ESV)
+28:12: **A ladder**. Jesus identifies himself as the ladder linking earth and heaven (John 1:51: "you will see heaven opened, and the angels of God ascending and descending on the Son of Man") (ESV)
 
 28:13: **The land ... I will give to you.** This is the first time that the Lord confirms that the blessing of Abraham belongs to Jacob. Isaac had wished it; the Lord has now confirmed it.
 
 28:15: **I am with you and will keep you wherever you go**. This is a tremendous promise of God's support!
 
-28:16: **The Lord is in this place.** Jacob thought, perhaps mistakenly, that the place has something special about it. But God did not say that He is somehow bound to this place; He said that He will be with Jacob **wherever he goes**, that is, in any place. This may be a hint towards Jacod's spiritual blindness. No surprise, given his lack of morals.
-
-28:16: **The Lord is in this place.** Jacob’s reaction suggests that he perceived God as being with him on earth rather than in heaven. (ESV)
-
-28:17: **Was afraid.** It seems to me that the fear Jacob experienced is not being full of awe in God's presence, but rather, a dreadful fear of an unrepentant person. But we don't know for sure. But in v. 21 Jacob promises that "The Lord will be my God", probably meaning that Jacob was godless before that.
+28:16: **The Lord is in this place.** Jacob thought, perhaps mistakenly, that the place has something special about it. But God did not say that He is somehow *bound* to this place; He said that He will be with Jacob "wherever he goes", that is, in any place. This may be a hint towards Jacob's spiritual blindness. No surprise, given his lack of morals.
 
 28:17: **Was afraid.** Overwhelmed with God's power and holiness and a deep awareness of their own sinfulness and fragility, a worshipful fear emerges. (Internet)
 
-28:18: **Set it up for a pillar.** Although Jacob commemorates this special event by setting up a pillar and consecrating it with **oil**, it is noteworthy that he does not build an altar. This is a further indication that he has not yet fully accepted the Lord as his God. Years later, however, after his faith-transforming encounter with God at Penuel (Gen. 32:22–32, Jacob Wrestles with God), Jacob returns to Bethel in order to construct an altar (35:1–7). (ESV)
+28:17: **Was afraid.** It seems to me that the fear Jacob experienced is not being full of awe in God's presence, but rather, a dreadful fear of an unrepentant person. But we don't know for sure. But in v. 21 Jacob promises that "The Lord will be my God", probably meaning that Jacob was godless before that.
+
+28:18: **Set it up for a pillar.** Although Jacob commemorates this special event by setting up a pillar and consecrating it with oil, it is noteworthy that he does not build an altar. This is a further indication that he has not yet fully accepted the Lord as his God. Years later, however, after his faith-transforming encounter with God at Penuel (Gen. 32:22–32, Jacob Wrestles with God), Jacob returns to Bethel in order to construct an altar (35:1–7). (ESV)
 
 28:18: **Set it up for a pillar.** While the practice of setting up pillars was common in Canaanite worship, Deut. 16:22 prohibits it (Dt 16:22: "And you shall not set up a pillar, which the LORD your God hates."). (ESV)
 
-28:20: **A vow.** A vow that Jacob will hesitate to fulfil immediately (???check).
+28:20: **A vow.** A vow that Jacob will hesitate to fulfil immediately (Gen 31:13: "I am the God of Bethel, where you .. made a vow to me. Now arise and return to the land"; then again Gen 35:1: "Arise, go up to Bethel and .. make an altar there to the God who appeared to you"); .
 
 28:20: **If God be with me**. God has just revealed Himself to Jacob in a dream, and the dream must have been very impressive. In the dream, God has made a promise. Now Jacob holds that if the promise comes true, if God really does what He promised, Jacob is ready to be committed to Him. 
 
