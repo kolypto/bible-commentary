@@ -4909,9 +4909,13 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 28:1: **Called Jacob and blessed him.. "You must not take a wife from the Canaanite women"**. Interestingly, if Isaac was disappointed in Jacob after his nefarious deception, he still wants the best for him. Or is he afraid that Jacob would pick up their pagan Caananite religion?
 
+28:1: **И призвал Исаак Иакова и благословил его**. Исаак призывает к себе Иакова с целью как бы официального признания его в правах первородства; по выражению paвв. Елиезера, это как бы приложение печати к акту благословения, в удостоверение его сознательности. (Лопухин А.П.)
+
 28:2: **take as your wife**. Rebekah, anxious for the safety of her son, easily convinced here husband that the time has come for him to seek a non-Caananite wife back in their homeland. (MacArthur)
 
 28:3: **God Almighty**. Significantly, *El Shaddai* was the name Isaac chose to use when blessing Jacob. It was the name of sovereign power with which God had identified Himself to Abraham in covenant reaffirmation (17:1), an encouraging factor to both him and his son. (MacArthur)
+
+28:3: **Бог же Всемогущий**. Как Бог, возвещая Аврааму рождение от него сына и происхождение многочисленного потомства, называет Себя Богом всемогущим, El-Schaddai (Быт. 17:1), так этим же именем Ел-Шаддай называет Бога и Исаак при обещании Иакову потомства и передаче ему всех благ Авраамова наследия. (Лопухин А.П.)
 
 28:4: **The blessing of Abraham .. offspring .. land**. Previously, Isaac only gave him a blessing concerning prosperity (*dew of heaven*) and lordship (*nations bow down*). Now, Isaac explicitly pronounces the blessing of Abraham, which concerns the many "offspring" and the inheritance of the promised "land".
 
@@ -4947,7 +4951,11 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 28:9: **So Esau went to Ishmael**. Marrying back into the line of Abraham was hopeful of gaining favor with his father. He actually increased iniquity by adding to his pagan wives a wife from a family God had rejected. (MacArthur)
 
+28:9: **К Измаилу**. То есть к дому или племени Измаила, ибо Измаил умер за 14 лет пред сим. (Свт. Филарет (Дроздов))
 
+28:9: **Махалафу**. В Быт. 36:3 эта женщина названа Васемафой, а не Махалафой, как здесь. Эту разноплеменность (замечаемую и относительно других жен Измаила, ср. Быт. 26:34 и Быт. 36:3) еврейские комментаторы объясняли или действительной двуименностью данной женщины, или переименованием по какому-либо знаменательному случаю: то и другое у древних евреев, как известно, было в обычае. (Лопухин А.П.)
+
+28:9: **сверх других жён своих**. О самом поступке Исава равв. Елиезер говорит: «Если бы он прежних жен отпустил от себя, то я сказал бы, что он правильно поступил, но так как говорится: «Он взял ее сверх жен своих», — то этим показывается, что струп следовал за струпом, боль за болью, терн за терном» (Лопухин А.П.)
 
 
 
@@ -4969,15 +4977,42 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 28:10: **left Bersheeba and went to Haran**. A 900km journey. (ESV)
 
+28:11: **пришел на одно место**. Луз, далее именуемый Вефиль. Вефиль лежит к северу от Иерусалима, в 15 верстах от него, а от Вирсавии в 60 верстах. Иаков мог совершить столь значительный дневной переход не иначе, как поднявшись в путь рано утром, что сделано, вероятно, для того, чтобы не быть замечену Исавом. Иаков, застигнутый в поле ночью, не пошел искать ночлега в соседнем городе, потому ли, что по недоверию к хананеям не заблагорассудил вру­чить себя их гостеприимству. Ночуя среди поля, он мог опасаться нападе­ния разбойников и хищных зверей. (Епископ Виссарион (Нечаев))
+
 28:12: **A ladder**. May be a stairway or a ziggurat. What matters most is not the precise shape of this structure but its purpose; it provides a bridge between heaven and earth, revealing that God is still committed to making the earth his dwelling place. (ESV)
 
 28:12: **A ladder**. Jesus identifies himself as the ladder linking earth and heaven (John 1:51: "you will see heaven opened, and the angels of God ascending and descending on the Son of Man") (ESV)
+
+28:12: **Ангелы Божии восходят и нисходят по ней**. Уходит Иаков из отцовского дома, и самого города, и удаляется от рода своего. Поэтому он начал страшно унывать; ибо представлял себе, как и естественно, что будет странником и пришельцем и жить будет на чужой земле. Быть может должен будет подчиняться другим и принять на себя необычное иго рабства; потому что необходимо будет уступать власть имеющим и очень благородным.
+Но тотчас оказывает помощь и Бог, знающий сердца и утробы (Пс. 7:10), и не допускает душе праведника быть подавляемою столь тяжким унынием. Он показал, что множество Ангелов, восходящих и нисходящих, легко спасает преданных Богу.
+(Свт. Кирилл Александрийский)
+
+28:12: **Ангелы Божии восходят и нисходят по ней**. В образе лествицы показано было Иакову восхождение и нисхождение Ангелов над ним, когда он спал, и давалось уразуметь, что охраняется он не только во время бодрствования, но и когда спит, ибо тогда Ангелам повелено восходить и нисходить над ним для его охранения. (Прп. Ефрем Сирин)
+
+28:12: **Ангелы Божии восходят и нисходят по ней**. Видение лестницы прежде слов откровения внушало уже Иакову, что он, будучи в опасном отлучении от общества человеческого, вступает между тем в спасительное общение с вышними силами и обретается под непосредственным охранением Господа. (Свт. Филарет (Дроздов))
+
+28:12: **Ангелы Божии восходят и нисходят по ней .. И вот, Господь стоит на ней**. Лествица, со­единявшая небо с землей, верхним концом достигавшая до небесного свода, нижним упиравшаяся на земле близ места ночлега Иаковлева, – знаменовала непрерывающееся об­щение мира духовного с избранниками Божиими на земле.
+Явление Бога, Владыки неба и земли, ангелов и человеков, наверху Лествицы, показывало, что Сам Бог с высоты свя­тыя Своея призирает на землю и Своим всемогущим по­кровом осеняет людей, подобно Иакову уповающих на Него и преданных Ему.
+Таким образом, видение Лествицы, на вершине которой стоял Бог и по которой восходили и нисходили ангелы, должно было укрепить в Иакове убеж­дение, что он находится под особенным покровительством Божиим и под защитой Сил небесных. Дальнейшими словами Господь укрепляет Иакова к мужественному перенесению дальнейших, пред­стоящих ему трудностей путешествия и долговременного пребывания вдали от родины, внушая ему, что будет так же близок и милостив к нему, как был близок и милостив к деду его Аврааму.
+(Епископ Виссарион (Нечаев))
+
+28:13: **вот лестница, .. вот ангелы, ...вот, Господь**. Характер всего видения Иакова соответствует тому кругу воззрений, в которых жил и вращался будущий патриарх народа Божия. В целой картине видения — 3 элемента (внешним образом выделяющиеся через троякое «вот», евр. hinneh).
+1) Лестница от земли до неба, как выражение тесной связи земли с небом: утешительная для человека истина, что он не предоставлен на земле одним мировым силам, но имеет доступ на небо и помощь оттуда!
+2) Ангелы восходят и нисходят по лестнице, т. е. возносят мольбы, мысли, попечения и проч. человека к Богу, с другой стороны низводят на человека разные виды милости Божьей.
+3) Но это посредство Ангелов не исключает и непосредственного действия Бога на Своих избранников: Иегова, как Бог завета или Ангел Иеговы.
+(Лопухин А.П.)
 
 28:13: **The land ... I will give to you.** This is the first time that the Lord confirms that the blessing of Abraham belongs to Jacob. Isaac had wished it; the Lord has now confirmed it.
 
 28:15: **I am with you and will keep you wherever you go**. This is a tremendous promise of God's support!
 
+28:15: **Я с тобою**. Поэтому не думай, что ты одиноко будешь совершать свой путь: ты Меня будешь иметь спутником; Меня будешь иметь на всем пути стражем, который облегчит для тебя все трудности и тяжкое сделает легким. (Свт. Иоанн Златоуст)
+
+28:16: **Иаков пробудился**. Когда спал он, представлялось ему, что спит в далекой от Бога стране. Но когда пробудился и увидел, какое попечение прилагается о нем в пустыне, тогда сказал: «Как в дому Божием спал я, и как пред вратами небесными покоился». (Прп. Ефрем Сирин)
+
 28:16: **The Lord is in this place.** Jacob thought, perhaps mistakenly, that the place has something special about it. But God did not say that He is somehow *bound* to this place; He said that He will be with Jacob "wherever he goes", that is, in any place. This may be a hint towards Jacob's spiritual blindness. No surprise, given his lack of morals.
+
+28:16: **Господь присутствует на месте сем; а я не знал!**. Идолопоклонники полагали, что в каждом городе свой дух, и они не могли все быть везде и не должны быть везде почитаемы. Блаженные патриархи, ещё только недавно освободившись от обычаев идолослужения, думали, что Он не на всякой земле присуствует с ними и защищает их. Итак, научаем был Иаков, что Божество присутствует на всяком месте и во всякой стране, и что Ему всё подчинено, и духи небесные. Поэтому-то Иаков и удивился. (Свт. Кирилл Александрийский)
 
 28:17: **Was afraid.** Overwhelmed with God's power and holiness and a deep awareness of their own sinfulness and fragility, a worshipful fear emerges. (Internet)
 
@@ -4986,6 +5021,8 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 28:18: **Set it up for a pillar.** Although Jacob commemorates this special event by setting up a pillar and consecrating it with oil, it is noteworthy that he does not build an altar. This is a further indication that he has not yet fully accepted the Lord as his God. Years later, however, after his faith-transforming encounter with God at Penuel (Gen. 32:22–32, Jacob Wrestles with God), Jacob returns to Bethel in order to construct an altar (35:1–7). (ESV)
 
 28:18: **Set it up for a pillar.** While the practice of setting up pillars was common in Canaanite worship, Deut. 16:22 prohibits it (Dt 16:22: "And you shall not set up a pillar, which the LORD your God hates."). (ESV)
+
+28:19: **Вефиль**. Вефиль лежит к северу от Иерусалима, в 15 верстах от него. Впоследствии, когда Луза завоевана была евреями, она по соседству с местом этого Богоявления переименована была ими в Вефиль (Быт. 35:9). (Епископ Виссарион (Нечаев))
 
 28:20: **A vow.** A vow that Jacob will hesitate to fulfil immediately (Gen 31:13: "I am the God of Bethel, where you .. made a vow to me. Now arise and return to the land"; then again Gen 35:1: "Arise, go up to Bethel and .. make an altar there to the God who appeared to you"); .
 
