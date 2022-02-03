@@ -5014,6 +5014,10 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 
 28:16: **Господь присутствует на месте сем; а я не знал!**. Идолопоклонники полагали, что в каждом городе свой дух, и они не могли все быть везде и не должны быть везде почитаемы. Блаженные патриархи, ещё только недавно освободившись от обычаев идолослужения, думали, что Он не на всякой земле присуствует с ними и защищает их. Итак, научаем был Иаков, что Божество присутствует на всяком месте и во всякой стране, и что Ему всё подчинено, и духи небесные. Поэтому-то Иаков и удивился. (Свт. Кирилл Александрийский)
 
+28:16: **Господь на месте сем**. Восклицание Иакова относить можно вместо неведения к его смирению. Не смея относить откровения к достоинству своего лица, он относит оное к преимуществу места, избранного Богом. (Свт. Филарет (Дроздов))
+
+28:16: **а я не знал!**. Иаков высказывает, что доселе он не думал, чтобы Бог являл Свое присутствие не на освященных только жертвами местах, но и в обитаемых язычниками местностях. Возможно, впрочем, видеть здесь выражение несовершенной еще веры в вездеприсутствие Божье (как понимает восклицание Иакова святой Кирилл Александрийский). (Лопухин А.П.)
+
 28:17: **Was afraid.** Overwhelmed with God's power and holiness and a deep awareness of their own sinfulness and fragility, a worshipful fear emerges. (Internet)
 
 28:17: **Was afraid.** It seems to me that the fear Jacob experienced is not being full of awe in God's presence, but rather, a dreadful fear of an unrepentant person. But we don't know for sure. But in v. 21 Jacob promises that "The Lord will be my God", probably meaning that Jacob was godless before that.
@@ -5021,6 +5025,10 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 28:18: **Set it up for a pillar.** Although Jacob commemorates this special event by setting up a pillar and consecrating it with oil, it is noteworthy that he does not build an altar. This is a further indication that he has not yet fully accepted the Lord as his God. Years later, however, after his faith-transforming encounter with God at Penuel (Gen. 32:22–32, Jacob Wrestles with God), Jacob returns to Bethel in order to construct an altar (35:1–7). (ESV)
 
 28:18: **Set it up for a pillar.** While the practice of setting up pillars was common in Canaanite worship, Deut. 16:22 prohibits it (Dt 16:22: "And you shall not set up a pillar, which the LORD your God hates."). (ESV)
+
+28:18: **поставил его памятником, и возлил елей**. Обычай ставить столпы и подобные им сооружения в качестве памятников известных событий весьма распространен на древнем и новом Востоке. Позднейшие злоупотребления этим обычаем в целях идолослужения вызвали запрещение в законе Моисеевом (Втор 16:22: "и не ставь себе столба, что ненавидит Господь Бог твой") ставить столпы. (Лопухин А.П.)
+
+28:18: **елей**. Елей, как необходимая принадлежность путешествия в жарких странах, как средство подкрепления и питания, естественно, был под рукою у путника Иакова: «вероятно, только один елей он и нес с собою, находясь в пути» (Иоанн Златоуст, с. 585). Таким образом, «что имел у себя, тем и воздал великодаровитому Господу» (блаженный Феод.). (Лопухин А.П.)
 
 28:19: **Вефиль**. Вефиль лежит к северу от Иерусалима, в 15 верстах от него. Впоследствии, когда Луза завоевана была евреями, она по соседству с местом этого Богоявления переименована была ими в Вефиль (Быт. 35:9). (Епископ Виссарион (Нечаев))
 
@@ -5031,6 +5039,16 @@ Anyway, Esau was going to take what was not his. Jacob's deceit restored justice
 28:20: **If God be with me**. The conditional nature of Jacob’s vow reveals that he is still ambivalent regarding his commitment to the Lord. Although God reveals himself to Jacob at Bethel, it will require a further personal encounter before Jacob fully trusts in the Lord (see 32:22–32, Jacob Wrestles with God). (ESV)
 
 28:20: **If God.** If Jacob is ready to believe God's word, it will be credited to him as righteousness. Just trusting God at His word.
+
+28:20: **если Бог будет со мною**. Так как Господь сказал: Я с тобою и сохраню тебя на пути, в который идешь, то поэтому и он говорит: если сделаешь мне то, что обещал.  (Свт. Иоанн Златоуст)
+
+28:20: **И даст мне хлеб есть и одежду одеться**. Так ограниченны и всегда одинаковы желания праведных. И прежде пришествия Господа они молились молитвою Господнею: хлеб наш насущный дай нам на сей день (Мф. 6:11). (Свт. Филарет (Дроздов))
+
+28:20-22: **И положил Иаков обет**. У раввинов образцом или нормой всех обетов считались три элемента:
+1) внутреннее и искреннее признание Всевышнего своим Богом, с посвящением себя самого на служение Ему;
+2) особое посвящение и почитание места видения; и
+3) обещание Богу десятины из всего.
+(Лопухин А.П.)
 
 28:22: **this stone … shall be God’s house**. Jacob promises that he will construct a sanctuary for God, the consecrated stone being the first part of the process. (ESV)
 
