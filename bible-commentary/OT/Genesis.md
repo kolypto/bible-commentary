@@ -5086,7 +5086,7 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:6: **Rachel**. Rachel means “ewe,” an appropriate name for a shepherdess (ESV)
 
-29:7: **go, pasture them**. Isn't it strange, Jacob giving advice to shepherds that don't even know him? 
+29:7: **go, pasture them**. Isn't it strange, Jacob giving advice to shepherds that don't even know him? It appears that Jacob was trying to get these men to water their sheep immediately and leave -- so he could be alone with Rachel for the meeting. (MacArthur)
 
 29:10: **Jacob rolled the stone**. Jacob demonstrates extraordinary strength in being able to move the stone. (ESV)
 
@@ -5094,11 +5094,11 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:11: **Jacob kissed Rachel**. Probably as an act of family affection rather than of romance (cf. v. 13). (ESV)
 
-29:11: **wept aloud**. Perhaps, he wept because he recognized God's providence in this situation?
+29:11: **wept aloud**. He wept because it seemed like the quest is completed.
 
-29:13: **he ran**. Tells us about the strong feelings they had about this family reunion.
+29:13: **Laban .. ran**. Tells us about the strong feelings they had about this family reunion.
 
-29:15: **serve me**. Jacob did not just enjoy his time with Laban, but labored with him.
+29:14: **you are my bone and my flesh!**. Kind words sound while Laban likes him. In the course of 7 years, however, something has changed in his attitude, and he was able to deceive someone of his own kin.
 
 29:18: **I will serve you**. In the ancient Near East it was customary for a prospective husband to give the bride’s father a substantial gift of money, known as the bride-price. Jacob indicates that he is prepared to work for Laban in order to give the equivalent of seven years’ wages for Rachel. (ESV)
 
@@ -5110,8 +5110,10 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:23: **Took Leah**. Darkness in a world without artificial lighting can be pitch-black. At this stage, Jacob did not realize that Leah was the bride. She may also have come to him wearing a veil, the sign of a betrothed woman. (ESV)
 
+29:23: **Took Leah**. The deception was possible because of the custom of veiling the bride and the dark of the night. (MacArthur)
+
 29:23: **Лия**. Иаков оказался в ситуации, когда работал семь лет чтобы жениться на любимой женщине, а в итоге оказался обманом женат на другой. При этом он в состоянии примака: когда у тебя ничего нет, и тебя кормит твой дядя. Каково это вообще мужчине жить в такой ситуации?
-А всё почему? Потому что они с мамой решили помочь Богу исполнить Его обетование, которое и так было дано. А правда: вдруг Бог не справится, и обетование не исполнится; ужас-то какой, только подумайте! (МЦЦ)
+А всё почему? Потому что они с мамой решили помочь Богу исполнить Его обетование, которое и так было дано. А правда: вдруг Бог не справится, и обетование не исполнится; надо помогать! (МЦЦ)
 
 29:25: **It was Leah**. How come Jacob didn't notice the substitution? He must have known Rachel well enough to recognize. Probably, either Jacob was drunk, or Leah didn't talk at all. Perhaps, Laban made sure that Jacob drank too much, or he instructed Leah to keep quiet. Or perhaps, Leah had herself put her eye on Jacob? It's not clear.
 
@@ -5123,7 +5125,13 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:27: **Complete the week of this one**. The wedding celebrations lasted for seven days. Laban persuades Jacob to complete this process with Leah on the understanding that he will then be able to marry Rachel. This would also give ample opportunity for Leah to conceive a child. (ESV)
 
+29:28: **gave him Rachel to be his wife**. Imagine how Rachel felt when on her own marriage she was cast aside, and her own sister slept with her husband for a whole week! And mode than that, her own sister would be his second wife!
+
+29:28: **Rachel as wife also**. Such consanguinity was not God's will (Gen 2:24: "one flesh"), and the Mosaic code later forbade it (Lev 18:18: "you shall not take a woman as a rival wife to her sister"). Polygamy always brought grief, as in the life of Jacob. (MacArthur)
+
 29:30: **served Laban for another seven years.** The implication is that Jacob served 14 years without earning any possessions for himself or his family.
+
+29:31: **the Lord**. Since the beginning of this chapter, God is never mentioned. This is, perhaps, intentional, to indicate that Jacob does not pray, does not ask, and does not receive guidance. Instead, he is taught a lesson.
 
 
 
@@ -5152,25 +5160,36 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:31: **Leah was hated**. Undoubtedly, he found it difficult to love Leah, given the events that had brought them together, and Rachel probably also loathed her sister for the same reason. Yet their treatment of Leah causes the Lord to favor her over Rachel. While Leah is able to have children, Rachel is barren. (ESV)
 
+29:31: **Leah was unloved**. Leah prayed abou ther husband's rejection (v. 33) and had been troubled by it, as seen in the names given to her first four sons. (MacArthur)
+
 29:31: **opened her womb**. As Genesis frequently highlights, the Lord is ultimately the One who creates human life. (ESV)
 
 29:31: **opened her womb**. Despite Jacob having slept with her already at the wedding, and despite the seven days of the wedding, Leah did not bear any children for Jacob.
 
-29:31: **saw that Leah was hated**. Even though she was given to Jacob by deception, Jacob was supposed to treat her nicely and take care of her. **Hated** probably doesn't merely mean the lack of tender love, but some more serious negligence that led to serious sorrow. God has heard her cry.
+29:31: **saw that Leah was hated**. Even though she was given to Jacob by deception, Jacob was supposed to treat her nicely and take care of her. "Hated" probably doesn't merely mean the lack of tender love, but some more serious negligence that led to serious sorrow. God has heard her cry.
 
 29:31: **But Rachel was barren**. A woe to the family and grief to the loving husband.
 
-29:32: **Because the LORD has looked upon my affliction**. Leah attributes her pregnancy to God, which means that 1) she was a God-fearing woman, and 2) she has been praying. She complained to the Lord concerning the mistreatment by her husband, his lack of love, and the suffering (**affliction**) she was in. God always hears the cry of the oppressed.
+29:32: **Because the LORD has looked upon my affliction**. Leah attributes her pregnancy to God, which means that 1) she was a God-fearing woman, and 2) she has been praying. She complained to the Lord concerning the mistreatment by her husband, his lack of love, and the suffering ("affliction") she was in. God always hears the cry of the oppressed.
 
 29:32: **for now my husband will love me**. A desperate hope for an unloved woman.
 
-29:32: **for now my husband will love me**. Jacob did not choose her, he did not love her, and caused her great suffering, but he still slept with her as her husband.
+29:32: **for now my husband will love me**. Jacob did not choose her, he did not love her, and caused her great suffering, but he still slept with her as her husband. He probably thought, "why not"; or "I am obliged to".
 
 29:34: **because I have borne him three sons**. While Leah, the unloved wife, was giving birth to the third son already, Rachel, the tenderly loved one, was unable to conceive. It's easy to understand how much tension this fact has added to the family.
 
-29:34: **Левий**. Иаков по-прежнему не любит Лию. Рождение детей не исправило ситуацию. Однако как сказано? "Господь, видя, что она нелюбима". Он подарил ей детей, чтобы в них у неё было утешение. Она же воспринимает этот дар совсем иначе: она считает, что теперь её полюбит муж. (МЦЦ)
+29:34: **Левий**. Лия воспринимает этот дар так: "вот, теперь меня полюбит мой муж". Но Иаков по-прежнему не любит Лию. Рождение детей не исправило ситуацию. Однако как сказано? "Господь, видя, что она нелюбима". Он подарил ей детей, чтобы в них у неё было утешение. (МЦЦ)
 
-29:35: **На этот раз**. Только с четвёртым сыном она наконец поблагодарила господа Господа. До сих пор она пребывала в горечи, теперь же она начинает понимать, в чём её счастье. (МЦЦ)
+29:35: **На этот раз**. Только с четвёртым сыном она наконец поблагодарила Господа. До сих пор она пребывала в горечи, теперь же она начинает понимать, в чём её счастье. (МЦЦ)
+
+
+
+
+
+
+
+
+
 
 ## 30
 
