@@ -5082,11 +5082,17 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:1: **People of the east**. This is an unusual way of referring to the inhabitants of Paddan-aram in northwest Mesopotamia. In Genesis, however, the “east” is often associated with those who are expelled or move away from God’s presence (3:23–24: "sent him out from the garden of Eden"; 4:16: "Cain settled ... east of Eden"; 21:14: Abraham sent Hagar away; 25:6: Abraham sent the sons of his concubines away). This brief comment possibly signals that Jacob’s relatives do not worship the Lord. (ESV)
 
+29:2: **Над устьем колодезя был большой камень**. Сие делалось по причине скудости воды, для ее сбережения от действия солнца и от произвольного небрежного употребления жителей. (Лопухин А.П.)
+
+29:3: **Когда собирались туда все стада**. Колодезь был собственностью нескольких владельцев, и потому для открытия камня ожидали прибытия стад всех собственников. Лаван, вероятно, был один из оных, так как при прибытии Рахили колодезь немедленно открывается. (Лопухин А.П.)
+
 29:6: **Rachel**. Providentially, Laban’s daughter, Rachel, is spotted bringing her herd to the well. (ESV)
 
 29:6: **Rachel**. Rachel means “ewe,” an appropriate name for a shepherdess (ESV)
 
 29:7: **go, pasture them**. Isn't it strange, Jacob giving advice to shepherds that don't even know him? It appears that Jacob was trying to get these men to water their sheep immediately and leave -- so he could be alone with Rachel for the meeting. (MacArthur)
+
+29:9: **Рахиль .. пасла**. Это не было унизительным для нее, так как на древнем и новом (по Буркгардту) Востоке пастушество было и остается обычным занятием для незамужних дочерей даже знатных шейхов. (Лопухин А.П.)
 
 29:10: **Jacob rolled the stone**. Jacob demonstrates extraordinary strength in being able to move the stone. (ESV)
 
