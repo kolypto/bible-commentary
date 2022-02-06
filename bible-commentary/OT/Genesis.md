@@ -5091,6 +5091,7 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 29:6: **Rachel**. Rachel means “ewe,” an appropriate name for a shepherdess (ESV)
 
 29:7: **go, pasture them**. Isn't it strange, Jacob giving advice to shepherds that don't even know him? It appears that Jacob was trying to get these men to water their sheep immediately and leave -- so he could be alone with Rachel for the meeting. (MacArthur)
+29:7: **go, pasture them**. Isn't it strange, Jacob giving advice to shepherds that don't even know him? It appears that Jacob was trying to get these men to water their sheep immediately and leave -- so he could be alone with Rachel for the meeting. (MacArthur)
 
 29:9: **Рахиль .. пасла**. Это не было унизительным для нее, так как на древнем и новом (по Буркгардту) Востоке пастушество было и остается обычным занятием для незамужних дочерей даже знатных шейхов. (Лопухин А.П.)
 
@@ -5106,7 +5107,11 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:14: **you are my bone and my flesh!**. Kind words sound while Laban likes him. In the course of 7 years, however, something has changed in his attitude, and he was able to deceive someone of his own kin.
 
+29:15: **скажи мне, что заплатить тебе**. Здесь, под видом заботливости об интересах Иакова, Лаван справляется, не будет ли ему служба Иакова стоить слишком дорого. Не приравнивая Иакова к нанятым рабочим, Лаван, однако, не прочь эксплуатировать его рабочую силу и способности. (Лопухин А.П.)
+
 29:18: **I will serve you**. In the ancient Near East it was customary for a prospective husband to give the bride’s father a substantial gift of money, known as the bride-price. Jacob indicates that he is prepared to work for Laban in order to give the equivalent of seven years’ wages for Rachel. (ESV)
+
+29:18: **я буду служить тебе семь**. У древних брачные дары требовались не от невесты, но от жениха (Быт. 24:53: "И вынул раб серебряные вещи и золотые вещи и одежды и дал Ревекке; также и брату ее и матери ее дал богатые подарки"; Быт. 34:12: "назначьте самое большое вено и дары; я дам, что ни скажете мне, только отдайте мне девицу в жену"; 1 Цар. 18:23,25,27: "и сказал Саул: так скажите Давиду: царь не хочет вена, кроме ста краеобрезаний Филистимских"). Посему Иаков, не имея никакой собственности, предлагает Лавану труд свой вместо вена. Правда, он мог бы потребное получить из дома родительского; ибо, не касаясь даже первородства, имел право на третью часть наследия, но он лишал сам себя всего, дабы не питать вражды брата. (Свт. Филарет (Дроздов))
 
 29:20: **because of the love**. No doubt they spent a lot of time together.
 
@@ -5121,7 +5126,20 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 29:23: **Лия**. Иаков оказался в ситуации, когда работал семь лет чтобы жениться на любимой женщине, а в итоге оказался обманом женат на другой. При этом он в состоянии примака: когда у тебя ничего нет, и тебя кормит твой дядя. Каково это вообще мужчине жить в такой ситуации?
 А всё почему? Потому что они с мамой решили помочь Богу исполнить Его обетование, которое и так было дано. А правда: вдруг Бог не справится, и обетование не исполнится; надо помогать! (МЦЦ)
 
+29:23: **взял дочь свою Лию и ввёл её к нему**. (всех оправдывает Златоуст) Не оставим и этого без внимания. И отсюда многое можно узнать: во-первых, простосердечие Иакова, – как он, будучи чужд всякого лукавства, был обманут; во-вторых, как тогда все делалось с великим благоприличием: не было нигде ни плясок, ни светильников, ни другого какого-либо освещения сверх нужды, почему и совершился обман Лавана. Впрочем можно заметить здесь и любовь Лавана к Иакову, потому что он придумал это для, того, чтобы долее удержать при себе праведника. (Свт. Иоанн Златоуст)
+
+29:23: **взял дочь свою Лию и ввёл её к нему**. Самый подмен невесты был вполне возможен благодаря обычаю древнего и нового Востока — вводить новобрачную в брачный покой под покрывалом и притом во мраке. (Лопухин А.П.)
+
+29:23: **взял дочь свою Лию и ввёл её к нему**. Лаван же прибегнул к такой хитрости не только потому, что Лия была безобразна и за семь лет, пока Рахиль была невестой, не нашлось ей жениха, но и потому, что видел Божие благословение на имуществе своем во время Иаковлева пастырства. Потому замыслил сделать его пастырем на другие семь лет, чтобы и в другие семь лет умножилось достояние его, приобретенное им в первые семь лет, когда Иаков работал за отданную ему Лию.  (Прп. Ефрем Сирин)
+
 29:25: **It was Leah**. How come Jacob didn't notice the substitution? He must have known Rachel well enough to recognize. Probably, either Jacob was drunk, or Leah didn't talk at all. Perhaps, Laban made sure that Jacob drank too much, or he instructed Leah to keep quiet. Or perhaps, Leah had herself put her eye on Jacob? It's not clear.
+
+29:25: **Лия**. Думается мне, кто к Лие здесь могут быть некоторые претензии. Возможно, Лаван не спрашивал, хочет ли она участвовать в этом предприятии; хорошо, это понятно. Но если бы она действительно была против, она, будучи в спальне Иакова, хотя бы ему сказала: "Иаков, стой! Я не Рахиль! Я Лия! Отец нас подменил!". Тогда обман вскрылся бы, и Иаков выставил бы Лавана дураком перед всеми гостями.
+Но она так не сделала. Отсюда напрашивается вывод: либо ей нравился Иаков и она втайне завидовала Рахили, либо она подумала что это её последний шанс выйти замуж и согласно пошла на обман вместе со своим отцом.
+Если же попытаться её оправдать, то возможно, она была в шоковом состоянии от такого поворота и не могла остановить происходящее.
+А возможно, и то и другое: шок + ей нравился Иаков.
+
+29:25: **Утром же оказалось, что это Лия**. Так, по тайным судам Божиим, за хитрость воздается хитростью. (Свт. Филарет (Дроздов))
 
 29:25: **Why have you deceived me?**. Jacob is reaping what he had sown: deception. It has returned to him, because God is teaching him a lesson.
 
@@ -5129,11 +5147,17 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:26: **to give the younger before the firstborn**. Laban’s remarks are highly ironic in light of Jacob’s earlier deception of his father. (ESV)
 
+29:26: **так не делают, чтобы младшую выдать прежде старшей**. Если бы Лаван хотел истинно соблюсти порядок и принятый обычай, то должен был бы открыть свое намерение Иакову еще прежде условия о семи летах работы. Употребленная же им хитрость показывает, что он желал не столько воздать справедливость старшей дочери своей, сколько приобрести в зяте своем дешевого работника на другие семь лет. (Свт. Филарет (Дроздов))
+
 29:27: **Complete the week of this one**. The wedding celebrations lasted for seven days. Laban persuades Jacob to complete this process with Leah on the understanding that he will then be able to marry Rachel. This would also give ample opportunity for Leah to conceive a child. (ESV)
+
+29:28: **Иаков так и сделал**. Иаков был в необходимости повиноваться Лавану, у которого имел единственное прибежище. (Свт. Филарет (Дроздов))
 
 29:28: **gave him Rachel to be his wife**. Imagine how Rachel felt when on her own marriage she was cast aside, and her own sister slept with her husband for a whole week! And mode than that, her own sister would be his second wife!
 
 29:28: **Rachel as wife also**. Such consanguinity was not God's will (Gen 2:24: "one flesh"), and the Mosaic code later forbade it (Lev 18:18: "you shall not take a woman as a rival wife to her sister"). Polygamy always brought grief, as in the life of Jacob. (MacArthur)
+
+29:28: **И Лаван дал Рахиль, дочь свою, ему в жену**. Иаков, непосредственно после брачной недели Лии, женится на Рахили. ［Не через новые семь лет, а немедленно.］ (Лопухин А.П.)
 
 29:30: **served Laban for another seven years.** The implication is that Jacob served 14 years without earning any possessions for himself or his family.
 
@@ -5176,6 +5200,10 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 29:31: **But Rachel was barren**. A woe to the family and grief to the loving husband.
 
+29:31: **Рахиль была неплодна**. Рахиль невинна и получит детей в свое время, но прежде нужно было излечить Иакова от его страсти ［к женской красоте］. (Свт. Филарет (Дроздов))
+
+29:32: **Лия зачала и родила**. Если Лия была нелюбима, а Рахиль — любима, не очень понятно поведение Иакова: зачем он спал с нелюбимой женой, которую "подсунули" ему обманом?
+
 29:32: **Because the LORD has looked upon my affliction**. Leah attributes her pregnancy to God, which means that 1) she was a God-fearing woman, and 2) she has been praying. She complained to the Lord concerning the mistreatment by her husband, his lack of love, and the suffering ("affliction") she was in. God always hears the cry of the oppressed.
 
 29:32: **for now my husband will love me**. A desperate hope for an unloved woman.
@@ -5183,6 +5211,8 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 29:32: **for now my husband will love me**. Jacob did not choose her, he did not love her, and caused her great suffering, but he still slept with her as her husband. He probably thought, "why not"; or "I am obliged to".
 
 29:34: **because I have borne him three sons**. While Leah, the unloved wife, was giving birth to the third son already, Rachel, the tenderly loved one, was unable to conceive. It's easy to understand how much tension this fact has added to the family.
+
+29:34: **теперь -то прилепится ко мне муж мой, ибо я родила ему трех сынов**. После рождения первого сына Иаков мог бы увидеть, как больно от этого Рахили, и перестать спать с Лией, но он продолжал к ней заходить. После рождения второго сына — тем более: шёл уже второй год. Возможно, их общение становилось более частым или нежным. Наверняка это давало Лие надежду, что они с Иаковом будут становиться ближе благодаря рождающимся детям.
 
 29:34: **Левий**. Лия воспринимает этот дар так: "вот, теперь меня полюбит мой муж". Но Иаков по-прежнему не любит Лию. Рождение детей не исправило ситуацию. Однако как сказано? "Господь, видя, что она нелюбима". Он подарил ей детей, чтобы в них у неё было утешение. (МЦЦ)
 
