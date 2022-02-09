@@ -5231,14 +5231,15 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 30:1,2: **Envied her sister** ... **Jacob's anger was kindled**. There was plenty of bitterness in the family.
 
+30:1: **or else I die!**. A childless woman in ancient Near Eastern culture was no better than a dead wife and became a severe embarrassment to her husband. (MacArthur)
+
 30:1: **Рахиль позавидовала своей сестре**. Обе сестры пребывают в постоянном огорчении: Лия нелюбима мужем, Рахиль не имеет детей, и ни одна из них не имеет благодарности к Богу за то что у неё есть. Рахиль недовольна и огорчена из-за радости своей сестры. (МЦЦ)
 
-30:2: While recognizing God’s role in this situation, however, Jacob does not pray for Rachel, as his father Isaac had done for Rebekah. (ESV)
+30:2: **Am I in the place of God?**. While recognizing God’s role in this situation, however, Jacob does not pray for Rachel, as his father Isaac had done for Rebekah. (ESV)
 
 30:3: **Here is my servant**. This practice, which was also carried out by Abraham and Sarah (see 16:1–4), was part of ancient Near Eastern culture. (E.g., the Nuzi texts from the 15th century B.C. treat the concept of marriage, and many of these texts deal with the issue of childlessness and provisions for new wives.) Children born to the substitute, or second, wife were regarded as belonging to the main, or first, wife. In this way, continuity of the family line was preserved. (ESV)
 
-30:3: **Bilhah; go in to her**. Many questions arise. What Bilnah felt about it? Was she even asked? What did Leah feel about such a decision? Was she even asked? 
-Perhaps, it was normal in the ancient Near East? Then we can't read our modern-day views into it.
+30:3: **Bilhah; go in to her**. If it was normal in the ancient Near East, then we can't read our modern-day views into it.
 
 30:3: **Вот Валла**. Какое же это помутнение рассудка из-за зависти! Ты любишь своего мужа, ты ревнуешь его к своей сестре, и толкаешь его к вообще другой женщине. (МЦЦ)
 
@@ -5254,6 +5255,8 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:14: **Mandrakes**. Because mandrakes contain deliriant hallucinogenic tropane alkaloids and the shape of their roots often resembles human figures, they have been associated with a variety of superstitious practices throughout history. They have long been used in magic rituals, today also in contemporary pagan traditions. ([Wiki](https://en.wikipedia.org/wiki/Mandrake))
 
+30:14; **mandrakes**. These were superstitiously viewed in the ancient world as "love apples", an aphrodisiac or fertility narcotic. This odd and desperate bargain by Rachel was an attempt to become pregnant with the aid of the mandrakes: a folk remedy which failed to understand that God gives children. (MacArthur)
+
 30:14: **Мандрагоры**. Мандрагоры: здесь обе девушки демонстрируют языческое мышление: попытки манипулировать реальностью с помощью волшебных средств. Похоже, это сказывается воспитание Лавана: установка, которая диктует поведение.
 Лия и Рахиль едва ли восприняли веру мужа. Они всегда охотятся за удачей: мандрагоры, идолы отца, вражда друг с другом, служанки отданные мужу, имена детей связанные с удачей. (МЦЦ)
 
@@ -5261,9 +5264,9 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:15: **Taken away my husband**. This is not true. Leah intervened into their relationship, not Rachel.
 
-30:15: **Rachel said**. Not *Leah asked*, but *Rachel said*. Rachel knew that Leah missed Jacob. Even being his wife, she didn't get any love or affection.
+30:15: **Rachel said**. Leah did not ask, but Rachel knew that Leah missed Jacob. Even being his wife, she didn't get any love or affection.
 
-30:15: **Then he may lie with you tonight**. Sounds like insanity. How in the world could **mandrakes** matter so much? And anyway, how could a woman willingly let her husband lie with another?
+30:15: **Then he may lie with you tonight**. Sounds like insanity. How in the world could mandrakes matter so much? And anyway, how could a woman willingly let her husband lie with another?
 
 30:15: **In exchange for your son's mandrakes**. Probably, a rare find.
 
@@ -5277,7 +5280,7 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:17: **God listened to Leah**. Leah prayed, and wanted to have more children.
 
-30:18: **because I gave my servant to my husband**. She saw this as an act of sacrifice!
+30:18: **because I gave my servant to my husband**. Leah saw this as an act of sacrifice!
 
 30:18: **Бог воздал**. Оказывается, Лия страдала по поводу того, что она подложила мужу свою служанку. Кстати, Рахиль не сожалеет о том , что подложила служанку. (МЦЦ)
 
@@ -5285,9 +5288,13 @@ Perhaps, it was normal in the ancient Near East? Then we can't read our modern-d
 
 30:20: **шестерых сыновей**. Детей служанки она даже не считает. (МЦЦ)
 
+30:21: **Dinah**. Although not the only daughter to be born to Jacob (37:35: "all his sons and all his daughters rose up to comfort him"), her name is mentioned in anticipation of the tragedy at Schechem. (MacArthur)
+
 30:22: **God remembered Rachel**. She has been bitter so far. Even the names of her servant's sons ("judge", "wrestle") tells us about her feelings.
 
 30:22: **God remembered Rachel**. After many years of waiting, Rachel eventually bears Jacob a son.  (ESV)
+
+30:22: **God remembered Rachel**. After 7 years of desperate waiting and pleading, Rachel properly ascribed her delivery from barrenness to the Lord. (MacArthur)
 
 30:23: **My reproach**. Since throughout Genesis fertility is often associated with divine blessing, a woman’s inability to bear children could be interpreted as reflecting divine disapproval. Given the resentment that existed between the sisters, Leah may well have taunted Rachel over her inability to bear children. (ESV)
 
@@ -5322,8 +5329,6 @@ From Rachel: **Joseph**: "take away".
 
 
 ### Jacob's Prosperity
-30:25: **As soon as Rachel had borne Joseph**. That would be 14 years into their marriage, because this is how much Jacob had agreed to serve. Interesting coincidence? well... unless Jacob is trying to leave sooner than it was agreed.
-
 30:27: **learned by divination**. Laban had *household gods* (Gen 31:19), so this divination was a pagan practice. He probably perceived that "The Lord" was one of the many deities. 
 
 30:27: **learned by divination**. The Israelites were later prohibited by God from practicing divination (Dt 18:10) because it sought to provide knowledge by inappropriate methods (e.g., interpreting omens, using supernatural powers). Laban’s use of divination is sinful, even though the information obtained is accurate. (ESV)
@@ -5332,19 +5337,21 @@ From Rachel: **Joseph**: "take away".
 
 30:27: **The Lord has blessed me because of you**. In Genesis, all the members of the special line descended from Abraham are portrayed as mediating God’s blessing to others. (ESV)
 
-30:28: **Name your wages, and I will give it**. Laban's initial readiness is actually completely hypocritical. Laban is actually reluctant to lose Jacob’s service, which has brought him considerable wealth. Read on.
+30:28: **Name your wages, and I will give it**. Laban's initial readiness is completely hypocritical. Laban is actually reluctant to lose Jacob’s service, which has brought him considerable wealth. He wants Jacob to stay and keep working for him — so that his own wealth continues to increase because of the blessing Jacob has.
+
+30:28: **Name your wages**. Laban's generosity should not be mistaken for genuine goodness: he was attempting to deceive Jacob into staying because it was potentially profitable for him. So Laban asked what it would take for him to stay. (MacArthur)
 
 30:28: **Name your wages**. Later we learn that Laban was a very stingy person who cheated Jacob and mistreated his own daughters not only when giving them away in marriage, but also afterwards (Gen 31:15: "he has sold us and he has indeed devoured our money").
 
-30:28: **Name your wages**. For 14 years Jacob has served Laban in order to pay the bride-price for Leah and Rachel. Having fulfilled this obligation, which has financially benefited Laban well beyond what he might have expected, Jacob now wants to provide for his own household. Laban, conscious of how Jacob has enriched him and eager to retain his services, asks Jacob to name his wages for remaining with him. (ESV)
+30:30: **For my own household**. Jacob had agreed *to serve*, which means that every labor of his, and all the fruit, were Laban's. It has increased abundantly, and even though it did not belong to Jacob, he worked faithfully to multiply the possessions of another, without envying, or asking anything for himself. Must have been a great lesson for him.
 
-30:30: **For my own household**. Jacob had agreed *to serve*, which means that every labor of his, and all the fruit, were Laban's. It **has increased abundantly**, and even though it did not belong to Jacob, he worked faithfully to multiply the possessions of another, without envying, or asking anything for himself. Must have been a great lesson for him.
+30:31: **you shall not give me anything**. Jacob wanted nothing, except to be in a position for God to bless him. He was willing to stay, but not to be further indebted to Laban. He offered Laban a plan that would bless him while costing Laban nothing: the pay would consist of animals not yet born and those which would seem the less desirable to Laban because of their markings and color. Evidently, few of the existing animals were in that category. Laban agreed because it seemed unlikely to him that such abnormally marked animals would occur in any significant volume from the normally colored. Jacob, by this, put himself entirely in God's hands: only the Lord could determine what animals would be Jacob's. (MacArthur)
 
 30:32: **speckled and spotted sheep**. Jacob was probably convinced that Laban was stingy and would not want to share. His actions in v. 35 confirm that. So Jacob's request seems very modest at first: a few speckled animals. That's something that Laban would easily agree to.
 
 30:32: **speckled and spotted sheep**. How in the world did he devise this highly unusual plan?
 
-30:33: **my honesty** ... **shall be counted stolen**. Such measures are never devised without a good reason. After 14 years, Jacob knows Laban very well, and he likely anticipated that Laban would try to argue for a lesser share.
+30:33: **my honesty .. shall be counted stolen**. Such measures are never devised without a good reason. After 14 years, Jacob knows Laban very well, and he likely anticipated that Laban would try to argue for a lesser share.
 
 30:37: **Jacob took**. Where does this odd breeding program come from? In Gen 31:10, Jacob confesses that it was a dream in which God has revealed a plan to him. Jacob was given advance knowledge of which animals would be born due to which animals were breeding. 
 
@@ -5359,7 +5366,7 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 
 30:43: **The man increased greatly**. After working for 14 years for his two wives, Jacob would now work 6 years for himself (Gen 31:41: "twenty years"). From Jacob's speech in Gen 31:36-42 we learn that he's worked faithfully, suffered loss, suffered injustice from the hands of Laban, had his wages cut, and still worked faithfully. A blameless person he's been made into.
 
-30:43: **Female servants and male servants**. It's unclear where those servants came from. When Jacob arrived to Paddan-Aram, he only had his staff with him (Gen 32:10: "with only my staff I crossed this Jordan"; staff = walking stick). Was he given more servants? Were they born to Bilnah and Zilpah?
+30:43: **Female servants and male servants**. It's unclear where those servants came from. When Jacob arrived to Paddan-Aram, he only had his staff with him (Gen 32:10: "with only my staff I crossed this Jordan"). Was he given more servants? Were they born to Bilnah and Zilpah?
 
 
 
