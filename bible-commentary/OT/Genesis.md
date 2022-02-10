@@ -5235,7 +5235,11 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 30:1: **Рахиль позавидовала своей сестре**. Обе сестры пребывают в постоянном огорчении: Лия нелюбима мужем, Рахиль не имеет детей, и ни одна из них не имеет благодарности к Богу за то что у неё есть. Рахиль недовольна и огорчена из-за радости своей сестры. (МЦЦ)
 
+30:1: **дай мне детей, а если не так, я умираю**. Ужасное зло – ревность! Она впадает даже в безумие, как испытала это и Рахиль. Смотря на кучу детей у сестры, и думая о своем одиночестве. Рахиль не выносила этого позора, не могла удержать смущавших ее помыслов – и произносит полные безумия слова.  (Свт. Иоанн Златоуст)
+
 30:2: **Am I in the place of God?**. While recognizing God’s role in this situation, however, Jacob does not pray for Rachel, as his father Isaac had done for Rebekah. (ESV)
+
+30:2: **Бог, Который не дал тебе плода чрева**. Евреи замечают, что Бог хранит три ключа, которых не предаст ни Ангелу, ниже Серафиму: а) жизни или рождения (1 Цар. 2:5-6: "даже бесплодная рождает семь раз, а многочадная изнемогает, Господь умерщвляет и оживляет, низводит в преисподнюю и возводит"; Пс. 112:9: "вселяя неплодовь в дом, матерь о чадех веселящуся."; Пс. 126:3: "Се, достояние Господне сынове, мзда плода чревняго"), б) дождя или плодородия (Втор. 28:12: "Откроет тебе Господь добрую сокровищницу Свою, небо, чтоб оно давало дождь земле твоей во время свое, и чтобы благословлять все дела рук твоих") и в) гроба или воскресения (Иез. 37:12-13: "так говорит Господь Бог: вот, Я открою гробы ваши и выведу вас, народ Мой, из гробов ваших и введу вас в землю Израилеву"). Некоторые присовокупляют четвертый ключ питания (Пс. 144:15-16: "Очи всех на тя уповают, и ты даеши им пищу во благовремении"). Учение благоговейное и утешительное, которое полагает в руке самого Бога и начала, и продолжение, и совершение бытия человеческого. (Свт. Филарет (Дроздов))
 
 30:3: **Here is my servant**. This practice, which was also carried out by Abraham and Sarah (see 16:1–4), was part of ancient Near Eastern culture. (E.g., the Nuzi texts from the 15th century B.C. treat the concept of marriage, and many of these texts deal with the issue of childlessness and provisions for new wives.) Children born to the substitute, or second, wife were regarded as belonging to the main, or first, wife. In this way, continuity of the family line was preserved. (ESV)
 
@@ -5253,6 +5257,8 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 30:13: **Асир**. Асир это имя ещё одного языческого божества: богини Астарта (Ашера), покровительница женщин, счастья, плодовитости. Уже второй сын получает такое имя. Едва ли Рахиль восприняла веру своего мужа. (МЦЦ)
 
+30:14: **Рувим**. Рувим был в это время, вероятно, лет 5 от роду. (Лопухин А.П.)
+
 30:14: **Mandrakes**. Because mandrakes contain deliriant hallucinogenic tropane alkaloids and the shape of their roots often resembles human figures, they have been associated with a variety of superstitious practices throughout history. They have long been used in magic rituals, today also in contemporary pagan traditions. ([Wiki](https://en.wikipedia.org/wiki/Mandrake))
 
 30:14; **mandrakes**. These were superstitiously viewed in the ancient world as "love apples", an aphrodisiac or fertility narcotic. This odd and desperate bargain by Rachel was an attempt to become pregnant with the aid of the mandrakes: a folk remedy which failed to understand that God gives children. (MacArthur)
@@ -5260,13 +5266,21 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 30:14: **Мандрагоры**. Мандрагоры: здесь обе девушки демонстрируют языческое мышление: попытки манипулировать реальностью с помощью волшебных средств. Похоже, это сказывается воспитание Лавана: установка, которая диктует поведение.
 Лия и Рахиль едва ли восприняли веру мужа. Они всегда охотятся за удачей: мандрагоры, идолы отца, вражда друг с другом, служанки отданные мужу, имена детей связанные с удачей. (МЦЦ)
 
+30:14: **дай мне мандрагоров сына твоего**. Достойно замечания мнение Аристотеля, что мандрагора способствует к плодородию женщин. (Свт. Филарет (Дроздов))
+
+30:14: **дай мне мандрагоров сына твоего**. На крепком стволе этого растения появляются зеленовато-белые лепестки цветов, служащие предвестием весне (Песн. 7:14: "Мандрагоры уже пустили благовоние, и у дверей наших всякие превосходные плоды"), из которых к маю созревают небольшие яблочки красно-желтого цвета, с сильным наркотическим, хотя и приятным запахом. Вера в таинственное отношение этого растения (по строю своему напоминающего человека) побуждала и в древности, и в средние века приготовлять из него напиток любви. По-видимому, в Месопотамии мандрагоры были редки, и страстная Рахиль, не утратившая еще надежды иметь собственных детей, прибегает к предполагаемой магической силе мандрагоров. В условии о последних достигает наивысшей степени борьба Лии и Рахили. (Лопухин А.П.)
+
 30:15: **Taken away my husband**. When such a small thing becomes an issue, this tells that there was constant hostility and old bitterness. Even a small spark brings everything up.
 
 30:15: **Taken away my husband**. This is not true. Leah intervened into their relationship, not Rachel.
 
+30:15: **неужели мало тебе завладеть мужем моим, что ты домогаешься и мандрагоров сына моего?**. Видишь ли как ясно она обнаруживает этими словами душевную страсть?  (Свт. Иоанн Златоуст)
+
 30:15: **Rachel said**. Leah did not ask, but Rachel knew that Leah missed Jacob. Even being his wife, she didn't get any love or affection.
 
 30:15: **Then he may lie with you tonight**. Sounds like insanity. How in the world could mandrakes matter so much? And anyway, how could a woman willingly let her husband lie with another?
+
+30:15: **Рахиль сказала: так пусть он ляжет с тобою эту ночь**. Как из ее упрека, так из ответа Рахили видно, что Рахиль всецело завладела Иаковом. Ранее она назвала сына "превозмогла". Так что только с разрешения Рахили Лия получает супружеское общение с Иаковом. (Лопухин А.П.)
 
 30:15: **In exchange for your son's mandrakes**. Probably, a rare find.
 
@@ -5282,6 +5296,10 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 
 30:18: **because I gave my servant to my husband**. Leah saw this as an act of sacrifice!
 
+30:18: **Бог дал возмездие мне за то, что я отдала служанку мою мужу моему**. По воззрениям того времени, она считает этот поступок достойным похвалы. Лия выражает идею возмездия, платы, указывая, с одной стороны, на самоотречение свое в отношении служанки, с другой, — на приобретение Иакова у Рахили платою мандрагоров. (Лопухин А.П.)
+
+30:18: **Бог дал возмездие мне за то, что я отдала служанку мою мужу моему**. То есть «за то, что я платою приобрела право на супруга, Бог заплатил мне сыном; и сия милость Божия тем очевиднее, что я, не надеясь более рождать, уже отдала мужу моему служанку мою, чтобы умножить детей и чрез нее». (Свт. Филарет (Дроздов))
+
 30:18: **Бог воздал**. Оказывается, Лия страдала по поводу того, что она подложила мужу свою служанку. Кстати, Рахиль не сожалеет о том , что подложила служанку. (МЦЦ)
 
 30:20: **чтить**. В Лии что-то меняется. Она больше не мечтает уже о том ,что станет любимой, но она уже надеется хотя бы на то, что он будет её чтить. Кстати, Иакова воля была, чтобы похоронить его именно с ней. (МЦЦ)
@@ -5295,6 +5313,8 @@ In that episode, Rebekah waters the camels; in this episode, Jacob waters the sh
 30:22: **God remembered Rachel**. After many years of waiting, Rachel eventually bears Jacob a son.  (ESV)
 
 30:22: **God remembered Rachel**. After 7 years of desperate waiting and pleading, Rachel properly ascribed her delivery from barrenness to the Lord. (MacArthur)
+
+30:22: **И вспомнил Бог о Рахили**. «Вспомнил Бог» — на библейском языке значит: послал милость после испытания. (Лопухин А.П.)
 
 30:23: **My reproach**. Since throughout Genesis fertility is often associated with divine blessing, a woman’s inability to bear children could be interpreted as reflecting divine disapproval. Given the resentment that existed between the sisters, Leah may well have taunted Rachel over her inability to bear children. (ESV)
 
