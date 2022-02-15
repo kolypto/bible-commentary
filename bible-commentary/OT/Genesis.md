@@ -5443,24 +5443,35 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 ### Jacob Flees from Laban
 31:1-2: **Jacob has taken all**, **Laban did not regard him with favor**. Jacob’s growing wealth becomes a source of friction within Laban’s family. Even Laban’s own attitude toward Jacob changes. (ESV)
 
-31:1: **The sons**. Laban had other children, and they started to slander Jacob that **he has taken** something from their father; consequently, from them. What was it? The spotted cattle? But Jacob foresaw that when he made the agreement. Probably, he knew the family too well after all these years.
+31:1: **The sons**. Laban had other children, and they started to slander Jacob that "he has taken" something from their father, i.e. from them. Exactly what has Jacob taken? The spotted cattle? This slander is ungrounded: Laban had removed all spotted cattle and put it in charge of his sons. They have no right nor reason for anger.
+
+31:1: **The sons**. Of materialistic bent and envious at Jacob's success, Laban's sons grumbled at what they saw as the depleting of their father's assets, thus hurting their own inheritance. Profiting from God's blessing through Jacob (30:27: "the Lord has blessed me because of you") was one thing, but seeing only Jacob blessed was quite another matter and elicited no praise or gratitude to God from Laban. (MacArthur)
 
 32:2: **Laban did not regard him with favor**. As soon as Jacob ceased working to multiply Laban's possessions, his attitude changed. Laban understood that he had been only *blessed because of Jacob* (Gen 31:27), but still this understanding didn't stop the heart from evil. He was envious.
 
 31:3: **The Lord said**. It's unclear whether Jacob communed with God during all those years, because it's not mentioned. God, however, blessed Laban because of him.
 
+31:3: **return to the land**. So, after another six years, it was time to go (vv. 38: "these twenty years"). (MacArthur)
+
 31:3: **I will be with you**. This is a great promise of divine blessing and protection. 
-Jacob could have had his doubts because of a) Laban, b) the multitude of cattle, c) his wives and children, d) the long journey, e) he's lived here for 20 years (Gen 31:41: "twenty years")! But after hearing  Jacob could just pack up and leave on a long journey home. No more doubts.
+Jacob could have had his doubts because of a) Laban, b) the multitude of cattle, c) his wives and children, d) the long journey, e) he's lived here for 20 years (Gen 31:41: "twenty years")! But after hearing from God, Jacob could just pack up and leave on a long journey home. No more doubts. God has it covered.
 
-31:5: **God has been with me**. In saying this, Jacob acknowledges that the events of his life depended on God all these years. Probably, he's learned a number of lessons, including humility -- when seeing that Laban's household is blessed, and then he saw how God has suddenly made him prosperous.
+31:4: **called .. to the field**. In the privacy of the open field, Jacob'd plans could be confidentially shared with his wives. (MacArthur)
 
-31:6: **I have served your father with all my strength**. That's one of the lessons he's learned. 20 years ago (Gen 31:41: "twenty years") he used to take advantage of people; now he learned to serve faithfully. Must've been a hard lesson; how did he learn it?
+31:5: **God has been with me**. In saying this, Jacob acknowledges that the events of his life depended on God all these years. Probably, he's learned a number of lessons, including humility.
+
+31:6: **I have served your father with all my strength**. That's one of the lessons he's learned. 20 years ago (Gen 31:41: "twenty years") he used to take advantage of people; now he learned to serve faithfully. Must've been a hard lesson.
 
 31:7: **Your father has cheated me**. Jacob got back what he sowed: he can now experience cheating first hand, and probably learn another lesson: how it feels like when you're cheated.
 
+31:7: **changed my wages ten times**. This is the untold part of the story. Laban saw that Jacob's flock increases, and so he changed the agreement: "ok, from now on, only spotted flock are your wages". And miraculously, the flock bore spotted. Laban couldn't take it, and said: "from now on, only striped be your wages" — and miraculously, the flock bore striped. And then again. And again. Ten times.
+God did not let Laban cheat Jacob. He had told Jacob in a dream that it will be so, and it was so.
+
+31:7: **God did not permit him to harm me**. Laban's changes intended to cripple Jacob's enterprise, but God had intervened by blocking the intended harm and overriding the wage changes with great prosperity. (MacArthur)
+
 31:8: **If he said**. Jacob explains that if it is God's plan for him to prosper, then whatever a person says or does, the plan will still be fulfilled regardless.
 
-31:9: **Given them to me**. How does it feel like to have almost nothing, working for a wealthy person for 14 years, see how his (not yours) possessions multiply, and still work faithfully for him to manage *his* economy... and then, after all these years, to discover that God actually meant to give it all to you from the very beginning? Wow.
+31:9: **Thus God taken away the livestock of your father and iven them to me**. How does it feel like to have almost nothing, working for a wealthy person for 14 years, see how his (not yours) possessions multiply, and still work faithfully for him to manage *his* economy... and then, after all these years, to discover that God actually meant to give it all to you from the very beginning? Wow.
 
 31:12: **For I have seen all that Laban is doing to you**. God, speaking through the angel, says the words He usually addresses to a person afflicted by others. God comes to right the wrong: to take the possessions from Laban and give it to Jacob.
 It seems that Laban still has a lot: all the white cattle is his, at least; and those spotted ones he has hidden.
@@ -5469,7 +5480,7 @@ It seems that Laban still has a lot: all the white cattle is his, at least; and 
 
 31:13: **You made a vow to me**. A reminder to fulfill his vows? A note that that time is right?
 
-31:14: **Rachel an Leah**. For once, they've agreed on something.
+31:14: **Rachel and Leah**. For once, they've agreed on something.
 
 31:14: **Is there any inheritance left in our father's house?**. They both are fed up with their stingy father as well.
 
@@ -5486,7 +5497,8 @@ It seems that Laban still has a lot: all the white cattle is his, at least; and 
 31:19: **His sheep**. This verse tells us that God has not taken *everything* from Laban, but only a portion. It's clear that Laban's bad attitude was based on envy, not on need.
 
 31:19: **Rachel stole her father's household gods.** Why? 
-a) She took them as an act of vengeance because she knew they mattered to Laban; b) because they were valuable, and she was frustrated over Laban robbing her of inheritance (v. 15);
+a) She took them as an act of vengeance because she knew they mattered to Laban;
+b) because they were valuable, and she was frustrated over Laban robbing her of inheritance (v. 15);
 c) perhaps she believed that this would prevent him from using their power to overcome Jacob (divination); 
 d) possibly she thought that they would bring her good fortune; but unlikely, because she worshipped the Lord.
 
@@ -5494,16 +5506,18 @@ d) possibly she thought that they would bring her good fortune; but unlikely, be
 
 31:19: **Household gods** (Hb. *terapim*) is mentioned frequently in the Bible, but knowledge of these objects is vague. Since in v. 30 Laban refers to them as "gods", they may have been small figurines depicting particular gods. (ESV) 
 
-31:20: **Not telling him that he intended to flee**. Such an act would definitely insult and outrage Laban. That's why it says in Hebrew, literally, "stole the heart of Laban".
+31:20: **Not telling him that he intended to flee**. Such an act would definitely insult and outrage Laban. That's why it says in Hebrew, literally, "stole the heart of Laban". (ESV)
 
 31:20: **Not telling him that he intended to flee**. Why didn't he tell Laban? Because after years of experiencing this person, Jacob knew he couldn't expect anything good from him. 
 See v. 31: "Because I was afraid that you would take your daughters from me". 
 
-31:19-20: **Rachel stole... Jacob stole**. Rachel stole Laban's gods, and Jacob stole his heart.
+31:19-20: **Rachel stole... Jacob stole**. Rachel stole Laban's gods, and Jacob stole his heart. (ESV)
 
-31:21: **Gilead**. That's several hundred kilometers south from Paddan-Aram.
+31:21: **Gilead**. That's several hundred kilometers south from Paddan-Aram. (ESV)
 
 31:22: **on the third day**. Jacob had chosen the time wisely: Laban has been *very* busy with his cattle. 
+
+31:23: **seven days' journey**. That it took so long for Laban’s band to catch up with a much larger group burdened with possessions and animals indicates a forced march was undertaken by Jacob’s people, probably motivated by Jacob’s fear. (MacArthur)
 
 31:23: **For seven days**. Laban had to travel 43% faster than Jacob to catch up with him in seven days! 
 > (3+7) * V₁ = 7 * V₂ ; V₂ = (10/7) * V₁ ; V₂ = 1.43 * V₁
@@ -5515,7 +5529,9 @@ It's likely that Jacob simply walked for 10 hours a day with his normal speed. H
 
 31:24: **God came to Laban**. To Laban the pagan. Laban may have not been a godly person, but he revered God's power at least.
 
-31:24: **Not to say anything**. A request that makes sense... until you here: **either bad** ... **or good**. Why would God not allow Laban to say good things? Perhaps, because until now every good thing he had said has proven to be dishonest hypocrisy? And God knew that Laban was unable to say a single good thing to Jacob from a sincere heart?
+31:24: **neither good nor bad**. Laban is cautioned not to use anything in the full range of options to alter the existing situation and bring Jacob back. (MacArthur)
+
+31:26: **my daughters like captives**. Laban evidently did not believe that his daughters could have possibly agreed with the departure and, thus, must have left under duress. (MacArthur)
 
 31:27: **with mirth and songs**. This is probably hypocrisy: on the outside, he would have made a nice party for his son-in-law; but on the inside, he would rather do him harm (v. 29).
 
@@ -5527,17 +5543,21 @@ It's likely that Jacob simply walked for 10 hours a day with his normal speed. H
 
 31:31: **Because I was afraid that you would take your daughters from me**. This is the truth why Jacob has set out without telling Laban.
 
-31:32: **Shall not live**. Hasty words. But Jacob was certain that there were not thieves in his camp.
+31:32: **shall not live**. Hasty words. But Jacob was certain that there were no thieves in his camp.
 
 31:32: **Point out**. In response to the accusation, Jacob invites Laban to search through the whole camp. And so he does: goes through every thing.
 
+31:35: **the way of women is upon me**. One dishonest deed needed further dishonesty to cover it up. (MacArthur)
+
 31:35: **He searched and did not find**. Rachel sitting on and concealing Laban’s “gods” emphasizes the total impotence of such idols. (ESV)
 
-31:35: **He searched and did not find**. Metaphorically speaking, Laban searched for a god, but found none.
+31:35: ⭐ **He searched and did not find**. Metaphorically speaking, Laban searched for a god, but found none.
 
 31:39: **I bore the loss**. All this demonstrates how faithful a servant Jacob has become.
 
-31:43: **All what you see is mine**. Here Laban finally shows his true attitude to things: he believed that everything belongs to him. That's a really high degree of greed.
+31:39: **I bore the loss .. from my hand you required it**. Jacob pastured Laban's flocks, not his own, yet Laban demanded every loss from Jacob. This is unfair, but it made Jacob into a humble and faithful person.
+
+31:43: **All what you see is mine**. Here Laban finally shows his true attitude to things: he believed that everything belongs to him, despite any agreements. That's a really high degree of greed.
 
 31:44: **Let's make a covenant**. Apparently, a gesture possibly intended to save face. (ESV)
 
