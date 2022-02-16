@@ -5449,12 +5449,16 @@ I presume that Jacob's putting the striped sticks in the water was in the same c
 
 32:2: **Laban did not regard him with favor**. As soon as Jacob ceased working to multiply Laban's possessions, his attitude changed. Laban understood that he had been only *blessed because of Jacob* (Gen 31:27), but still this understanding didn't stop the heart from evil. He was envious.
 
+32:2: **лице Лавана .. не таково к нему, как было вчера и третьего дня**. Заметь, как зависть доводит их до неблагодарности, да и не их только, но и самого Лавана. Человек благодаривший Господа за то, что с приходом праведника Он благоволил умножить его богатство, теперь, переменив под влиянием детей свои мысли, воспламенился завистию и, видя праведника в великом изобилии, не хотел более обращаться с ним по прежнему. (Свт. Иоанн Златоуст)
+
 31:3: **The Lord said**. It's unclear whether Jacob communed with God during all those years, because it's not mentioned. God, however, blessed Laban because of him.
 
 31:3: **return to the land**. So, after another six years, it was time to go (vv. 38: "these twenty years"). (MacArthur)
 
 31:3: **I will be with you**. This is a great promise of divine blessing and protection. 
 Jacob could have had his doubts because of a) Laban, b) the multitude of cattle, c) his wives and children, d) the long journey, e) he's lived here for 20 years (Gen 31:41: "twenty years")! But after hearing from God, Jacob could just pack up and leave on a long journey home. No more doubts. God has it covered.
+
+31:3: **Я буду с тобою**. Итак, возвращайся без всякого страха, потому что Я с тобою буду. Я, доселе благоустроявший жизнь твою и умноживший семя твое, Я и впредь буду с тобою. (Свт. Иоанн Златоуст)
 
 31:4: **called .. to the field**. In the privacy of the open field, Jacob'd plans could be confidentially shared with his wives. (MacArthur)
 
@@ -5473,10 +5477,16 @@ God did not let Laban cheat Jacob. He had told Jacob in a dream that it will be 
 
 31:9: **Thus God taken away the livestock of your father and iven them to me**. How does it feel like to have almost nothing, working for a wealthy person for 14 years, see how his (not yours) possessions multiply, and still work faithfully for him to manage *his* economy... and then, after all these years, to discover that God actually meant to give it all to you from the very beginning? Wow.
 
+31:9: **И отнял Бог скот у отца вашего и дал мне**. За шесть лет поголовье Иакова сильно увеличилось, потому что овцы плодятся дважды в год, а поголовье Лавана сильно уменьшилось, потому что овцы живут 10-12 лет, и за это время многие уже поумирали. Козы живут 15-18 лет, так что их поголовье, возможно, не так оскудело.
+
 31:12: **For I have seen all that Laban is doing to you**. God, speaking through the angel, says the words He usually addresses to a person afflicted by others. God comes to right the wrong: to take the possessions from Laban and give it to Jacob.
 It seems that Laban still has a lot: all the white cattle is his, at least; and those spotted ones he has hidden.
 
+31:12: **Я вижу все, что Лаван делает с тобою**. Господь, обнадежив Иакова, посредством видения, в Своем покровительстве, объявля­ет, что покровительствует ему по состраданию к нему, ибо видит несправедливость к нему Лавана, который ничем не вознаградил его за четырнадцатилетнюю работу. (Еп. Виссарион (Нечаев))
+
 31:13: **God of Bethel**. At Bethel, God had promised to be with Jacob (Gen 28:15: "Behold, I am with you and will keep you wherever you go, and will bring you back to this land."). Some 20 years later, Jacob acknowledges God’s faithfulness (v. 5: "God has been with me"). (ESV)
+
+31:13: **Я Бог явившийся тебе в Вефиле**. Напоминанием о вефильском памятнике и обете Господь хотел оживить и утвердить в Иакове ту преданность к Нему, во свидетельство которой поставлен был памятник и произнесен обет, – преданность, столь нужную Иакову всегда, особенно же в обратном путеше­ствии на родину. (Еп. Виссарион (Нечаев))
 
 31:13: **You made a vow to me**. A reminder to fulfill his vows? A note that that time is right?
 
@@ -5487,6 +5497,8 @@ It seems that Laban still has a lot: all the white cattle is his, at least; and 
 31:15: **Regarded as foreigners**. His own daughters.
 
 31:15: **Sold us, devoured our money**. Only now we see what Leah and Rachel thought about that strange wedding. They didn't like the actions of their father at all.
+
+31:15: **Цену нашу себе присвоил**. Цена, которой бы стоила четырнадцатилетняя работа Иакова, по условию, служа вместо вена, если не вся, то большею частою долженствовала быть обращена в пользу Лии и Рахили. (Свт. Филарет (Дроздов))
 
 31:16: **Whatever God has said to you, do**. When making tough decisions, it's very important to have support from your loved ones.
 
