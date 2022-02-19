@@ -5662,6 +5662,8 @@ Ancient Near Eastern treaties normally involved the gods as witnesses, the treat
 
 32:1: **Ангелы Божии**. Господь, желая ободрить праведника и рассеять всю его боязнь, даровал ему узреть полк ангелов. (Иоанн Златоуст)
 
+32:1: **встретили его Ангелы Божии**. В знамение того, что безоружный на земле ограждается небесными силами. (Свт. Филарет (Дроздов))
+
 32:1-2: **the angels of God met him**. Messengers of Elohim.
 
 32:1-2: **God's camp**. A vision of the very angels that have kept Jacob safe thus far.
@@ -5676,14 +5678,15 @@ Ancient Near Eastern treaties normally involved the gods as witnesses, the treat
 
 32:6: **Four hundred**. That's a lot. Genesis 14 recounts how Abraham, with a force of 318 men, successfully went to battle against four kings. (ESV)
 
-32:7: **Afraid and distressed**. Jacob had heard God say, "I will be with you" (Gen 31:3), and apparently was afraid that God's protection only covered the travel; not the meeting with the brother. 
-He didn't lose faith; otherwise, he would've turned around. No righteous one risks death of his whole family unless he's certain that won't happen.
+32:6: **четыре сотни**. Когда ты выходишь встречать дорогого друга, ты можешь взять с собой близких, друзей, и небольшую свиту. Но 400 человек — это армия, готовая к войне. Это страшно: либо брат совершенно не рад тебя видеть, либо он неверно растолковал твои слова о большом количестве слуг.
 
 32:7: **Two camps**. Perhaps, he drew the inspiration for such a wise action from the vision he'd seen of two camps? (v. 2)
 
-32:7: **Afraid and distressed. He divided.** Jacob’s actions, while understandable from a human perspective, reflect his inability to trust God fully for protection. (ESV)
+32:7: **afraid and distressed. He divided.** Jacob’s actions, while understandable from a human perspective, reflect his inability to trust God fully for protection. (ESV)
 
-32:9: **Said**. Prayed. In his distress, Jacob does several things. 
+32:7: **afraid and distressed**. Jacob had sought reconciliation with Esau, but the report of the returning envoys only confirmed his deepest suspicions that Esau's old threat against him had not abated over the years, and his coming with force signaled only disaster. (MacArthur)
+
+32:9: ⭐ **said**. Prayed. In his distress, Jacob does several things.
 First, he refused to turn around, or settle in another land, even though he had sufficient resources to do so. He's had God's commandment.
 Secondly, he does what he humanly could to improve the situation: *he divided the people*. 
 Thirdly, he prayed for God's help.
@@ -5702,7 +5705,7 @@ Thirdly, he prayed for God's help.
 
 32:13: **He stayed there that night**. Imagine how does it feel like to go to sleep, knowing that an army is marching to kill you and your family.
 
-32:13: **He took a present**. Jacob demonstrates a curious mix of prayer, where he asks God for help, and action, where he does what's possible. He didn't count on God doing everything for him; he's learned that God helps those who act, and who act righteously.
+32:13: **he took a present**. Jacob demonstrates a curious mix of prayer, where he asks God for help, and action, where he does what's possible. He didn't count on God doing everything for him; he's learned that God helps those who act, and who act righteously.
 
 32:18: **your servant Jacob … my lord Esau**. Jacob’s deferential attitude is noteworthy, given earlier statements about the older serving the younger (see 25:23) and Isaac’s blessing, which speaks of Jacob’s being lord over his brothers (27:29). (ESV)
 
@@ -5729,8 +5732,7 @@ Thirdly, he prayed for God's help.
 
 32:22-32: Jacob Encounters God at Peniel. This passage records a nighttime encounter between God and Jacob. Jacob is transformed by this extraordinary meeting, which is marked by the changing of his name from “Jacob” to “Israel.”. (ESV)
 
-32:22: **Wives, servants, children**. Jacob took his nearest and dearest people with him. 
-He also took "everything he had" (v. 23), but the author emphasizes his family members.
+32:22: **Wives, servants, children**. Jacob took his nearest and dearest people with him. He also took "everything he had" (v. 23), but the author emphasizes his family members.
 
 32:23: **He sent them across the stream**. This looks like flight. Clearly Jacob did not anticipate meeting God that night! He was just trying to resolve the crisis. By sending his dearest people away from the coming fight.
 
