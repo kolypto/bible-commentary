@@ -7,6 +7,48 @@ layout: bible-commentary
 
 ## John
 
+Author. Apostle John, the son of Zebedee, a Pelestinian Jew and a member of Jesus' inner apostolic circle.
+
+Audience: Jews and Gentiles living in the larger Greco-Roman world. He frequently explains Jewish customs and Palestinial geography and translates Aramaic terms into Greek, thus showing awareness of non-Jewish readers.
+
+Date of writing. Most likely, 70-100 A.D. The lack of reference to Sadducees, who ceased to be a Jewish religious party after A.D. 70, points to this date. John died in A.D. 100.
+
+### Main message
+The theme of John's Gospel is that Jesus is the promised Messiah and Son of God. By believing in Jesus, people can have eternal life.
+
+John presents Jesus as the Word become flesh -- against the backdrop of Greek thought that included Stoicism and early Gnosticism. By believing in Jesus, people can have eternal life.
+
+Clement of Alexandria stated, “Last of all, John, perceiving that the external facts had been made plain ［in the other canonical Gospels］ … composed a spiritual gospel” (cited in Eusebius, Ecclesiastical History 6.14.7). The depth of teaching in the gospel shows that he wanted readers not only to come to initial saving faith in Jesus but also to grow into a rich, well-informed faith.
+
+It is also likely that John sought to present Jesus as the new temple and center of worship for God’s people, a concept that would be especially forceful because it's written after the destruction of the Jerusalem temple.
+
+### Key Themes
+
+Jesus is God.
+
+Jesus is the "I am".
+
+Jesus is the fulfillment of Jewish festivals and institutions (including the temple).
+
+Jesus’ death is the basis of salvation.
+
+Salvation is obtained through believing in Jesus as the Messiah and the Son of God.
+
+Believers can experience the benefits of salvation already in the here and now, during this present evil age.
+
+### Structure
+The first half of the book is built around seven great “signs” that Jesus performed as proof of his messianic identity (water made wine (2:1–11); Jesus heals the official's son (4:46–54); The healing at the pool (5:1–15); Feeding of the 5000 (6:5–13); Jesus walks on water (6:16–21); Jesus heals a man born blind (9:1–7); Jesus raises Lazarus (11:1–44)). John often links a sign with a corresponding statement: e.g. Jesus feeds the 5000, and then speaks of break of life.
+
+The second part is the Farewell Discourse and the Passion Narrative.
+
+Literary motifs:
+
+* Statements that are misunderstoon, and then explained by Jesus
+* Events or statements that occur in threes (three denials of Jesus, three utterances from the cross)
+* Statements that occur in sevens, including seven great signs and seven "I am" statements
+* Heightened constrasts: light/darkness, life/death, fleeting/eternal, disease/health, love/hate
+
+
 ## 1
 
 ### The Word Became Flesh
