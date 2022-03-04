@@ -13,7 +13,21 @@ Audience: Jews and Gentiles living in the larger Greco-Roman world. He frequentl
 
 Date of writing. Most likely, 70-100 A.D. The lack of reference to Sadducees, who ceased to be a Jewish religious party after A.D. 70, points to this date. John died in A.D. 100.
 
+### History and Authorship
+Early church tradition strongly and consistently identified the author as the aspostle John. Irenaeus (A.D. 130-200) was a disciple of Polycarp (A.D. 70-160) who was a disciple of the apostle John, and he testified on Polycarp's authority that John wrote the Gospel during his residence at Ephesus in Asia Minor when he was advanced in age (Against Heresies 2.22.5; 3.1.1).
+Clement of Alexandria (A.D. 150-215) wrote that John, aware of the facts set forth in the other Gospels and being moved by the Holy Spirit composed a "spiritual Gospel" (Ecclesiastical History 6.14.7).
+
+John is never mentioned by name: instead, he designates himself as "the disciple whom Jesus loved", which reflects his humility and celebrates his relation to his Lord Jesus.
+
+The Gospel's anonymity strongly reinforces John's authorship — for only someone of his well known and preeminent authority would be able to write a Gospel that differed so markedly in form and substance from the other Gospels and have it receive unanimous acceptance in the early church.
+
+John and James were known as "the sons of Zebedee" and Jesus gave them the name "Sons of Thunder". John was one of the three most intmate associates of Jesus, alond with Peter and James. Afterwards, John became a "pillar" in the Jerusalem church (Gal 2:9). He went to Ephesus, tradition says, before the destruction of Jerusalem tradition and wrote his Gospel. Later he was exiled to Patmos (Rev 1:9) by the Romans.
+
+Date: c. A.D. 80-90, about 50 years after he witnessed Jesus' earthly ministry.
+
 ### Main message
+John was aware of the synoptic GOspels and wrote his Gospel in order to make a unique contribution to the record of the Lord's life: "a spiritual Gospel".
+
 The theme of John's Gospel is that Jesus is the promised Messiah and Son of God. By believing in Jesus, people can have eternal life.
 
 John presents Jesus as the Word become flesh -- against the backdrop of Greek thought that included Stoicism and early Gnosticism. By believing in Jesus, people can have eternal life.
@@ -36,6 +50,10 @@ Salvation is obtained through believing in Jesus as the Messiah and the Son of G
 
 Believers can experience the benefits of salvation already in the here and now, during this present evil age.
 
+Jesus brings the gift of salvation to mankind; they either accept or reject the offer.
+
+John uses dualism to convey vital information about the person and work of Christ and the need to believe in Him: life/death, light/darkness, love/hate, from above/from below.
+
 ### Structure
 The first half of the book is built around seven great “signs” that Jesus performed as proof of his messianic identity (water made wine (2:1–11); Jesus heals the official's son (4:46–54); The healing at the pool (5:1–15); Feeding of the 5000 (6:5–13); Jesus walks on water (6:16–21); Jesus heals a man born blind (9:1–7); Jesus raises Lazarus (11:1–44)). John often links a sign with a corresponding statement: e.g. Jesus feeds the 5000, and then speaks of break of life.
 
@@ -47,6 +65,20 @@ Literary motifs:
 * Events or statements that occur in threes (three denials of Jesus, three utterances from the cross)
 * Statements that occur in sevens, including seven great signs and seven "I am" statements
 * Heightened constrasts: light/darkness, life/death, fleeting/eternal, disease/health, love/hate
+
+Seven "I am" statements: 6:35; 8:12; 10:7, 9; 10:11, 14; 11:25; 14:6; 15:1, 5
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ## 1
