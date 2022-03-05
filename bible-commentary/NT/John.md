@@ -85,14 +85,57 @@ Seven "I am" statements: 6:35; 8:12; 10:7, 9; 10:11, 14; 11:25; 14:6; 15:1, 5
 
 ### The Word Became Flesh
 
-1:12: **who did not receive him**. To *receive* Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
+1: Plan:
+* His eternality (vv. 1-2)
+* His pre-incarnate work (vv. 3-5)
+* His forerunner (vv. 6-8)
+* His rejection (vv. 9-11)
+* His deity (vv. 14-18)
+
+1:1: **In the beginning**. Echoes the opening phrase of the book of Genesis: "In the beginning, God created the heavens and the earth". The text will go on to explain that the world was created through Jesus, the agent of creation.
+
+1:1: **the Word**. *Logos*: conveys the notion of divine self-expression or speech. John also shows that "the Word" is superior to the Greek philosophical "Word" (logos) as an impersonal principle of Reason that gave order to the universe. (ESV)
+
+1:1: **the Word was with God**. Indicates interpersonal relationship. (ESV)
+
+1:1: **the Word was God**. Jesus is the eternal, preexistent, now incarnate, Word, and as one-of-a-kind Son of the Father who himseld is God. (ESV)
+
+1:1: **the Word was God**. From Arius (A.D. 256-336) until the present day (Jehova's Witnesses) some have claimed that "the Word was God" merely identifies Jesus as *a* God, because the Greek word, *Theos*, is not preceded by a a definite article. However, according to Colwell's Rule, in Greek grammar it may specify that "God" is the predicate nominative of a definite subject. That is, "the Word" is the one true God who created all things. (ESV)
+
+1:1: **In the beginning .. with God .. was God**. Here are the building blocks that go into the doctrine of the Trinity: the one true God consists of more than one person, they relate to each other, and they have always existed. (ESV)
+
+1:3: **All things**. Means that everything was created and nothing has existed eternally. (ESV)
+
+1:3: **made through him**. God the Father carried out His creative works through the activity of the Son. (ESV)
+
+1:12: **who did receive him**. To *receive* Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
 
 1:12: **become children of God**. "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy". (Berkhoff) We become partakers of the divine nature (2 Pet 1:4). God gives us His own life, His own self, His own righteous character. Not yet in its fullness, but the new life principle is already planted in us. And it cannot be perceived: its' done in secret, but it is kknown only through its effect. (MacArthur)
 
-1:12: **believed in His name**. When do you voluntarily follow a leader, be it a military leader or a political leader? When you believe in him. When you trust that what he's doing is right. When you love what he stands for. And when you have confidence in that person.
-Jesus gives life to those who believe in Him: those who love who He is, who have confidence in Him, and who see His truth as righteousness. Belief occurs when what you love and long for matches with what He offers. (yes?)j
+1:12: **believed in His name**. "His name" refers to all that is true about him: the totality of his person. (ESV)
 
-1:14: **dwelt among us**. "Dwelt", literally, says "tabernacled". "eskēnōsen": To dwell as in a tent, encamp, have my tabernacle. From skenos; to tent or encamp, i.e. to occupy or, to reside. (MacArthur)
+1:12: **believed in His name**. When do you voluntarily follow a leader, be it a military leader or a political leader? When you believe in him. When you trust that what he's doing is right. When you love what he stands for. And when you have confidence in that person.
+Jesus gives life to those who believe in Him: those who love who He is, who have confidence in Him, and who see His truth as righteousness. Belief occurs when what you love and long for matches with what He offers.
+
+1:12: **to all who believed .. he gave the right**. Indicates that saving faith precedes becoming members of God's family. (ESV)
+
+1:14: **became flesh**. Became flesh, without ceasing to be God. Rather, the Word, who was God, also took on humanity. See Php 2:6-7: "though He was in the form of God, .. He emptied himself by taking the form of a servant".
+This is the most amazing event: the eternal, omnipotent, omnipresent, infinitely holy Son of God, took on a human nature. He was both God and Man at the same time, in one person.
+(ESV)
+
+1:14: **dwelt among us**. "Dwelt", literally, says "tabernacled". An allusion to God's dwelling among the Israelites in the tabernacle. In the past, God manifested His presence; now, God takes up residence among his people.
+Later, the Holy Spirit will make into a temple both the Church (1 Cor 3:16: "you (plural) are God's temple") and a Christian's body (1 Cor 6:19: "your body is a temple of the Holy Spirit within you").
+(ESV)
+
+1:14: **the only Son**. No in the sense of being created or born, but in the sense of being a Son who is exactly like his Father in all attributes, and in the sense of having a Father-Son relationship with God the Father. (ESV)
+
+1:14: **the only Son**. "only" (Gk. monogenes) means "one of a kind, unique" (ESV)
+
+1:16: **grace upon grace**. Grace indicates God's unmerited favor that brings blessing and joy. (ESV)
+
+1:17: **grace and truth**. Mostl likely recalls the Hebrew behind the phrase "steadfast love and faithfulness" (hesed and emet in Ex. 34:6: "The LORD, the LORD, a God merciful and gracious, slow to anger, and abounding in steadfast flove and faithfulness"): an expression that refers to God's covenant faithfulness to his people Israel. (ESV)
+
+1:18: **No one has ever seen God**. That is, in a full and complete way. But some people did see partial revelations of God in the OT. (ESV)
 
 ### The Testimony of John the Baptist
 
