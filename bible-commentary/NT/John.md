@@ -83,22 +83,40 @@ Seven "I am" statements: 6:35; 8:12; 10:7, 9; 10:11, 14; 11:25; 14:6; 15:1, 5
 
 ## 1
 
-### The Word Became Flesh
-
-1: Plan:
+1:xx: Plan:
 * His eternality (vv. 1-2)
 * His pre-incarnate work (vv. 3-5)
 * His forerunner (vv. 6-8)
 * His rejection (vv. 9-11)
 * His deity (vv. 14-18)
 
+### The Word Became Flesh
+
+1:xx: The prologue introduces many of the major themes ("Jesus is Christ, the Son of God") and uses several key words (life, light, witness, glory) repeated throughout the Gospel.
+Although John uses the simplest NT vocabulary, the truths that the prologue conveys are profound.
+1. The eternal Christ (vv. 1-3)
+2. The incarnate Christ (vv. 4-5)
+3. The forerunner of Christ (vv. 6-8)
+4. The unrecognized Christ (vv. 9-11)
+5. The omnipotent Christ (vv. 12-13)
+6. The glorious Christ (vv. 14-18)
+(MacArthur)
+
+1:1: **In the beginning**. John does not include a genealogy. In terms of Jesus' humanity, Jesus had a human genealogy, but in terms of His deity, He has no genealogy. (MacArthur)
+
 1:1: **In the beginning**. Echoes the opening phrase of the book of Genesis: "In the beginning, God created the heavens and the earth". The text will go on to explain that the world was created through Jesus, the agent of creation.
 
+1:1: **was**. Highlights the eternal preexistence of the Word (i.e. Jesus Christ). He always was, even before the universe began, the second person of the Trinity. "Was" contrasts with "was made", which indicates a beginning of time. (MacArthur)
+
 1:1: **the Word**. *Logos*: conveys the notion of divine self-expression or speech. John also shows that "the Word" is superior to the Greek philosophical "Word" (logos) as an impersonal principle of Reason that gave order to the universe. (ESV)
+
+1:1: **the Word**. John borrows the Greek philosophical term *logos*: impersonal, rational principle of "divine reason", "mind", or even "wisdom". John made it refer to a person. The Word is God's powerful self-expression in creation, wisdom, revelation, and salvation. John chose this concept because both Jews and Greeks were familiar with it. (MacArthur)
 
 1:1: **the Word was with God**. Indicates interpersonal relationship. (ESV)
 
 1:1: **the Word was God**. Jesus is the eternal, preexistent, now incarnate, Word, and as one-of-a-kind Son of the Father who himseld is God. (ESV)
+
+1:1: **the Word was God**. The Greek contruction emphasizes that the Word had all the essense or attributes of deity, i.e. Jesus the Messiah was fully God. Even in His incarnation, when He emptied Himself, He did not cease to be God but took on a genuine human nature and voluntarily refrained from the independent exercise of the attributes of deity. (MacArthur)
 
 1:1: **the Word was God**. From Arius (A.D. 256-336) until the present day (Jehova's Witnesses) some have claimed that "the Word was God" merely identifies Jesus as *a* God, because the Greek word, *Theos*, is not preceded by a a definite article. However, according to Colwell's Rule, in Greek grammar it may specify that "God" is the predicate nominative of a definite subject. That is, "the Word" is the one true God who created all things. (ESV)
 
