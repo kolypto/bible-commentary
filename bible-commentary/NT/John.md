@@ -126,6 +126,17 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 
 1:3: **made through him**. God the Father carried out His creative works through the activity of the Son. (ESV)
 
+1:4-5: **life .. light**. Life and light are qualities of the Word that are shared not only among the Trinity, but also by those who respond to the gospel message regarding Jesus Christ. "Life" refers not only to temporal and physical life, but especially to spiritual and eternal life imparted as a gift through belief in Him. (MacArthur)
+
+1:5: **light .. darkness**.
+Intellectually, "lifht" refers to biblical truth, while "darkness" refers to error or falsehood.
+Morally, "light" refers to holiness or purity, while "darkness" refers to sin and wrongdoing.
+(MacArthur)
+
+1:5: **light .. darkness**. Darkness has special significance in relationship to satan (and his demonic cohorts) who rules the present spiritually dark world. as the "prince of the power of the air", promoting rebellion against God. Whereas "light" and "life" have their special significance in relationship to the Lord Jesus Chirst (MacArthur)
+
+1:5: **overcome**. Darkness is not able to overcome or conquer the light. Just as a single candle can overcome a room filled with darkness, so also the powers of darkness are overcome by the person and work of the Son. (MacArthur)
+
 1:12: **who did receive him**. To *receive* Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
 
 1:12: **become children of God**. "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy". (Berkhoff) We become partakers of the divine nature (2 Pet 1:4). God gives us His own life, His own self, His own righteous character. Not yet in its fullness, but the new life principle is already planted in us. And it cannot be perceived: its' done in secret, but it is kknown only through its effect. (MacArthur)
