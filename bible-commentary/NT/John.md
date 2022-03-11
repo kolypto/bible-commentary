@@ -137,6 +137,24 @@ Morally, "light" refers to holiness or purity, while "darkness" refers to sin an
 
 1:5: **overcome**. Darkness is not able to overcome or conquer the light. Just as a single candle can overcome a room filled with darkness, so also the powers of darkness are overcome by the person and work of the Son. (MacArthur)
 
+1:6: **sent from God**. With John's ministry, the "400 silent years", during which God had given no revelation, ended. (MacArthur)
+
+1:7: **bear witness**. John, as forerunner to Jesus, was to bear witness to Him as the Messiah and Son of God. The purpose of this testimony was to produce faith in Jesus Christ .(MacArthur)
+
+1:9: ⭐ **gives light to everyone**. Through God's sovereign power, every person has some light. The knowledge of God is planted in man through general revelation: creation, and conscience. This light does not produce salvation, but either leads to the complete light of Jesus Christ, or produces condemnation in those who reject such light. So, every person has just enough light to be responsible. (MacArthur)
+
+1:9: **into the world**. John had a particular fondness of this term, giving it several shades of meaning:
+1) the physical created universe
+2) humanity in general
+3) the invisible spiritual system of evil, dominated by satan and all that it offers in opposition to God, His Word, and His People.
+In the majority of times that John uses the word, it has decidedly negative overtones.
+(MacArthur)
+
+1:11: **he came to his own, but his own people**. The first usage of "His own" most likely refers to the world of mankind in general, while the second refers to the Jewish nation.
+The world is "His own" because belongs to Him as His property, but the world did not even recognize Him due to spiritual blindness.
+The Jews are "His own" in a narrower sense: although they possessed the Scriptures that testified of His person and coming, they still did not accept Him. This theme of Jewish rejection of their promised Messiah receives special attention in John's Gospel.
+(MacArthur)
+
 1:12: **who did receive him**. To *receive* Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
 
 1:12: **become children of God**. "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy". (Berkhoff) We become partakers of the divine nature (2 Pet 1:4). God gives us His own life, His own self, His own righteous character. Not yet in its fullness, but the new life principle is already planted in us. And it cannot be perceived: its' done in secret, but it is kknown only through its effect. (MacArthur)
