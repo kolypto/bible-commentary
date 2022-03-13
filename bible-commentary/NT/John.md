@@ -88,9 +88,12 @@ Seven "I am" statements: 6:35; 8:12; 10:7, 9; 10:11, 14; 11:25; 14:6; 15:1, 5
 * His pre-incarnate work (vv. 3-5)
 * His forerunner (vv. 6-8)
 * His rejection (vv. 9-11)
+* His reception (vv. 12-13)
 * His deity (vv. 14-18)
 
 ### The Word Became Flesh
+
+#### His Eternality
 
 1:xx: The prologue introduces many of the major themes ("Jesus is Christ, the Son of God") and uses several key words (life, light, witness, glory) repeated throughout the Gospel.
 Although John uses the simplest NT vocabulary, the truths that the prologue conveys are profound.
@@ -122,6 +125,8 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 
 1:1: **In the beginning .. with God .. was God**. Here are the building blocks that go into the doctrine of the Trinity: the one true God consists of more than one person, they relate to each other, and they have always existed. (ESV)
 
+#### His Pre-incarnate Work
+
 1:3: **All things**. Means that everything was created and nothing has existed eternally. (ESV)
 
 1:3: **made through him**. God the Father carried out His creative works through the activity of the Son. (ESV)
@@ -137,9 +142,13 @@ Morally, "light" refers to holiness or purity, while "darkness" refers to sin an
 
 1:5: **overcome**. Darkness is not able to overcome or conquer the light. Just as a single candle can overcome a room filled with darkness, so also the powers of darkness are overcome by the person and work of the Son. (MacArthur)
 
+#### His Forerunner
+
 1:6: **sent from God**. With John's ministry, the "400 silent years", during which God had given no revelation, ended. (MacArthur)
 
 1:7: **bear witness**. John, as forerunner to Jesus, was to bear witness to Him as the Messiah and Son of God. The purpose of this testimony was to produce faith in Jesus Christ .(MacArthur)
+
+#### His Rejection
 
 1:9: ⭐ **gives light to everyone**. Through God's sovereign power, every person has some light. The knowledge of God is planted in man through general revelation: creation, and conscience. This light does not produce salvation, but either leads to the complete light of Jesus Christ, or produces condemnation in those who reject such light. So, every person has just enough light to be responsible. (MacArthur)
 
@@ -155,6 +164,12 @@ The world is "His own" because belongs to Him as His property, but the world did
 The Jews are "His own" in a narrower sense: although they possessed the Scriptures that testified of His person and coming, they still did not accept Him. This theme of Jewish rejection of their promised Messiah receives special attention in John's Gospel.
 (MacArthur)
 
+#### His Reception
+
+1:12: **but to all who did receive him**. John softens the sweeping rejection of Messiah by stressing a believing remnant.
+This previews the book: since the first 12 chapters stress the rejection of Christ, while chapters 13-21 focus on believing remnant who received Him.
+(MacArthur)
+
 1:12: **who did receive him**. To *receive* Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
 
 1:12: **become children of God**. "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy". (Berkhoff) We become partakers of the divine nature (2 Pet 1:4). God gives us His own life, His own self, His own righteous character. Not yet in its fullness, but the new life principle is already planted in us. And it cannot be perceived: its' done in secret, but it is kknown only through its effect. (MacArthur)
@@ -164,13 +179,19 @@ The Jews are "His own" in a narrower sense: although they possessed the Scriptur
 1:12: **believed in His name**. When do you voluntarily follow a leader, be it a military leader or a political leader? When you believe in him. When you trust that what he's doing is right. When you love what he stands for. And when you have confidence in that person.
 Jesus gives life to those who believe in Him: those who love who He is, who have confidence in Him, and who see His truth as righteousness. Belief occurs when what you love and long for matches with what He offers.
 
+1:12: **believed in His name**. To receive Him is to acknowledge His claims, place one's faith in Him, and thereby yield allegiance to Him. (MacArthur)
+
 1:12: **to all who believed .. he gave the right**. Indicates that saving faith precedes becoming members of God's family. (ESV)
+
+1:12: **gave**. The term emphasizes the grace of God involved in the gift of salvation. Ultimately, it is not a man's will that produces salvation but God's will. (MacArthur)
+
+#### His Deity
 
 1:14: **became flesh**. Became flesh, without ceasing to be God. Rather, the Word, who was God, also took on humanity. See Php 2:6-7: "though He was in the form of God, .. He emptied himself by taking the form of a servant".
 This is the most amazing event: the eternal, omnipotent, omnipresent, infinitely holy Son of God, took on a human nature. He was both God and Man at the same time, in one person.
 (ESV)
 
-1:14: **dwelt among us**. "Dwelt", literally, says "tabernacled". An allusion to God's dwelling among the Israelites in the tabernacle. In the past, God manifested His presence; now, God takes up residence among his people.
+1:14: **dwelt among us**. "Dwelt", literally, says "tabernacled". An allusion to God's dwelling among the Israelites in the tabernacle. In the past, God manifested His presence; now, God takes up residence among his people ［in a far more personal way］.
 Later, the Holy Spirit will make into a temple both the Church (1 Cor 3:16: "you (plural) are God's temple") and a Christian's body (1 Cor 6:19: "your body is a temple of the Holy Spirit within you").
 (ESV)
 
@@ -178,11 +199,26 @@ Later, the Holy Spirit will make into a temple both the Church (1 Cor 3:16: "you
 
 1:14: **the only Son**. "only" (Gk. monogenes) means "one of a kind, unique" (ESV)
 
+1:14: ⭐ **we beheld His glory**. Although His deity may have been veiled in human flesh, glimpses exist in the Gospels of His devine majesty.
+First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display the attributes of God: grace, goodness, mercy, wisdom, truth, etc. And also, His power. (MacArthur)
+
+1:14: **we beheld His glory**. Несмотря на то, что божественность Христа была скрыта человеческой плотью, в Евангелиях заметны проблески Его божественного величия. Так же и в нашей жизни: Библия проповедует о скрытом Боге, но в жизни христианина можно увидеть проблески Его величия в совпадениях и обстоятельствах.
+
+1:14: **glory as of the only Son of the Father**. Jesus as God displayed the same essential glory as the Father. They are one in essential nature. (MacArthur)
+
 1:16: **grace upon grace**. Grace indicates God's unmerited favor that brings blessing and joy. (ESV)
 
-1:17: **grace and truth**. Mostl likely recalls the Hebrew behind the phrase "steadfast love and faithfulness" (hesed and emet in Ex. 34:6: "The LORD, the LORD, a God merciful and gracious, slow to anger, and abounding in steadfast flove and faithfulness"): an expression that refers to God's covenant faithfulness to his people Israel. (ESV)
+1:16: **grace upon grace**. This phrase emphasizes the superabundance of grace that has been displayed by God toward mankind, especially believers. (MacArthur)
+
+1:17: **grace and truth**. Mostl likely recalls the Hebrew behind the phrase "steadfast love and faithfulness" (hesed and emet in Ex. 34:6: "The LORD, the LORD, a God merciful and gracious, slow to anger, and abounding in steadfast flove and faithfulness"): an expression that refers to God's covenant faithfulness to his people Israel. (ESV) Jesus displayed the same divine attributes when He tabernacled among men in the NT era (MacArthur)
+
+1:17: **the law was given through Moses**. The Law was not a display of God's grace but God's demand for holiness. God designed the Law as a means to demonstrate the unrighteousness of man in order to show the need for a Savior. Furthermore, the Law revealed only a part of truth and was preparatory in nature. (MacArthur)
 
 1:18: **No one has ever seen God**. That is, in a full and complete way. But some people did see partial revelations of God in the OT. (ESV)
+
+1:18: **who is at the Father's side**. The term denotes the mutual intimacy, love and knowledge existing in the Trinity. (MacArthur)
+
+1:18: **made him known**. John meant that all that Jesus is and does interprets and explains who God is and what He does. (MacArthur)
 
 ### The Testimony of John the Baptist
 
