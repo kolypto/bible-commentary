@@ -153,7 +153,13 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 
 1:1: **the Word**. John borrows the Greek philosophical term *logos*: impersonal, rational principle of "divine reason", "mind", or even "wisdom". John made it refer to a person. The Word is God's powerful self-expression in creation, wisdom, revelation, and salvation. John chose this concept because both Jews and Greeks were familiar with it. (MacArthur)
 
+1:1: **Слово**. Мне кажется, что Он именуется: «Словом», потому что Он так относится к Отцу, как слово к уму, не только по бесстрастному рождению, но и по соединению с Отцом, и потому, что изъявляет Его. Ибо сказано, что познавший (таково значение слова «видевший», Ин.14:9) Сына познал Отца, и Сын есть выражение Отчего естества, так как и всякое порождение есть безмолвное слово родившего. (Свт. Григорий Богослов)
+
+1:1: **в начале было Слово**. Иоанн не говорит "в начале было рождено слово" — чтобы не заключил кто о Сыне, будто бы Он сотворён в продолжении времени, но показывает, что существует Он всегда и вечно. А мир уже был сотворён: через Него. (Свт. Афанасий Великий)
+
 1:1: **the Word was with God**. Indicates interpersonal relationship. (ESV)
+
+1:1: **Слово было у Бога**. Не сказал, "в Боге было Слово", но "у Бога": чтобы изобразить отличительное свойство Ипостаси, чтобы не подать повода к слиянию Ипостаси. Ибо лукава и эта хула, когда стараются все смешать, говорят, что одно подлежащее – Отец и Сын и Святой Дух, но одному предмету даны различные наименования. Лукаво это нечестие; его не менее должно бегать, как и тех, которые хульно утверждают, что Сын Божий по сущности не подобен Богу и Отцу. (Свт. Василий Великий)
 
 1:1: **the Word was God**. Jesus is the eternal, preexistent, now incarnate, Word, and as one-of-a-kind Son of the Father who himseld is God. (ESV)
 
@@ -163,6 +169,8 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 
 1:1: **In the beginning .. with God .. was God**. Here are the building blocks that go into the doctrine of the Trinity: the one true God consists of more than one person, they relate to each other, and they have always existed. (ESV)
 
+1:1: **Слово было у Бога, и Слово было Бог**. Если же этих объяснений недостаточно для совершенного уразумения этого предмета, не удивляйся: у нас теперь речь о Боге, о Котором невозможно достойным образом ни говорить, ни мыслить. (Свт. Иоанн Златоуст)
+
 #### His Pre-incarnate Work
 
 1:3: **All things**. Means that everything was created and nothing has existed eternally. (ESV)
@@ -170,6 +178,8 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 1:3: **made through him**. God the Father carried out His creative works through the activity of the Son. (ESV)
 
 1:4-5: **life .. light**. Life and light are qualities of the Word that are shared not only among the Trinity, but also by those who respond to the gospel message regarding Jesus Christ. "Life" refers not only to temporal and physical life, but especially to spiritual and eternal life imparted as a gift through belief in Him. (MacArthur)
+
+1:4: **жизнь была свет человеков**. Он даровал нам свет ведения, а отсюда – жизнь. (Свт. Иоанн Златоуст)
 
 1:5: **light .. darkness**.
 Intellectually, "lifht" refers to biblical truth, while "darkness" refers to error or falsehood.
@@ -230,6 +240,8 @@ Jesus gives life to those who believe in Him: those who love who He is, who have
 1:14: **became flesh**. Became flesh, without ceasing to be God. Rather, the Word, who was God, also took on humanity. See Php 2:6-7: "though He was in the form of God, .. He emptied himself by taking the form of a servant".
 This is the most amazing event: the eternal, omnipotent, omnipresent, infinitely holy Son of God, took on a human nature. He was both God and Man at the same time, in one person.
 (ESV)
+
+1:14: **и слово стало плотию**. Прочие евангелисты начинали с воплощения: зачатие, рождение, воспитание; Иоанн же только вратце коснулся этого предмета: так как прочие евангелисты большею частью повествовали о человеческом естестве Сына Божия, то должно было опасаться, чтобы по этому самому кто-нибудь из людей, пресмыкающихся по земле, не остановился только на этих одних догматах, что и случилось с Павлом Самосатским [епископ Антиохийский, еретик III века]. (Свт. Иоанн Златоуст)
 
 1:14: **dwelt among us**. "Dwelt", literally, says "tabernacled". An allusion to God's dwelling among the Israelites in the tabernacle. In the past, God manifested His presence; now, God takes up residence among his people ［in a far more personal way］.
 Later, the Holy Spirit will make into a temple both the Church (1 Cor 3:16: "you (plural) are God's temple") and a Christian's body (1 Cor 6:19: "your body is a temple of the Holy Spirit within you").
