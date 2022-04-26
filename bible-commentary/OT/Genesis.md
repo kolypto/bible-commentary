@@ -2,7 +2,10 @@
 layout: bible-commentary
 ---
 
-
+Commentary:
+* ESV Study Bible
+* John MacArthur Commentary
+* Оптина Пустынь
 
 
 
@@ -35,10 +38,7 @@ One special theme that sets this book apart: it corresponds closely with the fin
 Author: Moses both the OT and the NT [ascribe this composition to Moses](https://www.esv.org/Exodus+17:14;Numbers+33:2;Joshua+8:31;1+Kings+2:3;2+Kings+14:6;Ezra+6:18;Nehemiah+13:1;Daniel+9:11;Daniel+9:13;Malachi+4:4;Matthew+8:4;Mark+12:26;Luke+16:29;Luke+24:27;Luke+24:44;John+5:46;John+7:22;Acts+15:1;Romans+10:19;1+Corinthians+9:9;2+Corinthians+3:15/)
 
 
-Commentary:
-* ESV Study Bible
-* John MacArthur Commentary
-* Оптина Пустынь
+
 
 
 
