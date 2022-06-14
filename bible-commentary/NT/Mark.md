@@ -9,6 +9,10 @@ layout: bible-commentary
 
 1:1: In the Roman empire,** good news** was the announcement of the coming of a king (yes?)
 
+1:4: **крещение покаяния для прощения грехов**. Это крещение имело параллели в иудейском обиходе той эпохи: твила — ритуальное омовение для избавления от нечистоты.
+Ессеи ужесточили требования к обряду и, в отличие от ортодоксальных евреев, считали, что еобходимость ритуального очищения возникала не только от прикосновения к ритуально нечистым предметам и животным, но и от дурных поступков. Поэтому если человек проходил обряд погружения в воду без покаяния, по их мнению обряд становился чистой формальностью и не приносил очищения; такая концепция была заметным новшеством. Этот обряд ритуального омовения кумраниты-ессеи толковали не только как символ раскаяния во искупление греха, но одновременно и как обряд посвящения в члены своей общины.
+(Википедия)
+
 2:8: Just like Jesus **perceived in His spirit** the secrets of their hearts, so that He was somehow able to sense their thoughts, so will the holy spirit reveal to us the truth about the people around us, if we sincerely ask Him!
 
 2:14: To **follow** is not just to walk like a duckling after his mother; is is to listen, to talk, to witness, to be near all the time, and to *live* daily like Jesus did.
