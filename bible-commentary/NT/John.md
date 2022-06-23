@@ -544,6 +544,56 @@ First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display th
 
 ### The Testimony of John the Baptist
 
+1:19: **And this is the testimony of John**. John presents the first of many witnesses to prove that Jesus is the Messiah and Son of God. (MacArthur)
+
+1:19: **testimony**. Gk. μαρτυρία (martyria): Witness, evidence, testimony, reputation. From martus; evidence given.
+
+1:19: **John**. Born into a priestly family, belonged to the tribe of Levi. He began his ministry when he was approximately 30 years old and boldly proclaimed the need for spiritual repentance and preparation for the coming of the Messiah. (MacArthur)
+
+1:19: **the Jews sent .. to ask him, "Who are you?"**. This expression, "The Jews", is used 68 times in the Greek text of John, sometimes in neutral (2:6), or positive (4:22) sense, but often to refer to hostile Jewish opponents of Jesus among the Jewish leaders and their followers. The phrase does not usually mean all the Jews. In many places, "the Jews" seems to be a shorthand expression for "the Jews who opposed Jesus".
+John wants Jewish readers in his own time to realize that opposition to Jesus by many Jewish leaders goes back to the very beginning of Jesus' ministry, but that did not deter many other Jews from following him anyway.
+(ESV)
+
+1:19: **когда Иудеи прислали из Иерусалима священников и левитов**. ЦСЯ: "егда послаша жидове от Иерусалима иереев и левитов, да вопросят его".
+
+1:19: **прислали священников и левитов из Иерусалима**. Иоанна возвышало многое в их глазах: во-первых, именитое и знатное происхождение, потому что он был сын первосвященника; во-вторых, строгость жизни и презрение всего человеческого, потому что он, пренебрегая и одеждою, и домом, и самою пищею, проводил пред тем все время в пустыне.
+Во Христе все было напротив, происхождение уничиженное, что иудеи часто и выставляли на вид, говоря: "не сей ли есть тектонов сын? Не Мати ли Его нарицается Мариам, и братия Его Иаков и Иосий?" (Мф. 13:55). И даже отечество Его было в таком бесславии, что и Нафанаил говорил: "от Назарета может ли что добро быти?" (Ин. 1:46).
+Образ жизни был у Него обыкновенный, одежды, ничем не отличавшиеся от других; кожаного пояса Он не носил, власяницы не имел, меда и акридов не ел; он жил, как и все, присутствовал в собраниях людей порочных и мытарей, только чтобы привлечь их.
+И вот, прислали к нему людей с вопросом. И не каких-либо презренных людей они посылают к нему (как ко Христу, когда, желая схватить Его, послали слуг); но священников и левитов; да и священников именно из Иерусалима, то есть почётнейших (евангелист не без причины заметил это).
+Но Иоанн, который по их мнению был выше, часто отсылал их от себя к Тому, кто по их мнению был ниже его. А они желали лучше иметь учителем Иоанна, но открыто не осмеливались этого высказать. Ведь если бы он назвался Христом, он был бы их учителем.
+(Свт. Иоанн Златоуст)
+
+1:19: **прислали священников и левитов из Иерусалима**. Иудеи послали к Иоанну людей, по их мнению, лучших, именно: священников и левитов, и притом иерусалимлян, с тем, чтобы они, как умнейшие других, ласкою убедили Иоанна объявить самого себя за Христа. Смотри на уклончивость. Не спрашивают прямо: Христос ли ты, но: кто ты? А он, видя их лукавство, не говорит, кто он, а объявляет, что я не Христос, имея в виду цель их и всячески привлекая их к вере, что Христос есть иной, Тот, Кого они считают бедным сыном бедного отца-плотника, происходящим из бедного отечества Назарета, от которого они не ожидали ничего доброго. Между тем о самом Предтече они имели высокое мнение, так как он имел отцом первосвященника и жизнь вел ангельскую и почти бесплотную. (Блж. Феофилакт Болгарский)
+
+1:19: **левитов**. Левиты были присоединены к священникам как сопровождающая их стража, они исполняли при Синедрионе полицейские обязанности. Так как путь из Иерусалима в Иерихон и, следовательно, к Иордану, где крестил Иоанн, был небезопасен (Лк.10:30: "некоторый человек шел из Иерусалима в Иерихон и попался разбойникам"), то священникам было не лишним захватить с собой стражу. Но, кроме этого, стража была взята с целью придать посольству строго официальный характер. (Лопухин А.П.)
+
+1:19: **кто ты?**. Спросили не потому, что не знали этого, так как всем было известно то, что случилось при его рождении, обрезании и наречении имени, когда все говорили: что убо отроча сие будет (Лк. 1:76: "И ты, младенец, наречешься пророком Всевышнего").
+
+1:19: **кто ты?**. Вопрос этот предполагает собою, что об Иоанне в то время ходили слухи: на Иоанна в народе стал устанавливаться взгляд как на Мессию (Лк.3:15: "все помышляли в сердцах своих об Иоанне, не Христос ли он"). (Лопухин А.П.)
+
+1:20: **I am not the Christ**. Some thought that John was the Messiah (Lk 3:15: "people .. were questioning in their hearts .. whether he might be the Christ"). (MacArthur)
+
+1:20: **Я не Христос**. Иудеи надеялись лестию расположить его к отму, чтобы он объявил себя Христом. Вот только простой народ так предполагал по простоте и неведению, а эти спрашивали с злым умыслом.
+Но таково свойство благомыслящего служителя – не только не похищать чести, принадлежащей господину, но и отвергать ее даже в таком случае, когда бы предлагали ее другие.
+(Свт. Иоанн Златоуст)
+
+1:21: **are you Elijah?**. Elijah, who never died, was expected to return in the end times (Mal 4:5: "I will send you Elijah the prophet before the great and awesome day of the Lord comes") to "restore all things". John resembled Elijah in his rugged lifestyle, but he denied that he himseld was Elijah. Jesus, understanding more about this than John, saw John as fulfilling the prophecy of Elijah. (ESV)
+
+1:21: **are you Elijah?**. The angel announced that John would go before Jesus "in the spirit and power of Elijah" (Lk 1:17), thus indicating that someone other than literal Elijah could fulfil the prophecy. (MacArthur)
+
+1:21: **are you the Prophet?**. The coming of the Prophet was predicted by Moses (Dt 18:15,18: "I will raise up for them a prophet like you .. and I will put my words in his mouth"") and was excpected in Jesus' day. John denied being this Prophet as well. (ESV)
+
+1:21: **are you the Prophet?**. The New Testament applies this passage of Deuteronomy (Dt 18:18,18) to Jesus (Acts 3:22-23; Acts 7:37). (MacArthur)
+
+1:23: **the voice of one crying out in the wilderness**. John is in keeping with the prophet Isaiah's words (Is 40:3: "A voice cries: “In the wilderness prepare the way of the LORD; make straight in the desert a highway for our God.""). By preaching a word of repentance and divine judgment, this messenger or God was to prepare the way for the Lord to come to his people through the wilderness. (ESV)
+
+1:26: **I baptize**. The Old Testament associated the coming of Messiah with repentance and spiritual cleansing (Ezek 36-37, especially Ezek 36:35-27: ""I will cleanse you, .. I will give you a new heart .. I will put My Spirit within you"; Ezek 37:27: "I will be their God, and they shall be my people"; Zech 13:1: "shall be a fountain opened .. to cleanse them from sin and uncleanness"). John's message was that Jews too needed spiritual cleansing and preparation for Messiah's advent. See notes on Mt 3:6,11,16,17 for an explanation of the significance of John's baptism. (MacArthur)
+
+1:27: **I am not worthy to untie**. John demonstrates extraordinary humulity. John always shifts the focus onto Messiah, going as far as to state that he was not worthy even of performing a slave's job in relationship to Messiah. (MacArthur)
+
+1:28: **John was baptizing**. John's baptism was an outward sign of cleansing, reflecting inward repentance from sins. (ESV)
+
+1:28: **Bethany across Jordan**. It is different from the village near Jerusalem where Lazarus was raised. This Bethany is designated as "across" the Jordan, i.e. East of the Jordan River. (ESV)
 
 ### Behold, the Lamb of God
 
