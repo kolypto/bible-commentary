@@ -577,9 +577,15 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 Но таково свойство благомыслящего служителя – не только не похищать чести, принадлежащей господину, но и отвергать ее даже в таком случае, когда бы предлагали ее другие.
 (Свт. Иоанн Златоуст)
 
+1:20: **Я не Христос**. Он не только не обнаружил никакого славолюбия и не присвоил себе славы Господа, но пренебрегал и той, которая воздавалась ему многими. (Евфимий Зигабен)
+
 1:21: **are you Elijah?**. Elijah, who never died, was expected to return in the end times (Mal 4:5: "I will send you Elijah the prophet before the great and awesome day of the Lord comes") to "restore all things". John resembled Elijah in his rugged lifestyle, but he denied that he himseld was Elijah. Jesus, understanding more about this than John, saw John as fulfilling the prophecy of Elijah. (ESV)
 
 1:21: **are you Elijah?**. The angel announced that John would go before Jesus "in the spirit and power of Elijah" (Lk 1:17), thus indicating that someone other than literal Elijah could fulfil the prophecy. (MacArthur)
+
+1:21: **Ты Илия?»**. Своей пламенной ревности о Боге Иоанн напоминал собой Илию. Иудеи спрашивают его, не есть ли он пришедший с неба Илия? Иоанн таким Илией не был, хотя и был послан «в духе и силе Илии» (Лк.1:17). (Лопухин А.П.)
+
+1:21: **Ты Илия?», сказал «Нет»**. Христос сказал о нём: «Он есть Илия, которому надлежит прийти», но добавил: «Если хотите принять, он есть Илия». Ибо сказал так потому, что тот совершил служение Илии. (Прп. Исихий Иерусалимский)
 
 1:21: **are you the Prophet?**. The coming of the Prophet was predicted by Moses (Dt 18:15,18: "I will raise up for them a prophet like you .. and I will put my words in his mouth"") and was excpected in Jesus' day. John denied being this Prophet as well. (ESV)
 
@@ -587,17 +593,42 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 1:23: **the voice of one crying out in the wilderness**. John is in keeping with the prophet Isaiah's words (Is 40:3: "A voice cries: “In the wilderness prepare the way of the LORD; make straight in the desert a highway for our God.""). By preaching a word of repentance and divine judgment, this messenger or God was to prepare the way for the Lord to come to his people through the wilderness. (ESV)
 
+1:23: **исправьте путь Господу, как сказал пророк Исаия**. Что же вопиющего? «Исправьте путь Господу». Я, говорит, раб и предуготовляю сердца ваши для Господа. Итак, вы лукавые и хитрые, исправьте их и уравняйте так, чтобы чрез вас был путь для Господа Христа. (Блж. Феофилакт Болгарский)
+
+1:24: **ты не Христос, ни Илия, ни пророк**. Из сей речи видно, что Христа и Пророка они считали разными фигурами. Худо они знают. Ибо пророк тот есть Самый Христос и Бог наш. (Блж. Феофилакт Болгарский)
+
+1:24: **А посланные были из фарисеев**. По обычному толкованию, здесь продолжается беседа посланных от синедриона. Но с таким толкованием нельзя согласиться, потому что:
+1) в Синедрионе главенствующее положение занимали саддукеи, которые расходились с фарисеями во взглядах на Мессию. Они бы не доверили расследование по делу Иоанна фарисеям;
+2) маловероятно, чтобы между священниками и левитами было много фарисеев, которые группировались почти всегда только около раввинов;
+3) последний вопрос от депутации свитедельствует о её полном равнодушии к делу Иоанна (ст. 22: "кто же ты? чтобы нам дать ответ пославшим нас"). Эти фарисеи же были весьма заинтересованы крещением.
+Таким образом, это либо отдельная делегация, либо частный вопрос от некоторых фарисеев, заданный когда официальная депутация удалилась.
+(Лопухин А.П.)
+
+1:25: **что же ты крестишь, если ты ни Христос, ни Илия, ни пророк**. Подобный вопрос от официальной делегации священства и левитов-стражников может внушать трепет. Лишь человек, уверенный в своём деле, может смело отвечать на такое.
+
+1:25: **что же ты крестишь, если ты ни Христос, ни Илия, ни пророк**. Фарисеи желали знать, находится ли деятельность Kрестителя в каком-нибудь отношении к Царству Мессии, которого тогда все ожидали. (Лопухин А.П.)
+
 1:26: **I baptize**. The Old Testament associated the coming of Messiah with repentance and spiritual cleansing (Ezek 36-37, especially Ezek 36:35-27: ""I will cleanse you, .. I will give you a new heart .. I will put My Spirit within you"; Ezek 37:27: "I will be their God, and they shall be my people"; Zech 13:1: "shall be a fountain opened .. to cleanse them from sin and uncleanness"). John's message was that Jews too needed spiritual cleansing and preparation for Messiah's advent. See notes on Mt 3:6,11,16,17 for an explanation of the significance of John's baptism. (MacArthur)
 
+1:26: **я крещу в воде; но стоит среди вас Некто**. Беседуя о сущности своего крещения, Иоанн сказал, что оно маловажно и несовершенно и не имеет в себе ничего, кроме воды. Но Иоанн указывает на "Идущего за мною": говоря как бы так: «не думайте, что все заключается в моем крещении. Если бы оно было совершенно, то не пришел бы после меня другой с установлением другого крещения. А мое крещение только приготовление и указание пути к тому крещению. Наше дело – тень и образ. Должно прийти другому лицу, которое покажет истину». (Свт. Иоанн Златоуст)
+
+1:26: **я крещу в воде; но стоит среди вас Некто**. Примечай кротость святого и правдивость. Он свидетельсвует о славе Христа в большою смелостью и не скрывает славы Господа — но объявляет, что его крещение водой, не имеющей прощения грехов, лишь подготовительное к принятию крещения духовного, дарующего прощение грехов. (Блж. Феофилакт Болгарский)
+
+1:26: **я крещу в воде; но стоит среди вас Некто**. Иоанн отвечает фарисеям, что его крещение не имеет того значения, какое должно было иметь крещение, которое, по представлению фарисеев, будет совершать Мессия или кто-либо из пророков. Он, Иоанн, крестит только в воде, – очевидно противополагая в мысли своему крещению то крещение Духом Святым, которое будет совершать Мессия (Мф.3:11: "Он будет крестить вас Духом Святым и огнем"). Нет, как бы говорит Иоанн, не на меня вы должны устремить все свое внимание, а на Того, Kто уже находится среди вас неведомо для вас, т. е., конечно, на Мессию, Kоторого вы ждете. (Лопухин А.П.)
+
 1:27: **I am not worthy to untie**. John demonstrates extraordinary humulity. John always shifts the focus onto Messiah, going as far as to state that he was not worthy even of performing a slave's job in relationship to Messiah. (MacArthur)
+
+1:27: **Я недостоин развязать ремень у обуви Его**. Этим указывает на несравненное превосходство Иисуса Христа, говоря: я не могу быть даже в числе последних Его рабов, вследствие величия пребывающего в Нем Божества. А такая обязанность действительно поручается обыкновенно низшим рабам. (Евфимий Зигабен)
+
+1:27: **Я недостоин развязать ремень у обуви Его**. Эти слова нужно взять на заметку каждому, которому с уверенностью кажется, что в глазах Божиих он праведен и является достойным сыном. Иоанн Креститель: аскет, отрешившийся всего мирского, святой и пророк, говорит: "я недостоин". Если он не достоин, то сколько же менее мы не достойны Бога! И тем не менее, Он любит нас, и только поэтому, единственно поэтому, мы принимаемы Им. Не по достоинству, а по прощению и благодати.
 
 1:28: **John was baptizing**. John's baptism was an outward sign of cleansing, reflecting inward repentance from sins. (ESV)
 
 1:28: **Bethany across Jordan**. It is different from the village near Jerusalem where Lazarus was raised. This Bethany is designated as "across" the Jordan, i.e. East of the Jordan River. (ESV)
 
-### Behold, the Lamb of God
+1:28: **Это происходило в Вифаваре (Вифании) при Иордане**. Для чего евангелист сказал, что сие происходило в Вифании? Для того чтобы показать смелость великого проповедника, что он проповедовал так о Христе не в дому, не в углу, но при Иордане, среди множества народа. (Блж. Феофилакт Болгарский)
 
-1:27: **Я недостоин развязать ремень у обуви Его**. Эти слова нужно взять на заметку каждому, которому с уверенностью кажется, что в глазах Божиих он праведен и является достойным сыном. Иоанн Креститель: аскет, отрешившийся всего мирского, святой и пророк, говорит: "я недостоин". Если он не достоин, то сколько же менее мы не достойны Бога! И тем не менее, Он любит нас, и только поэтому, единственно поэтому, мы принимаемы Им. Не по достоинству, а по прощению и благодати.
+### Behold, the Lamb of God
 
 1:29: **behold, the lamb of God!**. In the OT, on Rosh Hashanah (Jewish new year, the most holy day of the year, and the day of redemption), the sins of God’s people were transferred onto a scapegoat and were released.
 That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jesus Christ, the "lamb of God" who "takes away the sin of the world". The type is fulfilled in that God has laid the sins of all humanity on Jesus, who was the redeeming pascal lamb for the whole mankind. That is the basis for redemption of everyone who believes in Jesus Christ as a Messiah who came to save us from the original sin of Adam. (Wikipedia)
