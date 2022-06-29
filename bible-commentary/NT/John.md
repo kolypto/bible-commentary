@@ -630,10 +630,36 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 ### Behold, the Lamb of God
 
+1:29: **the next day**. The next day after John's response to the Jerusalem delegation. It also initiates a sequence of days (v. 43, 2:1) that culminated in the miracle at Cana (2:1-11). (MacArthur)
+
 1:29: **behold, the lamb of God!**. In the OT, on Rosh Hashanah (Jewish new year, the most holy day of the year, and the day of redemption), the sins of God’s people were transferred onto a scapegoat and were released.
 That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jesus Christ, the "lamb of God" who "takes away the sin of the world". The type is fulfilled in that God has laid the sins of all humanity on Jesus, who was the redeeming pascal lamb for the whole mankind. That is the basis for redemption of everyone who believes in Jesus Christ as a Messiah who came to save us from the original sin of Adam. (Wikipedia)
 
+1:29: **sin of the world**. Of humanity in general, not specifically every person. The use of singular "sin" (not "sins") indicates that Jesus' sacrifice for sin potentially reaches all human beings. John makes clear, however, that its efficacious effect is only for those who receive Christ (vv. 11, 12). (MacArthur)
+
+1:31: **I myself did not know Him**. John probably means that he did not know that Jesus was the Messiah until he saw the sign of the dove. (ESV)
+
+1:31: **I myself did not know Him**. Although John was Jesus' cousin, he did not know Jesus as the Messiah. (MacArthur)
+
+1:32: "I saw the Spirit descend .. and it remained on Him**. The Spirit did not merely descend on Jesus; He remained on Him: a sign of divine anointing. Previously, in the Old Testament, the Spirit came upon people to enable them to accomplish certain God-given tasks, but Isaiah predicted that the Messiah would be full of the Spirit at all times (Isa 11:2: "And the Spirit of the LORD shall rest upon him, the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and the fear of the LORD."; Isa 61:1: "The Spirit of the Lord GOD is upon me, because the LORD has tanointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and uthe opening of the prison to those who are bound;"). (ESV)
+
+1:34: **this is the Son of God**.
+
 ### Jesus Calls the First Disciples
+
+1:38: **Rabbi (which means, Teacher)**. One of the seven Hebrew/Aramaic terms translated by John for his readers. (ESV)
+
+1:39: **the tenth hour**. 10 A.M. John mentions the precise time, most likely, to emphasize that he was that other disciple. John's first meeting with Jesus was so life-changing that he remembered the exact hour when he first met the Lord. (MacArthur)
+
+1:40: **One of the two .. was Andrew**. The name of the other disciple is not stated. Most likely, he was John the son of Zebedee. (ESV)
+
+1:41: **Messiah**. Means "anointed" (usually by God). Messiah is a summary term that gathers up many expectations about a coming of the "anointed one" who would lead and teach and save God's people. (ESV)
+
+1:41: **Messiah**. "Messiah" is a Hebrew verbal adjective that comes from a verb "to anoint": to consecrate to a particular office or function. It was first applied to the king of Israel (1 Sam 16:6), the high priest (Lev 4:3), and, in one passage, to the patriarchs (Ps 105:15). Messiah or Christ are titles, not personal names of Jesus. (MacArthur)
+
+1:42: **when Jesus looked at him**. Jesus knows hearts thoroughly (vv. 43-51, with Nathanael) and not only sees into them, but also transforms a person into what He wants him to become. Simon's new name, Peter ("rock") is not only predictive, but also declarative of how Jesus would transform his character and use him for the foundation of the church. (MacArthur)
+
+1:42: **You shall be called "Cephas"**. In Aramaic, meaning "rock". In the OT God frequently changed people's names to indicate their special calling, e.g. Abaraham. (ESV)
 
 ### Jesus Calls Philip and Nathanael
 
