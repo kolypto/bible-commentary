@@ -649,6 +649,8 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 Видим, что один Он берет на Себя грехи всего мира, но берет грехи тех, которые каются истинно, и перестают грехи ко грехам прилагать, и к Нему с верой прибегают, и просят отпущения грехов, – тем Он отпускает грехи.
 (Свт. Тихон Задонский)
 
+1:29: **берет на Себя грех мира**. Глагол "берёт" употреблён в настоящем времени. Это действие не ограничено во времени: Христос «каждый день берет на Себя грехи наши, одни – через Kрещение, другие – через покаяние» (блж. Феофилакт).
+
 1:31: **I myself did not know Him**. John probably means that he did not know that Jesus was the Messiah until he saw the sign of the dove. (ESV)
 
 1:31: **I myself did not know Him**. Although John was Jesus' cousin, he did not know Jesus as the Messiah. (MacArthur)
