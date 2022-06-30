@@ -632,10 +632,22 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 1:29: **the next day**. The next day after John's response to the Jerusalem delegation. It also initiates a sequence of days (v. 43, 2:1) that culminated in the miracle at Cana (2:1-11). (MacArthur)
 
+1:29: **идущего к нему Иисуса**. Зачем в это время Иисус шел к Иоанну – неизвестно. Возможно, креститься; а возможно, чтобы дать повод Иоанну рассказать людям, что Иисус не крестился как грешник — а напротив, Своей чистотой принимает на себя грехи мира.
+
 1:29: **behold, the lamb of God!**. In the OT, on Rosh Hashanah (Jewish new year, the most holy day of the year, and the day of redemption), the sins of God’s people were transferred onto a scapegoat and were released.
 That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jesus Christ, the "lamb of God" who "takes away the sin of the world". The type is fulfilled in that God has laid the sins of all humanity on Jesus, who was the redeeming pascal lamb for the whole mankind. That is the basis for redemption of everyone who believes in Jesus Christ as a Messiah who came to save us from the original sin of Adam. (Wikipedia)
 
 1:29: **sin of the world**. Of humanity in general, not specifically every person. The use of singular "sin" (not "sins") indicates that Jesus' sacrifice for sin potentially reaches all human beings. John makes clear, however, that its efficacious effect is only for those who receive Christ (vv. 11, 12). (MacArthur)
+
+1:29: **се, Агнец Божий**. "Се" употреблено потому, что многие уже давно, вследствие слов Иоанна, хотели видеть Его. Поэтому Иоанн и указывает Его, когда Он явился, и говорит: се, выражая этим, что Он есть Тот, Кого издавна ожидали. (Свт. Иоанн Златоуст)
+
+1:29: **се, Агнец Божий**. Многих, кто тщательно занимался пророческою книгою Исайи, занимал вопрос, кто был Тот Агнец. И вот, говорит Иоанн, Тот Агнец, Которого ищут; Тот Агнец, вот здесь. Тот Агнец, Которого прообраз указан у Моисея (Исх. 12) и о Котором возвещает Исаия (53).
+
+1:29: **се, Агнец Божий**. Kреститель назвал Христа Агнцем (ὁ ἀμνός) Божиим в том смысле, что Его Сам Бог избрал и приготовил для заклания в жертву за грехи людей, подобно тому как евреи при выходе из Египта готовили агнцев, кровь которых должна была спасти их дома от грозного суда Божия (Исх.12:7). Бог давно уже избрал Этого Агнца (Откр.13:8; 1Пет.1:20) и теперь давал Его людям – всем людям без исключения. (Лопухин А.П.)
+
+1:29: **вот Агнец Божий, Который берет на Себя грех мира**. Называет его не Судией, судящим мир, хотя Он и есть Судия, но Агнцем Божиим, берущим на Себя грехи мира, то есть свидетельствует людям, что Он пришел в мир не судить грешников за грехи, но взять их грехи, как и Сам о Себе сказал Сын Божий: «Не послал Бог Сына Своего в мир, чтобы судить мир, но чтобы мир спасен был чрез Него» (Ин 3:17). Согласно этому и апостол Его написал: «Христос Иисус пришел в мир спасти грешников» (1Тим 1:15).
+Видим, что один Он берет на Себя грехи всего мира, но берет грехи тех, которые каются истинно, и перестают грехи ко грехам прилагать, и к Нему с верой прибегают, и просят отпущения грехов, – тем Он отпускает грехи.
+(Свт. Тихон Задонский)
 
 1:31: **I myself did not know Him**. John probably means that he did not know that Jesus was the Messiah until he saw the sign of the dove. (ESV)
 
