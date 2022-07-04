@@ -672,13 +672,9 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 
 1:31: **не знал Его**. Когда Иоанн удерживал Иисуса от Крещения (Мф 3:14: "удерживал Его и говорил: мне надобно креститься от Тебя, и Ты ли приходишь ко мне") — он уже знал, что Иисус превосходнее многих других. Возможно, даже знал, что Он Христос. Но тем не менее, после крещения, и знамения голубя, Иоанн узнал о Нём столь много больше, что теперь говорит: "раньше я не знал". "Я понятия не имел, Кто Он". А теперь знает: и умом, и внутренним пониманием. (Блж. Феофилакт Болгарский)
 
-
-
 1:32: "I saw the Spirit descend .. and it remained on Him**. The Spirit did not merely descend on Jesus; He remained on Him: a sign of divine anointing. Previously, in the Old Testament, the Spirit came upon people to enable them to accomplish certain God-given tasks, but Isaiah predicted that the Messiah would be full of the Spirit at all times (Isa 11:2: "And the Spirit of the LORD shall rest upon him, the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and the fear of the LORD."; Isa 61:1: "The Spirit of the Lord GOD is upon me, because the LORD has tanointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and uthe opening of the prison to those who are bound;"). (ESV)
 
 1:33: **увидишь Духа сходящего и пребывающего на Нем**. Христос не нуждался в крещении, ни в этом, ни в каком-либо другом, а, лучше сказать, крещение имело нужду в силе Христовой. Ведь главнейшим из всех благ оставалось то, чтобы крещаемый удостаивался Духа. Потому Христос, когда пришел, приложил это дарование Духа. (Свт. Иоанн Златоуст)
-
-1:34: **this is the Son of God**.
 
 ### Jesus Calls the First Disciples
 
@@ -698,20 +694,31 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 
 ### Jesus Calls Philip and Nathanael
 
+1:44: **Bethsaida, the city of Andrew and Peter**. Most likely, Peter and Andrew grew up in Bethsaida and later relocated to Capernaum. In the same way, Jesus was consistently identified with His hometown of Nazareth, though He lived elsewhere later. (MacArthur)
 
 1:46: **Can anything good come out of Nazareth?**. Nazareth was inhabited largely by people noted for their crude and violent ways. The term "Nazarene" ahd long been a term of derision, used to describe any person who was rough and rude. Nathanael was not given to maligning his neighbors (v. 47, "no guile"), but he was shocked that the one "of whom Moses wrote" (v. 45) actually could come from such a disreputable place as Nazareth. (MacArthur)
+
+1:47: **Израильтянин, в котором нет лукавства**. Нафанаил был верующим в Бога Израилева, и обладал некоторыми похвальными качествами ещё до встречи с Иисусом.
+
+1:47: **no deceit**. A person with an honest, seeking heart. In Jesus' mind, an honest and sincere Israelite had become an exception rather than the rule. (MacArthur)
 
 1:48: **when you were under a fig tree**. Nathanael must have had some intense moments under that fig tree, and he must have been sure that only God could've heard him — because when he learns that Jesus saw him, he calls Jesus “Son of God".
 
 1:48: **under a fig tree**. What’s he doing under a fig tree?
 Fig trees were planted around houses: they provided a very great shade area. In many poorer homes there was only one room, so a fig tree is also a place where you can go to get away from the house. So it becase a place or retreat, of prayer, meditation, contemplation, and a place of communing with God. Nathanael, as so many Jews did, may have been praying there. He was seeking God in the privacy of the shade of the fig tree.
-And Jesus is saying: "I saw you. In your private place, I saw you". Not just "you", but your seeking, your open heart, your true desire. "I saw that you wante to know, and I'm here".
+And Jesus is saying: "I saw you. In your private place, I saw you". Not just "you", but your seeking, your open heart, your true desire. "I saw that you want to know, and I'm here".
 Very possibly, Nathanael was praying "Lord, show me your Messiah". And here comes Philip: "Nathanael, I found Him, your prayer is answered".
 (MacArthur)
 
 1:50: **Because I said to you .. do you believe?** Nathanael was impressed by this little act of omniscience, but Jesus says, "you're going to see greater things than that". (MacArthur)
 
 1:51: **angels anscending and descending**. He’s saying this: Nathanael, You think you saw divine power in that one act of omniscience? From here on you’re going to see stuff going on all the time between heaven and earth. You’re going to see heaven open. And he has. Miracle, after miracle, after miracle. (MacArthur)
+
+1:51: **angels anscending and descending**. Jesus will be a greater way of access to God than the ladder of Gen 28:12: wherever Jesus is, that place will become the "New Bethel" where God is revealed. (ESV)
+
+1:51: **angels anscending and descending**. Nathanael and the other disciples would experience supernatural communication confirming who Jesus was. Moreover, a ladder is replaced by "Son of Man", signifying that Jesus was the means of access between God and man. (MacArthur)
+
+1:51: **the Son of Man**. Jesus is not merely "a son of man" (an ordinary human being), but He repeatedly (over 80 times in the Gospels) calls Himself "the Son of Man", suggesting one special son of this kind. It is thus a messianic title that refers back to the mysterious, human-divine figure of "one like a son of man" in Dan 7:13-14. (ESV)
 
 ## 2
 
