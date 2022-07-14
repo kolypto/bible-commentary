@@ -676,6 +676,11 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 
 1:33: **увидишь Духа сходящего и пребывающего на Нем**. Христос не нуждался в крещении, ни в этом, ни в каком-либо другом, а, лучше сказать, крещение имело нужду в силе Христовой. Ведь главнейшим из всех благ оставалось то, чтобы крещаемый удостаивался Духа. Потому Христос, когда пришел, приложил это дарование Духа. (Свт. Иоанн Златоуст)
 
+1:36: **увидев идущего Иисуса**. Иоанн «вперил свой взор» в Иисуса (ἐμβλέψας, смотреть не отрывая взгляд), Kоторый в это время в некотором отдалении ходил, как бы осматривая местность (περιπατοῦντι, по-русски неточно – «идущего»).
+
+1:36: **saw Jesus walking by**. **Saw** (Gk. emblepsas): From en and blepo; to look on, i.e. to observe fixedly, or to discern clearly. To stare (look) at with a "locked-in gaze"; look at in a sustained, concentrated way, i.e. with special "interest, love or concern" (Strong)
+**Walking by** (Gk. peripatounti): to walk around, i.e. in a complete circle. (Strong)
+
 ### Jesus Calls the First Disciples
 
 1:38: **обратившись и увидев их идущих**. Оба ученика молча шли за Иисусом, не смея сами начать с Ним беседу. (Лопухин А.П.)
@@ -698,13 +703,21 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 
 1:40: **Андрей**. Так как первым учеником Христа назван точно по имени Андрей, то Церковь издревле усвоила ему наименование «Первозванного». (Лопухин А.П.)
 
+1:41: **мы нашли Мессию**. Это слова сильно радующегося: мы нашли Того, Кого искали, Которого предвозвестили Писания. Смотри, как даже рыбаки были внимательны к Писаниям, а мы, даже постоянно обращающиеся с ними, не столько внимательны. (Евфимий Зигабен)
+
 1:41: **Messiah**. Means "anointed" (usually by God). Messiah is a summary term that gathers up many expectations about a coming of the "anointed one" who would lead and teach and save God's people. (ESV)
 
 1:41: **Messiah**. "Messiah" is a Hebrew verbal adjective that comes from a verb "to anoint": to consecrate to a particular office or function. It was first applied to the king of Israel (1 Sam 16:6), the high priest (Lev 4:3), and, in one passage, to the patriarchs (Ps 105:15). Messiah or Christ are titles, not personal names of Jesus. (MacArthur)
 
+1:42: **взглянув на него**. Взглянув (Gk. emblepsas): устремил на Петра пристальный взор (emplepsas; см. ст. 36) и сказал ему, что знает, кто он (Лопухин А.П.)
+
 1:42: **when Jesus looked at him**. Jesus knows hearts thoroughly (vv. 43-51, with Nathanael) and not only sees into them, but also transforms a person into what He wants him to become. Simon's new name, Peter ("rock") is not only predictive, but also declarative of how Jesus would transform his character and use him for the foundation of the church. (MacArthur)
 
 1:42: **You shall be called "Cephas"**. In Aramaic, meaning "rock". In the OT God frequently changed people's names to indicate their special calling, e.g. Abaraham. (ESV)
+
+1:42: **ты - Симон, сын Ионин; ты наречешься Кифа, что значит: камень Петр**. Господь, взглянувши на него, говорит ему: ты – Симон, сын Ионин, тогда как ни от кого не слыхал, что его зовут именно Симоном и что у него отец – Иона; затем дает ему новое имя Петр, выражающее твердость его исповедания, а чтобы дать такое имя, нужно было видеть расположение души Симоновой и его будущую ревность по вере.
+Божество нашего Спасителя очевидно из Его учения, Его чудес и едва не всех поступков: полнота Божества, обитавшего в Нем, преливалась, так сказать, в каждом Его деле и слове, даже во взорах.
+(Прав. Иоанн Кронштадтский)
 
 ### Jesus Calls Philip and Nathanael
 
