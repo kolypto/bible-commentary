@@ -4571,7 +4571,7 @@ Now let’s look at what Abraham’s servant asked as a sign for Isaac’s wife,
 
 ### God's Promise to Isaac
 
-=26:1: Глава 26 — единственная в книге Бытия глава, посвященная исключительно истории Исаака, тогда как со ст. 20 гл. 25, равно и в гл. 27 и 28, 16 ст., история Исаака соединяется с историей сынов его, а ранее того она входила в историю Авраама. (Лопухин А.П.)
+26:xx: Глава 26 — единственная в книге Бытия глава, посвященная исключительно истории Исаака, тогда как со ст. 20 гл. 25, равно и в гл. 27 и 28, 16 ст., история Исаака соединяется с историей сынов его, а ранее того она входила в историю Авраама. (Лопухин А.П.)
 
 26:1-2: **The former famine.** On that occasion Abraham went down to Egypt. Isaac, however, is stopped by God and instructed to remain in Gerar while he was already moving south. (ESV)
 

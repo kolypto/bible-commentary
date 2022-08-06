@@ -791,7 +791,86 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 ## 2
 
-2:15: Jesus actually has disrupted the normal functioning of the Temple: animals were sold to be sacrificed, and money-changers enabled foreigners to change their money to the currency accepted by the Temple.
+### The Wedding at Cana
+
+2:1: **On the third day**. That is, two days after Jesus' encounter with Nathanael. This continues the narration of Jesus' activities spanning an entire week. (ESV)
+
+2:1: **wedding at Cana**. Cana was the home of Nathanael (Jn 21:2: "Nathanael of Cana in Galilee"). (MacArthur)
+
+2:1: **wedding**. Such a celebration could last for a week. Financial responsibility lay with the groom. (MacArthur)
+
+2:2: **Jesus also was invited with his disciples**. The fact that Jesus, His mother, and His disciples all attended the wedding suggests that the wedding may have been for a relative of close family friend. (MacArthur)
+
+2:2: **with His disciples**. Andrew, Peter, Philip, Nathanael, and the unnamed disciple John. (MacArthur)
+
+2:3: **wine ran out**. To run of wine for the guests would have been an embarrassment to the groom. (MacArthur)22
+
+2:3: **wine ran out**. The wedding party's running out of wine may be seen as symbolizing the spiritual barrenness of first-century Judaism, especially against at OT background that viewed wine as a sign of joy and God's blessing (see: Ps 104:15: "wine to gladded the heart of man"; Prov 3:10: "your vats will be bursting with wine"; Mt 26:29: "until the day when I drink it new with you in my Father's kingdom"). (ESV)
+
+2:4: **Woman**. Jesus' address for this mother is an expression of polite distance, as His questions to her. (ESV)
+
+2:4: **Woman**. The term is not necessarily impolite, but it does have the effect of distancing from His mother and her request. Perhaps, it has the equivalent of "ma'am". (MacArthur)
+
+2:4: **what does this have to do with me?**. The expression, common in Semitic idiom (Judg 11:12: "what do you have against me"; 2 Sam 16:10: "what have I to do with you"), always distances the two parties. (ESV)
+
+2:4: **My hour has not yet come**. Jesus chooses not to reveal Himself openly to Israel because of people's misconceptions about the coming Messiah. He does perform numerous messianic "signs", but this miracle is done quietly. (ESV)
+
+2:4: **My hour has not yet come**. The phrase constantly refers to Jesus' death and exaltation (Jn 7:30: "no one laid a hand on Him, because His hour had not yet come"; 8:20: "no one arrested Him, because His hour had not yet come"; 12:23: "The hour has come for the Son of Man to be gloridied"; 12:27: "shall I say 'Father, save me from this hour?'; but for this purpose I have come to this hour"; 13:1: "Jesus knew that his hour had come to depart out of this world to the Father"; 17:1: "Father, the hour has come"). He was on a divine schedule decreed by God before the foundation of the world. (MacArthur)
+
+2:4: **My hour has not yet come**. Since the prophets characterized the messianic age as a time when wine would flow liberally (Jer 31:12: "they shall be radiant over the goodness of the Lord, over the grain, the wine, and the oil"; Hos 14:7: "they shall blossom like the vine"; Amos 9:13-14: "the days are coming .. when the plowman shall overtake the reaper, .. and the mountains shall drip with sweet wine"). Jesus likely refers to the fact that the necessity of the Corss must come before the blessings of the millennial age. (MacArthur)
+
+2:10: **you have kept the good wine until now**. Good wine has already been served in the beginning of the wedding, but Jesus' wine was better than good.
+
+2:10: **you have kept the good wine until now**. John also highlights the exceptional and striking nature of the feat: the large quantity and high quality of wine (2:6,10), official's son hea2led a long distance away (4:47-50), the invalid's recovery from a 38-year-long ordeal (5:5), the large quantity of food produced by Jesus (6:13), the man's recovery from lifelong blindness (9:1-2), and the raising of Lazarus after four days in the tomb (11:17,39). (ESV)
+
+2:11: **signs**. In the Gospel of John, "signs" point beyond themselves to the deeper divine realities that could be perceived by the eyes of faith. (MacArthur)
+
+2:11: **the first of His signs**. A sign is a miracle that attests to Jesus' identity as Messiah and Son of God and leads unbelievers to faith. A sign is a pointer to the Messiah. In each of the signs that John includes, the emphasis is on the way in which the sign reveals Jesus' messianic character. (ESV)
+
+2:11: **the first of His signs**. This statement indicates that Jesus did not do any miracles during his childhood or early manhood, contrary to dozens of apocryphal gospel stories. He lived as an ordinary man with his divine identity hidden. (ESV)
+
+2:11: **manifested His glory**. The miracle showed the glory of Jesus as the sovereign Creator and ruler of the material universe and also as the merciful God who provides abundantly for his people's needs. (ESV)
+
+2:12: **went down**. Cana was in the hills, 26km away to the southwest of Capernaum. (ESV)
+
+2:12: **Capernaum**. Capernaum served as Jesus' headquarters after the Baptist's imprisonment (Mt 4:12-13: "when He heard that John had been arrested, he withdrew to Galillee ... and lived in Capernaum by the sea"). (ESV)
+
+
+### Jesus Cleanses the Temple
+
+2:xx: The first way John demonstrated Chirst's deity was to show His passion for reverence. God alone exercises the right to regulate His worship. (MacArthur)
+
+2:13: **The Passover of the Jews**. The first of three Passovers which John mentions (6:4; 11:55). That is, John did not miss any of the Passovers during Jesus' years of ministry. Each Passover had significance.
+
+2:13: **went up**. Jerusalem was located at a higher elevation than Galilee, and because it was the capital. (ESV)h
+
+2:14: **selling oxen and sheep and pigeons**. The merchants rendered a service to those who had traveled to Jerusalem from afar, enabling them to buy the animals on-site rather than having to carry them for long distances. By conducting this their business in the temple complex, however, these individuals disrupted the worship of non-Jewish God-fearers and thus obstructed the very purpose for which the temple existed. (ESV)
+
+2:15: **drove them all out of the temple**. Jesus actually has disrupted the normal functioning of the Temple: animals were sold to be sacrificed, and money-changers enabled foreigners to change their money to the currency accepted by the Temple.
+
+2:15: **those who sold**. Opportunistic merchants saw the possibility of considerable profit during Passover when worshipers came from all over Israel. (MacArthur)
+
+2:15: **moneychangers**. The temple tax had to be in Jewish or Tyrian coinage (because of its high purity silver). Those coming from foreign lands would need to exchange their money into the proper coninage. The money changers charged a high fee for the exchange. Because of the scale of the celebration, exchangers exploited the situation for monetary gain. (MacArthur)
+
+2:15: **drove them all out**. Although His physical action was forceful, it was not cruel. The moderation of His action is seen in the fact that no uproar occurred with the Passover crowds, in which case the specifically large contingent of Roman troops stationed in the Antonia Fortress overlooking the temple did would have reacted swiftly. (MacArthur)
+
+2:16: **do not make**. Better be translated, "stop making". (MacArthur)
+
+2:17: **Zeal for your house will consume me**. Indicates that Jesus would not tolerate irreverence toward God. When David wrote this psalm, he was being persecuted because of his zeal toward God's house and his defense of God's honor. The disciples were afraid that Jesus' actions would precipitate the same type of persecution. (MacArthur)
+
+2:18: **sign**. The Jews demanded a miraculous sign that would indicate His authority for regulating the activities of the temple. (MacArthur)
+
+2:18: **Destroy this temple, and in three days I will raise it up**. The second way John demonstrated Christ's deity is His power over death through resurrection. (MacArthur)
+
+2:19: **I will raise it up**. Implies that Jesus would have a part in raising Himself from the dead. (ESV)
+
+### Jesus Knows What Is in Man
+
+2:23: **many believed in His Name**. This section serves as an introduction to Jesus' encounter with Nicodemus. (ESV)
+
+2:24: **did not entrust Himself to them**. It's a wordplay in Greek. People "believed" (episteusan) in His Name, but He did not "entrust" (episteuen) Himself to them. (ESV)
+
+2:24: **did not entrust Himself to them**. Knowing the hearts of men, Jesus looked for genuine conversion rather than enthusiasm for the spectacular. (MacArthur)
 
 ## 3
 
