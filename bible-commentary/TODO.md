@@ -14,6 +14,11 @@ http://www.sinergia-lib.ru/index.php?section_id=982
 * Jn: 1-
 
 
+## TODO:
+
+* Matthew: + Осипов: Жизнь с Евангелием. https://alexey-osipov.ru/books-and-publications/knigi/zhizn-s-evangeliem/
+
+
 
 Style:
 
@@ -27,7 +32,8 @@ Style:
 
 19:16: ⭐ **quote**. An especially interesting commentary. Wow.
 
-28:12: Authorship in parentheses. ［Edito's notes in square brackets.］ (Author or Source)
-
 17:12: **quote** (Перевод) Переведённый текст комментария приведённого выше
 
+28:12: Authorship in parentheses. ［Editor's notes in square brackets.］ (Author or Source)
+
+2:6: **стих**. Неточная цитата. (~Автор оригинала)
