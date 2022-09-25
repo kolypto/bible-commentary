@@ -984,7 +984,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 ## 3
 
-3:xx: Беседа с Никодимом изображает духовную природу Царства Божия, а беседа с самарянкой - всеобщий характер этого Царства (Лопухин А.П.)
+3:xx: Беседа с Никодимом изображает духовную природу Царства Божия, а беседа с самарянкой (глава 4) - всеобщий характер этого Царства (Лопухин А.П.)
 
 3:1: The fact that he came **at night** suggests he was ashamed of being seen with Jesus. (MacArthur)
 
@@ -992,11 +992,19 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:2: Even though Nicodemus did not ask a question, Jesus knew the question he had on his heart.
 
+3:2-21: (__диалоги Иисуса__) **мы знаем, что Ты — учитель**. Никодим пришёл к Иисусу ночью, потому что у него был вопрос. Какой? Этот вопрос касался Царствия Божия: как войти в него, как стать его частью. Никодим даже не успел его задать: он только поприветствовал Иисуса, выразив уважение (ст 2: "мы знаем, что ты — Учитель .. от Бога"), но Иисус сразу дал ответ на вопрос его сердца: нужно родиться свыше (ст 3: "если кто не родится свыше, не может увидеть Царствия Божия"). Никодим не понимает, что значит "родиться свыше" (ст. 4). Иисус объясняет, что Никодим родился телесно (ст. 6, "от плоти"), но чтобы войти в Царствие, нужно быть духовным, и родиться духовно (ст. 6). Как? Человек не знает, как это происходит, и не может совершить этого сам: он лишь наблюдает, как Дух действует в его жизни (ст. 8: "слышишь, а не знаешь откуда"). Более того, человек может желать, чтобы Дух действовал в его жизни, но Дух выбирает, когда Ему приходить (ст. 8: "Дух (ветер) дышит где хочет", и Дух Божий действует так же). То есть, человек, рождённый от Духа, не сможет объяснить, как это с ним произошло, но он видит результат: Действие Духа в его жизни (ст. 8: "так бывает со всяким, рождённым от Духа").
+Никодим снова не понял, о чём идёт речь, за что Иисус журит его (ст. 9-10: "ты учитель Израилев"). Далее Иисус намекает, что Он был на небесах, и рассказывает о духовных вещах, которые знает и видел Сам (ст. 11-13: "никто не восходит на небо" — и мы "свидетельствуем о том, что видели"). Но если для Никодима даже слова про действие Духа на земле не понятны — то тем более будет непонятно, если Иисус заговорит о подлинно духовных вещах (ст. 12: "как поверите, если буду говорить вам о небесном?").
+Иисус объясняет про действие Бога на земле, и объясняет, почему Дух Божий действует в людях: "Ибо так возлюбил Бог мир" (ст. 16), что даже Сына Своего отдал на смерть — потому что это требовалось для того, чтобы спасти людей (ст. 16: "дабы всякий, верующий в Него, не погиб").
+Могло бы казаться, что Бог спуститься в мир, чтобы судить мир за его дела — но любящий Бог не такой: Он пришёл не чтобы судить, а чтобы спасти мир (ст. 17: "чтобы мир был спасён чрез Него").
+О спасении и суде — см. комментарий к стиху 17.
+
 3:2: We are not told specifically what his intentions were in coming to Jesus because his first words were not a question but a testimony. Though he does not state it, the question that was on his mind is implied from his testimony and from Jesus’ reply. The Lord knew Nicodemus’ mind and the question he had: Nicodemus wanted to know how to please God, how to be forgiven. How can he be made righteous? how to be redeemed and become a child of God? How can he become part of God’s kingdom? (MacArthur)
 
 3:3:  "**Water**" cannot refer to the breaking of water when a person is physically born. Jesus cannot be saying to Nicodemus that a man has to be physically born because it was obvious he'd already passed that test. Secondly, the Jews didn't call that "water", they did not have that expression, and we cannot read modern language into it. Other had said that He referred to baptism, but Christian was not even instituted until Acts 2.
 Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. How, then, Nicodemus have understood the saying? As a Christian baptistm? — No. The answer goes back to Ezekiel 36:25-27: "I will sprinkle clean water on you, and you shall be clean from all your uncleannesses [...] and I will give you a new heart, and a new spirit I will put within you. [...] and cause you to walk in my statutes and be careful to obey my rules". What Ezekiel is writing there is that the day will come when the Lord will wash your heart, He'll wash your life, He'll wash your inner man, He'll put a new heart in you, and He'll put His Spirit in you. So when Jesus talks to Nicodemus and says "you must be born **of water and the Spirit**", Nicodemus knows immediately that He is saying "I am come to bring the fulfillment of the new covenant promised through Ezekiel". That's what Paul would call "the [internal] washing of regeneration and the renewing [that comes by] the Holy Spirit" (Tit 3:5)
 (MacArthur)
+
+3:8: **Дух дышит, где хочет, и голос его слышишь, а не знаешь, откуда**. Бог меняет сердца людей — но люди не могут понять, как и откуда Он приходит. И Дух приходит, когда хочет: наше желание необходимо, но когда приходить — выбирает Дух.
 
 3:16: There’s a **faith** that’s temporary, partial, inadequate, that’s different than the faith that saves.  John 3:16, the word there “**believe**”, “**whosoever believes shall not perish**,” the word “believe” there is the same word in John 2:24 translated “commit – commit.”  It’s something deeper than just believing facts; it’s committing one’s life, turning from sin, submitting to Christ, and the Spirit of God works it all and produces a changed life.  You see, salvation and saving faith is more than wanting forgiveness, it’s more than wanting heaven; it’s being willing to turn from sin and submit to Christ.  Yet, beloved, shockingly – and I say that advisedly – shockingly, there are Bible teachers and preachers in fundamental evangelicalism who do not allow for any connection necessarily between faith and works.  And therefore they are forced to receive as genuine virtually every profession of faith, because if there’s not necessarily a correlation between faith and works, then any profession is a valid one. 
 (MacArthur)
@@ -1005,6 +1013,11 @@ Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. H
 
 3:16: **Бог есть любовь**. Если вспомнить языческие релегии, то какие у них боги? Обладающие всеми теми же пороками, что и люди. В самом продвинутом случае человеческая мысль решила что Бог -- это вселенский принцип справедливости. А христианство что говорит? Что Бог есть любовь. Не такая любовь, как у нас людей -- что мы добро творим тем кто нам нравится, а кто не нравится -- ухх покажу я тебе где раки зимуют! Божья любовь -- она всегда направлена на то, чтобы принести добро человеку.
 (Осипов)
+
+3:17: **не судить .. но чтобы мир спасён был**. Как работает это спасение через веру? И почему судится неверующий в Него?
+Как Бог пришёл в мир — это всё равно что чистый свет явился в полумраке: люди, узнавшие хоть немного о Христе, понимают, что через Него можно прийти к чистоте, праведности, честности, любви к людям. Люди, для чьих сердец это ценность — почувтсвуют родство, и потянутся. Отторжение же может испытать только тот, кто на самом деле "ненавидит свет и не идёт к свету, потому что они злы" (ст. 20).
+В этом и состоит суд: реакция человека на свет показывает, чем он дорожит. И только любящий тьму может отвернуться и не верить.
+
 
 ## 4
 
