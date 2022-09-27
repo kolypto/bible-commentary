@@ -984,13 +984,25 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 ## 3
 
+### You Must Be Born Again
+
 3:xx: Беседа с Никодимом изображает духовную природу Царства Божия, а беседа с самарянкой (глава 4) - всеобщий характер этого Царства (Лопухин А.П.)
 
-3:1: The fact that he came **at night** suggests he was ashamed of being seen with Jesus. (MacArthur)
+3:1: **Pharisee .. a ruler of the Jews**. He was a Pharisee, a teacher of the law, and a ruler in the Sanhedrin; but he knew in his heart that all of that did not make him right with God. (MacArthur)
 
-3:1: Had he not had a deep, compelling desire to know God’s will, he would not have risked coming to Jesus even at night. **Nicodemus** was honest enough to admin his sinfulness. He was a **Pharisee**, a teacher of the law, and a **ruler** in the Sanhedrin; but he knew in his heart that all of that did not make him right with God. (MacArthur)
+3:1: **Pharisee**. Highly zealous for ritual and religious purity according to the Mosaic Law, as well as their own traditions that they added to the OT legislation. They were not priests, but their orthodoxy strongly influenced the common people of Israel. Jesus condemned them for their hyperconcentration on externalizing religion (rules and regulations) rather than inward spiritual transformation. (ESV)
 
-3:2: Even though Nicodemus did not ask a question, Jesus knew the question he had on his heart.
+3:1: **Nicodemus**. His name was Greek in origin: "victor over the people" (Gk. *nike*, *demos*). (ESV)
+
+3:1: **Ruler of the Jews**. A member of the Sanhedrin: comprised of the high priest, chief priests, elders, and scribes for a total of 71 people, it executed both civil and criminal jurisdiction according to Jewish law. (MacArthur)
+
+3:2: **by night**. Usually carries a symbolic overtone of spritual darkness elsewhere in John (Jn 9:4: "night is coming, when no one can work"; 11:10: "if anyone walks in the night, he stumbles, because the light is not in him"; 13:30: "［Judas］ immediately went out. And it was night."; but not 21:3: "that night they caught nothing").
+
+3:2: **by night**. The fact that he came at night suggests he was ashamed of being seen with Jesus: he risked disfavor with his fellow Pharisees, among whom Jesus was generally unpopular. (MacArthur)
+
+3:2: **said to Him**. Even though Nicodemus did not ask a question, Jesus knew the question he had on his heart.
+
+3:2: **Rabbi**. The address "Rabbi" denotes respect, especially since it was known that Jesus did not have formal rabbinic training. (ESV)
 
 3:2-21: (__диалоги Иисуса__) **мы знаем, что Ты — учитель**. Никодим пришёл к Иисусу ночью, потому что у него был вопрос. Какой? Этот вопрос касался Царствия Божия: как войти в него, как стать его частью. Никодим даже не успел его задать: он только поприветствовал Иисуса, выразив уважение (ст 2: "мы знаем, что ты — Учитель .. от Бога"), но Иисус сразу дал ответ на вопрос его сердца: нужно родиться свыше (ст 3: "если кто не родится свыше, не может увидеть Царствия Божия"). Никодим не понимает, что значит "родиться свыше" (ст. 4). Иисус объясняет, что Никодим родился телесно (ст. 6, "от плоти"), но чтобы войти в Царствие, нужно быть духовным, и родиться духовно (ст. 6). Как? Человек не знает, как это происходит, и не может совершить этого сам: он лишь наблюдает, как Дух действует в его жизни (ст. 8: "слышишь, а не знаешь откуда"). Более того, человек может желать, чтобы Дух действовал в его жизни, но Дух выбирает, когда Ему приходить (ст. 8: "Дух (ветер) дышит где хочет", и Дух Божий действует так же). То есть, человек, рождённый от Духа, не сможет объяснить, как это с ним произошло, но он видит результат: Действие Духа в его жизни (ст. 8: "так бывает со всяким, рождённым от Духа").
 Никодим снова не понял, о чём идёт речь, за что Иисус журит его (ст. 9-10: "ты учитель Израилев"). Далее Иисус намекает, что Он был на небесах, и рассказывает о духовных вещах, которые знает и видел Сам (ст. 11-13: "никто не восходит на небо" — и мы "свидетельствуем о том, что видели"). Но если для Никодима даже слова про действие Духа на земле не понятны — то тем более будет непонятно, если Иисус заговорит о подлинно духовных вещах (ст. 12: "как поверите, если буду говорить вам о небесном?").
@@ -998,32 +1010,102 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 Могло бы казаться, что Бог спуститься в мир, чтобы судить мир за его дела — но любящий Бог не такой: Он пришёл не чтобы судить, а чтобы спасти мир (ст. 17: "чтобы мир был спасён чрез Него").
 О спасении и суде — см. комментарий к стиху 17.
 
-3:2: We are not told specifically what his intentions were in coming to Jesus because his first words were not a question but a testimony. Though he does not state it, the question that was on his mind is implied from his testimony and from Jesus’ reply. The Lord knew Nicodemus’ mind and the question he had: Nicodemus wanted to know how to please God, how to be forgiven. How can he be made righteous? how to be redeemed and become a child of God? How can he become part of God’s kingdom? (MacArthur)
+3:2: **came to Jesus**. Nicodemus did not state it, but the question that was on his mind was: how to please God? How to be forgiven? How can he be made righteous? How to be redeemed and become a child of God? How can he become part of God’s kingdom? (MacArthur)
 
-3:3:  "**Water**" cannot refer to the breaking of water when a person is physically born. Jesus cannot be saying to Nicodemus that a man has to be physically born because it was obvious he'd already passed that test. Secondly, the Jews didn't call that "water", they did not have that expression, and we cannot read modern language into it. Other had said that He referred to baptism, but Christian was not even instituted until Acts 2.
-Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. How, then, Nicodemus have understood the saying? As a Christian baptistm? — No. The answer goes back to Ezekiel 36:25-27: "I will sprinkle clean water on you, and you shall be clean from all your uncleannesses [...] and I will give you a new heart, and a new spirit I will put within you. [...] and cause you to walk in my statutes and be careful to obey my rules". What Ezekiel is writing there is that the day will come when the Lord will wash your heart, He'll wash your life, He'll wash your inner man, He'll put a new heart in you, and He'll put His Spirit in you. So when Jesus talks to Nicodemus and says "you must be born **of water and the Spirit**", Nicodemus knows immediately that He is saying "I am come to bring the fulfillment of the new covenant promised through Ezekiel". That's what Paul would call "the [internal] washing of regeneration and the renewing [that comes by] the Holy Spirit" (Tit 3:5)
-(MacArthur)
+3:3: **Jesus answered him**. The answer evidences Jesus' ability to know men's hearts (Jn 2:23-24) and thereby demonstrates Jesus' deity. (MacArthur)
+
+3:3: **Jesus answered him**. Jesus answered a question that Nicodemusdid not even ask. He read Nicodemus' heart and came to the very core of his problem: the need for spiritual transformation produced by the Holy Spirit. (MacArthur)
+
+3:3: **unless one is born again, he cannot see the kingdom of God**. Jesus presented God's plan of salvation to Nicodemus: the way for people to enter God's Kingdom. (MacArthur)
+
+3:3: **born again**. Literally, "born from above". New birth is an act of God whereby eternal life is imparted to the believer (Titus 3:5: "He saved us .. by the washing of regeneration and renewal of the Holy Spirit"; 1 Jn 3:9: "No one born of God makes a practice of sinning, for God's seed abides in him; and he cannot keep on sinning, because he has been born of God"). (MacArthur)
+
+3:5: **born of water and the Spirit**. Refers to spiritual birth, which cleanses from sin and brings spiritual transformation and renewal. (ESV)
+
+3:5: **born of water**. Cannot refer to the breaking of water when a person is born — because obviously, Nicodemus has already passed that test. Secondly, Jews did not call that "water". (MacArthur)
+
+3:5: **born of water**. Figuratively in the OT, water refers to renewal or spiritual cleansing. (MacArthur)
+
+3:5: **born of water**. How has Nicodemus undestood that saying? Not as a Christian baptism: it has not yet been instituted. Nicodemus would have understood it as the fulfillment of the new covenant promised through Ezekiel: "I will sprinkle clean water on you, and you shall be clean from all your uncleannesses [...] and I will give you a new heart, and a new spirit I will put within you. [...] and cause you to walk in my statutes and be careful to obey my rules" (Ezek 36:25-27). What Ezekiel is writing there is that the day will come when the Lord will wash your heart, He'll wash your life, He'll wash your inner man, He'll put a new heart in you, and He'll put His Spirit in you. It is "the [internal] washing of regeneration and the renewing [that comes by] the Holy Spirit" (Tit 3:5). (MacArthur)
+
+3:5: **unless one is born .. he cannot enter the Kingdom of God**. Pharisees eagerly expected the coming of the prophesied resurrection of the saints, but they thought that mere physical lineage and keeping of religious externals qualified them for entrace into the kingdom. Jesus emphasized the need for a spiritual transformation. (MacArthur)
+
+3:7: **I said to you (singular), you (plural) must be born again**. Plural carries broader application to all people: everyone "must be born again". (ESV)
+
+3:8: **wind .. Spirit**. Wind and Spirit are the same in Greek and Hebrew: *pneuma* and *ruach*. (ESV)
+
+3:8: **the wind blows where it wishes**. The Holy Spirit cannot be controlled or understood, but where the Spirit works, the effects can be witnessed, and there is undeniable and unmistakable evidence. (MacArthur)
 
 3:8: **Дух дышит, где хочет, и голос его слышишь, а не знаешь, откуда**. Бог меняет сердца людей — но люди не могут понять, как и откуда Он приходит. И Дух приходит, когда хочет: наше желание необходимо, но когда приходить — выбирает Дух.
 
-3:16: There’s a **faith** that’s temporary, partial, inadequate, that’s different than the faith that saves.  John 3:16, the word there “**believe**”, “**whosoever believes shall not perish**,” the word “believe” there is the same word in John 2:24 translated “commit – commit.”  It’s something deeper than just believing facts; it’s committing one’s life, turning from sin, submitting to Christ, and the Spirit of God works it all and produces a changed life.  You see, salvation and saving faith is more than wanting forgiveness, it’s more than wanting heaven; it’s being willing to turn from sin and submit to Christ.  Yet, beloved, shockingly – and I say that advisedly – shockingly, there are Bible teachers and preachers in fundamental evangelicalism who do not allow for any connection necessarily between faith and works.  And therefore they are forced to receive as genuine virtually every profession of faith, because if there’s not necessarily a correlation between faith and works, then any profession is a valid one. 
+3:10: **are you the teacher .. do not understand**. Even the greatest of Jewish teachers did not recognize this teaching on spiritual cleansing and transformation -- based clearly in the OT. Jesus' reply emphasized the spiritual bankruptcy of the nation at that time. (MacArthur)
+
+3:11: **you do not receive our witness**. The plural "you" addresses Israel, of whom Nicodemus was speaking as a representative (v.2: "we know"). Jesus indicated that Nicodemus' unbelief was typical of the nation as a collective whole. (MacArthur)
+
+3:14: **lifted up**. Typical Johannine double meaning: refers to both Jesus' death and ascension. This is the first of the three "lifed up" sayings (Jn 8:28: "when you have lifted up the Son of Man, then you will know that I am He"; 12:32: "when I am lifted up from the earth, will draw all people to myself"). (ESV)
+
+3:15: **eternal life**. Eternal life refers not only to eternal quantity, but divine quality of life. It means literally "the life of the age to come" and refers to heavenly existence in perfect glory and holiness. It is nothing less than participation in the eternal life of the Living Word, Jesus Christ.
+This life is experienced before heaven is reached. It is the life of God in every believer, yet not fully manifest until the resurrection.
 (MacArthur)
 
-3:16: See also note on Jn 14:15 which explains how faith means obedience.
+### For God So Loved the World
+
+3:16: **For**. Connects to v.15 and explains what happened to make it possible that someone can "have eternal life" (ESV)
+
+3:16: **loved the world**. Salvation is available not to Israel only, but to the whole humanity. This must have been a revelation to the Jews: even Romans could be saved.
+
+3:16: **believes in him should not perish**. "Believing" is deeper than just believing in facts: it's committing one's life, submitting to Christ as Lord. Saving faith is more than wanting forgiveness: it's being willing to turn from sin and submit to Christ. It is turning from sin and receiving a new nature which produces a change in heart and obedience to the Lord. (MacArthur)
+
+3:16: **believes in him**. See also note on Jn 14:15 which explains how faith means obedience.
 
 3:16: **Бог есть любовь**. Если вспомнить языческие релегии, то какие у них боги? Обладающие всеми теми же пороками, что и люди. В самом продвинутом случае человеческая мысль решила что Бог -- это вселенский принцип справедливости. А христианство что говорит? Что Бог есть любовь. Не такая любовь, как у нас людей -- что мы добро творим тем кто нам нравится, а кто не нравится -- ухх покажу я тебе где раки зимуют! Божья любовь -- она всегда направлена на то, чтобы принести добро человеку.
 (Осипов)
+
+3:17: **God .. send his Son**. The was a familiar concept in Jewish life that the messenger is like the sender himself. (ESV)
 
 3:17: **не судить .. но чтобы мир спасён был**. Как работает это спасение через веру? И почему судится неверующий в Него?
 Как Бог пришёл в мир — это всё равно что чистый свет явился в полумраке: люди, узнавшие хоть немного о Христе, понимают, что через Него можно прийти к чистоте, праведности, честности, любви к людям. Люди, для чьих сердец это ценность — почувтсвуют родство, и потянутся. Отторжение же может испытать только тот, кто на самом деле "ненавидит свет и не идёт к свету, потому что они злы" (ст. 20).
 В этом и состоит суд: реакция человека на свет показывает, чем он дорожит. И только любящий тьму может отвернуться и не верить.
 
+3:18: **condemned already**. Those who do not trust in Christ do not have a positive nor neutral standing before God: they stand condemned before God for their sins because they have not trusted God's solution for guilt. (ESV)
+
+3:18: **condemned already**. This verse refutes the assertion that a sincere person following any religion can have eternal life with God. Also: Acts 4:12: "there is salvation in no one else, for there is no other name under heaven given among men by which we must be saved"; Rom 10:13-17: "everyone who calls on the name of the Lord will be saved. And how then will they call on him in whom they have not believed?"; 1 Tim 2:5-6: "there is one God, and there is one mediator between God and men, the man Christ Jesus" (ESV)
+
+### John the Baptist Exalts Christ
+
+3:22: **Jesus .. was baptizing**. That is, overseeing His disciples (4:2: "(although Jesus himself did not baptize, but only his disciples)") as they continued administering the baptism of John, which was besed on repentance and which symbolized purification from sin. (ESV)
+
+3:25: **a dispute about purification**. Probably about how John's and Jesus' baptismal ministries related to Jews' purification practices. The real underlying impetus, however, centered in the concern of John's disciples that Jesus was in competition with him. (MacArthur)
+
+3:29: **the bridegroom**. Identifies Jesus as Israel's long-awaited King and Messiah. In the OT, Israrl is frequently depicted as God's bride (e.g. Isa 62:4-5; Jer 2:2; Hos 2:16-20). (ESV)
+
+3:29: **friend of bridegroom**. The one who organized the details and presided over the wedding. This friend found joy in watching the ceremony proceed without problems. (MacArthur)
+
+3:30: **He must increase, but I must decrease**. Now that the light has come, the "lamp" has done its work (Jn 5:35: "he was a burning and shining lamp"). (ESV)
+
+3:31-36: **comes from above .. he has seen and heard .. God has sent .. Spirit without measure**. John gives five reasons for Christ's superiority:
+1. Christ had a heavenly origin;
+2. Christ knew what was true by firsthand experience;
+3. Christ's testimony always agreed with God (v. 33);
+4. Christ experienced the Holy Spirit in an unlimited manner;
+5. Christ was supreme because the Father had sovereignly granted that status to Him.
+(MacArthur)
+
+3:36: **Has eternal life**. Eternal life is not a future expectation — but already a present experience. It is partially made the believer's possession even now in this present age.
+This is sometimes called "John's realized eschatology" (where "eschatology" means the events of the end times and the life of the age to come).
+(ESV)
 
 ## 4
 
+### Jesus and the Woman of Samaria
+
 4:19: **I perceive that you are a prophet**. Женщина только что убедилась, что сидящий перед ней Человек знает сокрытое. Встретив такого человека, из всех вопросов которые она могла бы задать, ей больше всего хотелось знать, как и где правильно поклониться Богу. У неё было ищущее сердце.
 
+### Jesus Heals an Official’s Son
+
 ## 5
+
+### The Healing at the Pool on the Sabbath
 
 5:25: Spiritually **dead** — those currently dead in sin — **will** come to **life**. (See: "you were dead in trespasses and sins" (Eph 2:6); " let the dead bury their own dead" (Mt 8:22)).
 
@@ -1035,7 +1117,7 @@ Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. H
 
 6:2: **The crowd** was following Jesus not because they wanted to learn from His teachings, but because they wanted to be entertained by His miracles, or perhaps, even benefit from them.
 
-6:6: What kind of “**test**” might that be? How would Philip pass this test, or fail? How could he possibly have known what Jesus **would do**? Perhaps, Jesus had done things like this before, and He expected Philip to ask Jesus to feed the crowd? 
+6:6: What kind of “**test**” might that be? How would Philip pass this test, or fail? How could he possibly have known what Jesus **would do**? Perhaps, Jesus had done things like this before, and He expected Philip to ask Jesus to feed the crowd?
 
 6:6: When God **tests** a person, who is going to learn something new from that test? Definitely not God, but the person. What was Philip going to learn about himself from that test?
 
@@ -1046,7 +1128,7 @@ Remember that Nicodemus was a ruler of the Jews (v. 1), a religious authority. H
 6:7-8: Here we see two different approaches. **Philip** has already given up and could only say “I do not know”, but **Andrew** attempts to find a solution even in a hopeless situation.
 This is how faith functions: one accepts the situation, does whatever little thing is possible to do, and then trusts God to do the rest. And this is what Jesus expects: the disciples should start solving the issue, then bring the issue to Him, so that He can miraculously provide for this need.
 
-6:15: **Make him king**. People wanted Jesus to work 8 hours a day and multiply bread. (Андроник Пантак) 
+6:15: **Make him king**. People wanted Jesus to work 8 hours a day and multiply bread. (Андроник Пантак)
 
 6:26: **Not because you saw signs, but because you ate your fill**. A “sign” is something that points to something; namely, to the Messiah. The sign of bread in the wilderness pointed to Jesus as the Messiah, but the people did not see that sign. They merely saw a miracle and were attracted by free bread and entertainment. (Андроник Пантак)
 
@@ -1120,7 +1202,7 @@ In the end, that’s a matter of faith, isn’t it?
 
 ## 13
 
-13:5: **Wash the disciples' feet**. He not only gave a demonstration of the humble, serving spirit they should have as His followers, but also a picture of the forgiveness God gives in His repeated cleansing of those who are already saved. 
+13:5: **Wash the disciples' feet**. He not only gave a demonstration of the humble, serving spirit they should have as His followers, but also a picture of the forgiveness God gives in His repeated cleansing of those who are already saved.
 Dirt from **the feet** symbolizes the daily surface contamination from sin that we experience as we walk through life. It does not, and can not, make us entirely dirty, because we have been permanently cleansed from that: the positional purging of salvation that occurs at regeneration needs to repetition; but the practical purging is needed every day, because every day we fall short of God's perfect holiness.
 And God has promised that He will "cleanse us from all unrighteousness" (1 Jn 1:9). 
 (MacArthur)
@@ -1176,7 +1258,7 @@ Faith obeys.  Oh, it doesn’t perfectly obey, does it?  Your faith doesn’t 
 
 20:18: **Мария Магдалина идёт и возвещает ученикам**. Это уже второй раз, как она сообщает ученикам странные новости.
 
-20:26: **После восьми дней**. В течение этого времени ученики наверняка многократно обсуждали явление Иисуса. В течение этого времени Иисус так же явился Клеопе и его Спутнику. Фому уже наверняка становилось по-детски обидно за то, что Иисус всем явился, а ему нет. А может, укреплялся в осознании того, что ученики намерены совершить обман. 
+20:26: **После восьми дней**. В течение этого времени ученики наверняка многократно обсуждали явление Иисуса. В течение этого времени Иисус так же явился Клеопе и его Спутнику. Фому уже наверняка становилось по-детски обидно за то, что Иисус всем явился, а ему нет. А может, укреплялся в осознании того, что ученики намерены совершить обман.
 И смотрите, Господь целых восемь дней продержал Фому в этом состоянии!
 (Андроник Пантак)
 
