@@ -244,6 +244,8 @@ It is more likely that the public concern was actually about Herod's reaction to
 
 2:4: By NT times, the high** priests** had become little more than a group of corrupt, religiously oriented politicians, subject to favoritism and even purchase. High priests were appointed and removed at the whim of various rulers. The ones who had been removed usually kept the title, as well as considerable prestige and power (Lk 3:2: "during the high priesthood of Ananias and Caiaphas", mentions two high priests). (MacArthur)
 
+2:4: **chief priests and scribes**. Gk. ἀρχιερεῖς καὶ γραμματεῖς (archiyereis kai grammateis).
+
 2:4: The **scribes**, mostly Pharisees, often referred to as lawyers, were authorities on Jewish law, scriptural and traditional; the key scholars of religious Judaism. They were conservative theologically, held a literalistic view of Scripture, and were generally legalistic and strict in regard to both ceremonial and moral law. Those of the Scribes who were Sadducees were liberal.
 
 2:4: Herod took the matter seriously and **assembled** **the chief priests** in order to help the magi find the Christ. The magi did not depart, but awaited for Herod's priests to consult the priests. In v. 8, Herod sends the magi to Bethlehem, according to the direction given to him by the priests.

@@ -994,11 +994,19 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:1: **Nicodemus**. His name was Greek in origin: "victor over the people" (Gk. *nike*, *demos*). (ESV)
 
+3:1: **Никодим**. Церковнославянский перевод: "человек от фарисей, Никодим имя ему, князь жидовский" :))
+
+3:1: **Никодим**. Этот Никодим и после возвышал голос свой за Христа: "судит ли закон наш человека, если прежде не выслушают?" (Ин 7:51). "из начальников многие уверовали в Него; но ради фарисеев не исповедывали, чтобы не быть отлученными от синагоги" (Ин 12:42). И после распятия он "принёс состав из смирны и алоя" (Ин 19:39). (Свт. Иоанн Златоуст)
+
 3:1: **Ruler of the Jews**. A member of the Sanhedrin: comprised of the high priest, chief priests, elders, and scribes for a total of 71 people, it executed both civil and criminal jurisdiction according to Jewish law. (MacArthur)
 
 3:2: **by night**. Usually carries a symbolic overtone of spritual darkness elsewhere in John (Jn 9:4: "night is coming, when no one can work"; 11:10: "if anyone walks in the night, he stumbles, because the light is not in him"; 13:30: "［Judas］ immediately went out. And it was night."; but not 21:3: "that night they caught nothing").
 
 3:2: **by night**. The fact that he came at night suggests he was ashamed of being seen with Jesus: he risked disfavor with his fellow Pharisees, among whom Jesus was generally unpopular. (MacArthur)
+
+3:2: **пришел к Иисусу ночью**. Для чего же ты приходишь ночью и тайно к Тому, Кто говорит божественное и пришел от Бога? Почему не беседуешь с Ним открыто? Но Иисус и этого не сказал ему и не обличил его. Он "трости сокрушены не преломит", говорит Писание, и "льна внемшася не угасит, не преречет, ни возопиет" (Ис 42:3; Мф 12:19-20). (Свт. Иоанн Златоуст)
+
+3:2: **пришел к Иисусу ночью**. Он был благорасположен ко Христу, но ещё подвержен иудейским слабостям. Впрочем, Человеколюбец Бог и при этом не отверг его, не укорил и не лишил Своего учения, а с великою кротостию беседует с ним, открывает ему весьма высокие предметы веры, хотя и гадательно, но все же открывает. Человек этот был гораздо более достоин снисхождения, нежели те, которые делали это из лукавства. Последние не заслуживали никакого прощения; а тот, хотя и достоин был обличения, но не в такой степени. (Свт. Иоанн Златоуст)
 
 3:2: **said to Him**. Even though Nicodemus did not ask a question, Jesus knew the question he had on his heart.
 
@@ -1012,13 +1020,25 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:2: **came to Jesus**. Nicodemus did not state it, but the question that was on his mind was: how to please God? How to be forgiven? How can he be made righteous? How to be redeemed and become a child of God? How can he become part of God’s kingdom? (MacArthur)
 
+3:2: **Ты - Учитель, пришедший от Бога**. Никодим еще не знал, что Он есть Бог по природе, то есть не разумел тайны боговоплощения, но еще приходит к Нему, как к простому человеку, и имеет о Нём малое представление. (Свт. Кирилл Александрийский)
+
+3:2: **Ты учитель, пришедший от Бога**.  Точнее его обращение ко Христу можно передать так: «мы знаем, что ты пришел от Бога как учитель». То, что Христос пришел не по собственному произволению, а послан Богом, в этом Никодима убедили те знамения, которые совершал Христос в Иерусалиме. (Лопухин А.П.)
+
+3:2: **таких чудес .. никто не может творить, если не будет с ним Бог**. Он думал, что, говоря так о Христе, он сказал нечто великое. Но на самом деле это еретическая мысль — считать, что Иисус совершает дела Свои при постороннем содействии и имеет нужду в помощи других. Что же Христос? Смотри, какое крайнее снисхождение! Он не сказал: Я нисколько не имею нужды в помощи других, но творю все Своею властию, потому что Я – истинный Сын Божий и имею одинаковую силу с Родившим Меня. Он не говорил этого, потому что это было еще недоступно для слушателя. Я всегда говорю, и теперь скажу, что Христос имел намерение в то время не столько открывать собственное достоинство, сколько убеждать, что Он ничего не делал против воли Отца. Поэтому в словах Он постоянно является кротким, а в делах – делает все со властию. (Свт. Иоанн Златоуст)
+
 3:3: **Jesus answered him**. The answer evidences Jesus' ability to know men's hearts (Jn 2:23-24) and thereby demonstrates Jesus' deity. (MacArthur)
 
 3:3: **Jesus answered him**. Jesus answered a question that Nicodemusdid not even ask. He read Nicodemus' heart and came to the very core of his problem: the need for spiritual transformation produced by the Holy Spirit. (MacArthur)
 
+3:3: **Иисус сказал ему в ответ**. Никодим думал, что, говоря так о Христе, он сказал нечто великое. Что же Христос? Показывает ему, что он еще не достиг и преддверия истинного ведения, не стоит даже и пред вратами его, но еще блуждает где-то вне Царствия. (Свт. Иоанн Златоуст)
+
 3:3: **unless one is born again, he cannot see the kingdom of God**. Jesus presented God's plan of salvation to Nicodemus: the way for people to enter God's Kingdom. (MacArthur)
 
 3:3: **born again**. Literally, "born from above". New birth is an act of God whereby eternal life is imparted to the believer (Titus 3:5: "He saved us .. by the washing of regeneration and renewal of the Holy Spirit"; 1 Jn 3:9: "No one born of God makes a practice of sinning, for God's seed abides in him; and he cannot keep on sinning, because he has been born of God"). (MacArthur)
+
+3:3: **если кто**. Чтобы слова не были тягостными, Иисус говорит неопределённо: не "если ты", а как бы кто-то другой. (Свт. Иоанн Златоуст)
+
+3:3: **если кто не родится свыше, не может увидеть Царствия Божия**. То есть если ты не родишься свыше и не получишь точного познания о предметах веры, то будешь блуждать и останешься далеко вне Царствия Небесного. (Свт. Иоанн Златоуст)
 
 3:5: **born of water and the Spirit**. Refers to spiritual birth, which cleanses from sin and brings spiritual transformation and renewal. (ESV)
 
