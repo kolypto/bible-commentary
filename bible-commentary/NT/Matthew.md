@@ -2502,6 +2502,25 @@ John Stott has observed that to Martin Luther: "everything necessary for the pre
 
 6:11: **daily**. The schedule of God's provision for His children is **daily**. The supply is daily, and we are to rely on the Lord one day at a time. To accept the Lord's provision for the present day, without concern for our needs or welfare tomorrow, is a testimony of our contentment in His goodness and faithfulness. (MacArthur)
 
+6:11: **daily bread** (Gk. Epiousios). "Epiousios" is used nowhere else: not in the Bible, nor in literature, and its meaning is unclear. It may have been coined by the author of the Gospel, or the Lord Himself (probably translated from Aramaic).
+It is traditionally translated as "daily", but most modern scholars reject that interpretation (because all other NT passages use the word "hemera" for "daily").
+Today there is no consensus on the exact meaning. A review of alternative translations:
+* Daily (Tertullian). "Epi Ousia" reads "for being", "for [the day] being". That is, "sufficient for today". This may be an allusion to the manna of Ex 16:4, where God promises to provide a day's portion of manna every day.
+* Supersubstantial. Jerome coined a new word to translate this one into Latin. "Epi Ousia" was read as "super substance". Supporters: Jerome, Augustine, Cyril of Jerusalem, Cyprian of Carthage, John Cassian.
+* Necessary for existence. Origen takes both meanings ("being" and "substance") and translated it as "bread necessary for existence").
+* For the future. "Epiousios", if derived from the verb "epienai" ("of tomorrow"), may mean "bread for tomorrow", or even, a petition for an anticipation of the world to come.
+* Doesn't run out. In the Syriac Bible, some of the first translations use "ameno", meaning "lasting, perpetual, constant, never-ceasing, never-ending". Syriac is close to Jesus' own Aramaic, so the translators may have had considerable insight into the original meaning.
+([Wiki](https://en.wikipedia.org/wiki/Epiousios))
+
+"Epi" may mean "above, over, on". "Ousia" is an important philosophical concept that comes from "eimi" -- "to be", and may be translated as "being", but also as "essense", "substance".  For instance, θεία ουσία (theia ousia) is the "divine essense". "Epiousion" is the only adjective in the Lord's Prayer.
+
+
+6:11: **хлеб насущный** (Gk. Epiousios). Два понимания:
+* физический хлеб, посылаемый «на (epi) текущий (ousia) день»
+* небесный хлеб, духовный, который находится над (epi) земным бытием (ousia).
+В Синодальном Переводе слово «насущный» (то есть жизненно важный) удачно передаёт оба значения, в зависимости от того, чего конкретный молящийся просит у Бога ­– послать еды на текущий день или же дать возможность совершить в этот день угодное Богу дело и утолить свой духовный голод по служению Богу и по будущей жизни.
+(mirt.ru)
+
 6:12: (<u>greek words for "sin"</u>) **Debts** (Gk. *opheilema*) is one of the five NT Greek terms for sin:
 * *Hamartia* is the most common, carries the root idea of missing the mark. Sin misses the mark of God's standard of righteousness;
 * *Paraptoma*, often rendered "trespass", is the sin of slipping or falling, and results more from carelessness than from intentional disobedience;

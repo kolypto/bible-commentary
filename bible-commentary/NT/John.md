@@ -1032,6 +1032,8 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:3: **Иисус сказал ему в ответ**. Никодим думал, что, говоря так о Христе, он сказал нечто великое. Что же Христос? Показывает ему, что он еще не достиг и преддверия истинного ведения, не стоит даже и пред вратами его, но еще блуждает где-то вне Царствия. (Свт. Иоанн Златоуст)
 
+3:3: **Иисус сказал ему в ответ**. Никодим еще ничего не спросил у Христа, но Христос, Kоторый «Сам знал, что в человеке» (Ин.2:25), и прямо отвечает ему на тот вопрос, какой ему хотел предложить Никодим. Да и для чего иного мог придти ко Христу Никодим, если не для того чтобы узнать от Него, если возможно, о пути, ведущем в Царство Мессии? (по верованиям иудеев, Мессия должен был основать Царство Божие на земле) (Лопухин А.П.)
+
 3:3: **unless one is born again, he cannot see the kingdom of God**. Jesus presented God's plan of salvation to Nicodemus: the way for people to enter God's Kingdom. (MacArthur)
 
 3:3: **born again**. Literally, "born from above". New birth is an act of God whereby eternal life is imparted to the believer (Titus 3:5: "He saved us .. by the washing of regeneration and renewal of the Holy Spirit"; 1 Jn 3:9: "No one born of God makes a practice of sinning, for God's seed abides in him; and he cannot keep on sinning, because he has been born of God"). (MacArthur)
@@ -1039,6 +1041,12 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 3:3: **если кто**. Чтобы слова не были тягостными, Иисус говорит неопределённо: не "если ты", а как бы кто-то другой. (Свт. Иоанн Златоуст)
 
 3:3: **если кто не родится свыше, не может увидеть Царствия Божия**. То есть если ты не родишься свыше и не получишь точного познания о предметах веры, то будешь блуждать и останешься далеко вне Царствия Небесного. (Свт. Иоанн Златоуст)
+
+3:3: **не может увидеть Царствия Божия**. Кажется, ответ не имеет ничего общего со словами Никодими. Но внимательный читатель заметит: так как Никодим имел понятие о Христе уничиженное ("не увидел" божественности Христа, не увидел Царствия Божия в нём) — Христос отвечает:  тебе естественно иметь такое понятие обо Мне. Ибо ты еще не родился «свыше», то есть от Бога. И ты, и всякий другой будете вне Царствия, если не родитесь свыше и от Бога и не получите должного обо Мне понятия. Ибо рождение чрез крещение, внося в душу свет, дает ей возможность видеть или познавать Царствие Божие. Так и ты, потому что не родился еще духовно, не видишь Меня. (Блж. Феофилакт Болгарский)
+
+3:4: **как может человек родиться, будучи стар?**. Он слышит о духовном рождении, но не думает о духовном, а низводит сказанное до уничижения плоти, и столь великое и высокое учение подводит под естественный порядок вещей. Вот почему он выдумывает вопросы и смешные недоумения. (Свт. Иоанн Златоуст)
+
+3:4: **как может человек родиться, будучи стар?**. Как предметы, при сильном бросании ударяющиеся о твердые камни, снова отскакивают назад, так, думаю, и невежественный ум, сталкиваясь с учением, которого не может осилить, в изнеможении отступает назад, следуя всегда свойственным ему мерам. (Свт. Кирилл Александрийский)
 
 3:5: **born of water and the Spirit**. Refers to spiritual birth, which cleanses from sin and brings spiritual transformation and renewal. (ESV)
 
@@ -1049,6 +1057,8 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 3:5: **born of water**. How has Nicodemus undestood that saying? Not as a Christian baptism: it has not yet been instituted. Nicodemus would have understood it as the fulfillment of the new covenant promised through Ezekiel: "I will sprinkle clean water on you, and you shall be clean from all your uncleannesses [...] and I will give you a new heart, and a new spirit I will put within you. [...] and cause you to walk in my statutes and be careful to obey my rules" (Ezek 36:25-27). What Ezekiel is writing there is that the day will come when the Lord will wash your heart, He'll wash your life, He'll wash your inner man, He'll put a new heart in you, and He'll put His Spirit in you. It is "the [internal] washing of regeneration and the renewing [that comes by] the Holy Spirit" (Tit 3:5). (MacArthur)
 
 3:5: **unless one is born .. he cannot enter the Kingdom of God**. Pharisees eagerly expected the coming of the prophesied resurrection of the saints, but they thought that mere physical lineage and keeping of religious externals qualified them for entrace into the kingdom. Jesus emphasized the need for a spiritual transformation. (MacArthur)
+
+3:5: **родится от воды и Духа**. Так как человек по своей природе есть нечто сложное, составленный из двух: тела и души, то и для своего возрождения нуждался в двойном средстве, которое должно быть сродственно обеим сторонам его природы. Духом освящается именно дух человека, а водой, со своей стороны также освященной, – тело.  (Свт. Кирилл Александрийский)
 
 3:7: **I said to you (singular), you (plural) must be born again**. Plural carries broader application to all people: everyone "must be born again". (ESV)
 
