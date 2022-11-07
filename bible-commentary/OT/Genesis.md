@@ -62,17 +62,31 @@ Author: Moses both the OT and the NT [ascribe this composition to Moses](https:/
 
 1:1: **In the beginning**. Implies the reality of God’s eternal or “before time” existence and announce the spectacular transition to time and space. (MacArthur)
 
-1:1: **God**. Although the Hebrew word for “**God**” (*Elohim*) is plural in form (possibly to express majesty), the verb “create” is singular, indicating that God is thought of as one being. (ESV)
+1:1: **In the beginning**. Эти слова были Apollo 8 долетел до Луны за 68 часов в канун рождества. 20 часов они обращались вокруг луны.
+В сочельник 24 декабря 1968 года экипаж космического корабля Аполлон-8 по очереди прочёл стихи из Книги Бытия при нахождении корабля на орбите Луны. Телевизионная трансляция этого чтения собрала наибольшую телеаудиторию для того времени.
+В 1969 году почта США выпустила почтовую марку (Scott # 1371) в память полёта Аполлона-8 и этого чтения.
+Позже, в 1969 году на Аполлон-11, Базз Олдрин провёл Евхаристию на лунной поверхности сразу после посадки на Луну. Поскольку он не держал свои намерения в тайне, он произнес в эфир лишь общие слова, а затем читал Библию вне сеанса радиосвязи.
+> Говорит пилот лунного модуля. Я бы хотел воспользоваться этой возможностью и попросить каждого человека, слушающего меня, кем бы он ни был и где бы ни находился, на минуту отвлечься, поразмышлять над событиями последних нескольких часов и по-своему воздать благодарность.
+> Я принял святые дары и принёс благодарность разуму и духу, которые доставили двух молодых пилотов в Море Спокойствия. Интересно, подумал я, ведь самый первый напиток и самая первая пища, поданные на Луне, — это вино и хлеб причастия.
+Изначально он планировал, что это событие будет транслироваться напрямую по радио. Но в последний момент НАСА отказалось от этой идеи из-за судебного разбирательства, инициированного воинствующей атеисткой Мадалин Мюррей О'Хэйр.
+Армстронг участия не принял и причащаться не стал.
+(Вики)
 
-1:1: **The heavens and the Earth** means “everything”, because in Hebrew there was no word for “universe”. Genesis is therefore the beginning of everything that exists. (MacArthur)
-
-1:1: **В начале**. К этому моменту уже существовали сыны Божии, и "все сыны Божии восклицали от радости", когда творился мир. (Иов. 38:7)
+1:1: **В начале**. К этому моменту уже существовали сыны Божии, и "все сыны Божии восклицали от радости", когда творился мир. (Иов. 38:7: "при общем ликовании утренних звезд, когда все сыны Божии восклицали от радости?")
 
 1:1: **в начале**. Сказано, чтобы никто не мог счесть мир безначальным.(Свт. Василий Великий)
 
 1:1: **в начале**. Было нечто, как вероятно, и прежде сего мира, но cиe, хотя и постижимо для нашего разумения, однако же не введено в повествование, как несоответствующее силам новообучаемых и младенцев разумом. (Свт. Василий Великий)
 
 1:1: **сотворил**. Материя сотворена, а не произошла сама по себе, как ошибочно полагали некоторые. (Свт. Григорий Палама)
+
+1:1: **God**. Although the Hebrew word for “**God**” (*Elohim*) is plural in form (possibly to express majesty), the verb “create” is singular, indicating that God is thought of as one being. (ESV)
+
+1:1: **God** (Hb. Elohim). `-im` means plural. For example, the Nephilim (offspring of human women and divine beings), or the cherubim and seraphim (plural of cherub and seraph, orders of angels), or the Goyim (non-Jewish tribes, nations, or empires).
+
+1:1: **God**. Elohim. The first appearance of the Tetragrammaton YHWH is in the Book of Genesis 2:4.
+
+1:1: **The heavens and the Earth** means “everything”, because in Hebrew there was no word for “universe”. Genesis is therefore the beginning of everything that exists. (MacArthur)
 
 1:1: **в начале сотворил Бог небо и землю**. Кратко излагаются следующие понятия: а) **В начале**. Предел от которого начинается бытие мира. б) **сотворил**. Действите, которым мир получает бытие. в) **Бог**. Причина, производящая бытие. г) **небо  и землю**. Предмет, получающий бытие. (Свт. Филарет (Дроздов))
 
@@ -96,6 +110,8 @@ Author: Moses both the OT and the NT [ascribe this composition to Moses](https:/
 
 1:2: **безвидна и пуста**. Эти еврейские слова знаменуют *изумляющую пустоту*. (Свт. Филарет (Дроздов))
 
+1:2: **безвидна и пуста**. В этих слова даётся представление о бесформенности, недоступной человеческому воображению. Из этой бесформенной материи и возникли наши небо и земля. (Блж. Августин)
+
 1:2: **тьма**. Совершенное отсутствие света, который не был ещё сотворён. (Свт. Филарет (Дроздов))
 
 1:2: **земля, .. бездна, .. воды**. Моисей не говорит, когда и как всё это было сотворено. (Прп. Ефрем Сирин)
@@ -103,8 +119,6 @@ Author: Moses both the OT and the NT [ascribe this composition to Moses](https:/
 1:2: **дух Божий**. Духу же Святому подобало носиться в удостоверение, что творческой силой равен Он Отцу и Сыну. Ибо Отец изрек, Сын сотворил; подобало и Духу привнести Свое дело. (Прп. Ефрем Сирин)
 
 1:2: **носился**. Или: высиживал. Или: согревал. Это подобно птице, своим теплом оживляющей яйца птенцов. (Блж. Иероним Стридонский)
-
-1:2: **безвидна и пуста**. В этих слова даётся представление о бесформенности, недоступной человеческому воображению. Из этой бесформенной материи и возникли наши небо и земля. (Блж. Августин)
 
 1:2: **над бездною, .. над водою**. Здесь два родственных по смыслу еврейского слова (tehom и maim), означающих массу воды, образующую целую «бездну»; этим самым делается указание на расплавленное жидкообразное состояние первозданного, хаотического вещества. (Лопухин А.П.)
 
@@ -241,7 +255,7 @@ Genesis depicts God as creating large sea creatures, but they are not in rebelli
 1:26: **Man**. The Hebrew word for **man** (*adam*) is the generic term for mankind and become the proper name, **Adam**. (ESV)
 
 1:26: **In Our image, after Our likeness**. It establishes a personal relationship between God and man that does not exist with any other aspect of creation. 
-It suggests that God was, in essence, the pattern for man: a person that only functions in the context of relationships. Man's capacity for intimate, personal relationships, was designed to be fulfilled with God/ (MacArthur)
+It suggests that God was, in essence, the pattern for man: a person that only functions in the context of relationships. Man's capacity for intimate, personal relationships, was designed to be fulfilled with God. (MacArthur)
 
 1:26: **image**. Traditionally, the **image** has been seen as the capacities that set man apart from the other animals—ways in which humans resemble God, such as in the characteristics of reason, morality, language, a capacity for relationships governed by love and commitment, and creativity in all forms of art. (ESV)
 
@@ -252,7 +266,6 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 1:26: **образ ... и подобие**. Образ Божий душа принимает от Бога во время своего создания, а подобие Божие в ней созидается в крещении. Образ Божий ты имеешь, а подобен Ему, а подобие, когда уподобляешься в добродетели.
 Да будет нам известно и то, что образ Божий есть и в душе неверного человека, но подобие имеется только в добродетельном христианине. И когда христианин совершает смертный грех, он лишается только подобия Божия, а не образа; и если он осуждается на вечные мучения, то и тогда при нем остается навеки образ Божий, но подобия уже в нем не имеется.
 (Свт. Димитрий Ростовский)
-
 
 1:26: **образ .. и подобие**. Сказано: по образу, потому что Бог сотворил душу бессмертной и свободной, а по подобию - относится к добродетели.
 Ибо Господь говорит: "будьте милосерды, как и Отец ваш милосерд" (Лук. 6:36), и в другом месте: "будьте святы, потому что Я свят" (1Петр. 1:16). Также и Апостол говорит: "прощайте друг друга, как и Бог во Христе простил вас" (Еф. 4:32). Вот что значит по подобию. 
@@ -279,7 +292,7 @@ It suggests that God was, in essence, the pattern for man: a person that only fu
 
 1:28: **earth .. subdue**. To “**subdue**” (Hb. kabash) elsewhere means to bring a people or a land into subjection so that it will yield service to the one subduing it (Num. 32:22, 29). Here the idea is that the man and woman are to make the earth’s resources beneficial for themselves and for human beings in general. This command provides a foundation for wise scientific and technological development. (ESV)
 
-1:28: **размножайтесь**. Лишь после преступления, когда смерть вошла в мир, "дам познал Еву, жену свою, и она зачала, и родила" (Быт. 4:1).
+1:28: **размножайтесь**. Лишь после преступления, когда смерть вошла в мир, "Адам познал Еву, жену свою, и она зачала, и родила" (Быт. 4:1).
 До грехопадения же **размножайтесь** не означает непременно размножения через брачное соединение. Ибо Бог мог размножить род человеческий и другим способом, если бы люди до конца сохранили заповедь ненарушенною.
 \[ Ведь раньше, в райском саду, не существовало людей века сего. \]
 (Прп. Иоанн Дамаскин)
