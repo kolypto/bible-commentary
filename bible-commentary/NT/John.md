@@ -1394,9 +1394,85 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 
 ### Jesus and the Woman of Samaria
 
+4:4: **through Samaria**. This was the usual route taken by travelers from Judea to Galilee, though strict Jews, in order to avoid defilement, could bypass Samaria by opting for a longer route that involved crossing the Jordan and travelling on the east side. (ESV)
+
+4:4: **Samaria**. Samaritans were a racially mixed group of partly Jewish and partly Gentile ancestry (see 2 Kgs 17:24-31, where the king of Assyria brings foreign people to settle in Samaria), who were disdained by both Jews and non-News. The Samaritans had their own version of the Pentateuch, their own temple on Mount Gerizim, and their own rendering of Israelite history. Tensions often ran high between Jews and Samaritans: Josephus recounts a fighting in the first century A.D. that started with a murder of a Galilean. The fighting was so intense that Roman soldiers were called in to pacify by force. (ESV)
+
+4:4: **he had to pass through Samaria**. Probably not because of georgraphy, but due to divine necessity. The words may indicate that Jesus' itenerary was subject to the providential plan of God: "had to" translates Greek *dei*, "to be necessary", which always indicates divine necessity. (ESV)
+
+4:6: **Jesus wearied**. Underscores His full humanity. Jesus' human nature could be weak and tired, though His divine nature was omnipotent. (ESV)
+
+4:6: **sixth hour**. Refers to noon, when it would have been hot and time to rest. Normally, women would come to draw water in the morning or evening when it was cooler. The immoral woman comes at a time when no one else would be at the well. (ESV)
+
+4:7: **Jesus said to her**. Jesus took the initiative in speaking to a Samaritan woman  — an astonishing break with culture and tradition, showing His desire to save the lost. (ESV)
+
+4:9: **Jews have no dealings with Samaritans**. "no dealings", or "do not share things". Samaritans were considered by many Jews to be in a continual state of uncleanness, thus drinking from this woman's water jar would make a person ceremonially unclean as well.  (ESV)
+
+4:11: **this well is deep**. Today it's still over 31m deep, and was probably deeper at that time. (ESV)
+
+4:12: **our father Jacob**. The woman shows that her people still think of themselves as true descendants of Jacob (Israel, Gen 32:38). (ESV)
+
+4:12: **Are you greater than .. Jacob?**. Clearly the woman does not understand who Jesus is. (ESV)
+
+4:14: **The water that I will give**. The Holy Spirit dwelling within believers (identified in 7:37-39: "come to me and drink" .. "this he said about the Spirit"). (ESV)
+
+4:14: **will never be thirsty again**. A person's deep spiritual longing to know God personally will, amazingly, be satisfied forever. (ESV)
+
+4:14: **whoever drinks**. Jesus uses tangible images of believing.
+1) Drinking living water (4:10-14; 7:37-38).
+2) Eating the bread of life (6:35,47-48,50-51,53-58);
+3) Eating Jesus' flesh and drinking His blood (6:53-56);
+4) Walking in and having the list (8:12; 12:35-36)
+5) Abiding/remaining in Jesus and His Word (6:56; 8:31; 15:7)
+(ESV)
+
+4:15: **that I will not be thirsty or have to come here**. The woman takes Jesus literally and misunderstands Him, just as Nicodemus did. In John's Gospel, Jesus frequently speaks in terms of the visible, physical world (birth, water, bread, his body, light) to teach about the unseen spiritual world. (ESV)
+
+4:15: **water**. Physical items used by Jesus to teach spiritual truths:
+1) Light: the knowledge and presence of God; moral purity
+2) Jerusalem temple: Christ's physical body
+3) Physical birth: spiritual birth: being "born again"
+4) Wind: the Holy Spirit
+5) Water: the Holy Spirit within believers
+6) Food: doing the will of God
+7) Bread: Jesus Himself, His life and death
+8) Flesh and blood: Jesus' death
+9) Door: path to eternal life in Jesus
+10) Shepherd: Jesus' sacrifice and care for his people
+11) Vine: Jesus in relationship to his followers
+12) Cup: God's wrath toward sin
+13) Breath: The Holy Spirit coming upon the disciples
+
+4:17: **I have no husband**. While techinically true, the woman's curt statement is probably intended to close the subject. (ESV)
+
 4:19: **I perceive that you are a prophet**. Женщина только что убедилась, что сидящий перед ней Человек знает сокрытое. Встретив такого человека, из всех вопросов которые она могла бы задать, ей больше всего хотелось знать, как и где правильно поклониться Богу. У неё было ищущее сердце.
 
+4:20: **Our fathers worshiped on this mountain**. Mount Gerizim was the OT setting for the pronouncement of blessings for keeping the covenant. The Samaritans have built their temple there, but it was destroyed by the Hasmonean leader John Hyrcanus during his reign (134-104 B.C.). Despite the destruction of this temple, Samaritan sacrificial worship has continued atop mount Gerizim even until the modern era. (ESV)
+
+4:21: **neither on this mountain nor in Jerusalem**. Jesus is inaugurating a new age in which people will not have to travel to a physical temple in one city to worship but will be able to worship God in every place: because the Holy Spirit will dwell in them, and therefore God's people everywhere will become the new temple where God dwells. (1 Cor 3:16-17: "God’s temple is holy, and you are that temple."; Eph 2:19-22: "Christ Jesus himself being jthe cornerstone, 21 kin whom the whole structure, being joined together, grows into la holy temple in the Lord.") (ESV)
+
+4:23: **the Father is seeking such people to worship Him**. God does not want external obedience. God wants a woshipful heart that loves Him.
+
+4:24: **God is spirit**. God does not have a material body: He has a more wonderful kind of existence that is everywhere present, hence worship is not confined to one place. (ESV)
+
+4:26: **I am he** (the Christ). Jesus does not often identify himself directly as Messiah, but he departs from that pattern here in Samaria. Jews would see Messiah as a political leader sent for deliverance; here, in Samaria, Jesus expects to be understood properly. (ESV)
+
+4:35: **four months then comes the harvest .. see that the fields are white for harvest**. In the physical realm, there is a period of time between sowing and harvesting. But in the spiritual real, Jesus' coming has already ushered in the end-time harvest in which sowing and reaping paradoxically coincide, so that the "crop" of believers is now being gathered into God's kingdom. The immediate reference may be to the approaching Samaritans who are going to believe in Jesus. (ESV)
+
+4:36: **the sower and the reaper may rejoice together**. This statement is reminiscent of Amos 9:13, where the "treader of grapes" overtakes "him who sows the seed", depicting the abundance and prosperity of the new age. Jesus is ushering in the messianic age in which sowing and reaping coincide. (ESV)
+
+4:36: **rejoice**. There is unique joy that comes from seeing others come to faith. (ESV)
+
+4:38: **others have labored**. Jesus and His predecessors, especiall John the Baptist and his followers, but in a broader sense — all the OT writers and prophets. (ESV)
+
+4:42: **Savir of the world**. Not just of Jews. Jesus' large-scale harvest among the Samaritans marks the first indication of the universal scope of His saving mission. (ESV)
+
 ### Jesus Heals an Official’s Son
+
+4:46: **an official**. Probably a Gentile centurion, possibly in the serveice of Herod Antipas. John shows Jesus bringing the gospel to a respected Jewish teacher, then to an outcast Samaritan woman, then to an official working for the Roman government — thus by implication from these examples, to everyone in the world. (ESV)
+
+4:50: **believed .. and went on his way**. The distance from Capernaum to Cana was at least 38km. You can walk it in 8 hours non stop, or more likely, in 10 hours or so. The official had spent the whole day getting here, and was satisfied by simply hearing Jesus say the word. He came, he heard the word, and he believed so truly that he turned around and went home. And it took him another day to get back to his city (see v.52 "yesterday").
+This is unwavering faith, which is all the more wonderful — knowing that Jesus had performed only one sign up until now (v. 54: "This was now the second sign"). Jesus was not widely known as a miracle worker: he was known as a teacher, a baptist, a caller to repentance, a prophet perhaps, and there may have been a rumour of just one miracle He performed (v. 46: "where he had made the water wine"; the author reminds us of this episode probably to emphasize that the episode was well known in Cana; also v. 45: "the Galileans welcomed him").
 
 ## 5
 
