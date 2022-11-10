@@ -1394,9 +1394,15 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 
 ### Jesus and the Woman of Samaria
 
+4:xx: The story of the Samaritan woman reinforces John's main theme that Jesus is the Messiah (v. 26: "I am he"). (ESV)
+
+4:3: **He left Judea**. Most likely, Jesus wanted to avoid any possible trouble with John's disciples who were troubled with His growing popularity. The Pharisees were also focusing on His growing influence, so Jesus decided to travel north to avoid any conflict. (MacArthur)
+
 4:4: **through Samaria**. This was the usual route taken by travelers from Judea to Galilee, though strict Jews, in order to avoid defilement, could bypass Samaria by opting for a longer route that involved crossing the Jordan and travelling on the east side. (ESV)
 
 4:4: **Samaria**. Samaritans were a racially mixed group of partly Jewish and partly Gentile ancestry (see 2 Kgs 17:24-31, where the king of Assyria brings foreign people to settle in Samaria), who were disdained by both Jews and non-News. The Samaritans had their own version of the Pentateuch, their own temple on Mount Gerizim, and their own rendering of Israelite history. Tensions often ran high between Jews and Samaritans: Josephus recounts a fighting in the first century A.D. that started with a murder of a Galilean. The fighting was so intense that Roman soldiers were called in to pacify by force. (ESV)
+
+4:4: **he had to pass through Samaria**. It was the shorter route. But the apostle may have been highlighting divine necessity: Jesus had an appointment with divine destiny in meeting the Samaritan woman, to whom He would reveal His messiahship. (MacArthur)
 
 4:4: **he had to pass through Samaria**. Probably not because of georgraphy, but due to divine necessity. The words may indicate that Jesus' itenerary was subject to the providential plan of God: "had to" translates Greek *dei*, "to be necessary", which always indicates divine necessity. (ESV)
 
@@ -1404,9 +1410,19 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 
 4:6: **sixth hour**. Refers to noon, when it would have been hot and time to rest. Normally, women would come to draw water in the morning or evening when it was cooler. The immoral woman comes at a time when no one else would be at the well. (ESV)
 
+4:6: **sixth hour**. If the woman alone came at 12:00, this may indicate that here public shame caused her to be isolated from other women. (MacArthur)
+
 4:7: **Jesus said to her**. Jesus took the initiative in speaking to a Samaritan woman  — an astonishing break with culture and tradition, showing His desire to save the lost. (ESV)
 
+4:7: **Jesus said to her**. For a Jewish man to speak to a woman in public, let alone to ask from a Samaritan, was a definite breach of rigid social custom as well as a marked departure from the social animosity that existed between the two groups. Further, a religious leader did not hold conversations with women of ill repute. (MacArthur)
+
+4:8: **to buy food**. Jesus and His disciples did not follow some of the self-imposed regulations of stricter Jews, who would have been unwilling to eat food handled by outcast Samaritans. (MacArthur)
+
 4:9: **Jews have no dealings with Samaritans**. "no dealings", or "do not share things". Samaritans were considered by many Jews to be in a continual state of uncleanness, thus drinking from this woman's water jar would make a person ceremonially unclean as well.  (ESV)
+
+4:10: **would have given you living water**. The OT metaphor of living water spoke of the knowledge of God and His grace which provides cleansing, spiritual life, and the transforming power of the Holy Spirit. Jesus used the woman's need for physical water to sustain life — in order to serve as an object lesson for here need for spiritual transformation.
+OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, the "fountain of living waters". Zech 14:8 looked forward to a time when "living waters shall flow from Jerusalem". Isa 44:3: "you will draw water from the wells of salvation". Isa 44:3: "I will pur water .. I will pour my Spirit upon your offspring". Isa 1:16: "wash yourselves, make yourselves clean". Ezek 36:25-27: "I will sprinkle clean water on you, and you shall be clean .. I will give you a new heart, and a new spirit I will put within you".
+(MacArthur)
 
 4:11: **this well is deep**. Today it's still over 31m deep, and was probably deeper at that time. (ESV)
 
@@ -1443,19 +1459,35 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 12) Cup: God's wrath toward sin
 13) Breath: The Holy Spirit coming upon the disciples
 
+4:16: **call your husband**. Since the woman failed to understand the nature of the living water He offered, Jesus abruptly urned the dialogue to focus sharply on her real spiritual need for conversion and cleansing from sin. His intimate knowledge of her morally depraved life not only indicated His supernatural ability, but also focused on her spiritual condition. (MacArthur)
+
 4:17: **I have no husband**. While techinically true, the woman's curt statement is probably intended to close the subject. (ESV)
 
 4:19: **I perceive that you are a prophet**. Женщина только что убедилась, что сидящий перед ней Человек знает сокрытое. Встретив такого человека, из всех вопросов которые она могла бы задать, ей больше всего хотелось знать, как и где правильно поклониться Богу. У неё было ищущее сердце.
 
 4:20: **Our fathers worshiped on this mountain**. Mount Gerizim was the OT setting for the pronouncement of blessings for keeping the covenant. The Samaritans have built their temple there, but it was destroyed by the Hasmonean leader John Hyrcanus during his reign (134-104 B.C.). Despite the destruction of this temple, Samaritan sacrificial worship has continued atop mount Gerizim even until the modern era. (ESV)
 
+4:20: **Our fathers worshiped on this mountain**.  Both Jews and Samaritans recognized that God had commanded their forefathers to identify a special place for worshiping Him (Deut. 12:5: "God will choose out of all your tribes to put his name and make his habitation there."). The Jews, recognizing the entire Hebrew canon, chose Jerusalem (2 Chr. 6:6: "I have chosen Jerusalem that my name may be there"). But Samaritans regarded only the Pentateuch as authoritative, so they chose My. Gerizim,  where the Israelites had shouted the blessings promised by God before they entered the Promised Land (Deut. 11:29, 30). (MacArthur)
+
 4:21: **neither on this mountain nor in Jerusalem**. Jesus is inaugurating a new age in which people will not have to travel to a physical temple in one city to worship but will be able to worship God in every place: because the Holy Spirit will dwell in them, and therefore God's people everywhere will become the new temple where God dwells. (1 Cor 3:16-17: "God’s temple is holy, and you are that temple."; Eph 2:19-22: "Christ Jesus himself being jthe cornerstone, 21 kin whom the whole structure, being joined together, grows into la holy temple in the Lord.") (ESV)
+
+4:22: **you do not know**.  The Samaritans did not know God. They did not have the full revelation of Him, and thus could not worship in truth. The Jews did have the full revelation of God in the OT; thus, they knew the God they worshiped, because salvation’s truth came first to them. (MacArthur)
 
 4:23: **the Father is seeking such people to worship Him**. God does not want external obedience. God wants a woshipful heart that loves Him.
 
+4:23: **true worshipers will worship the Father in spirit and truth**. Worshipers will be identified, not by a particular shrine or location, but by their worship of the Father through the Son. True worshipers are all those everywhere who worship God through the Son, from the heart. (MacArthur)
+
 4:24: **God is spirit**. God does not have a material body: He has a more wonderful kind of existence that is everywhere present, hence worship is not confined to one place. (ESV)
 
+4:24: **must worship in spirit and truth**. Not an advice, but that which is absolutely necessary. There is no other way. (MacArthur)
+
+4:24: **in spirit and truth**. The word "spirit" refers to the human spirit. A person must worship inwardly, "in spirit", with the proper heart attitude — not just external conformity to religious rituals and places. The "truth" refers to God' truth revealed through Scripture and centered on the "Word made flesh". (MacArthur)
+
 4:26: **I am he** (the Christ). Jesus does not often identify himself directly as Messiah, but he departs from that pattern here in Samaria. Jews would see Messiah as a political leader sent for deliverance; here, in Samaria, Jesus expects to be understood properly. (ESV)
+
+4:26: **I who speak to you am he**. Jesus literally said, "I who speak to you am". The usage of "I am" is reminiscent of 8:58: see notes there. (MacArthur)
+
+TODO: 4:27
 
 4:35: **four months then comes the harvest .. see that the fields are white for harvest**. In the physical realm, there is a period of time between sowing and harvesting. But in the spiritual real, Jesus' coming has already ushered in the end-time harvest in which sowing and reaping paradoxically coincide, so that the "crop" of believers is now being gathered into God's kingdom. The immediate reference may be to the approaching Samaritans who are going to believe in Jesus. (ESV)
 
