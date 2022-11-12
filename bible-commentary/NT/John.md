@@ -1487,9 +1487,19 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 
 4:26: **I who speak to you am he**. Jesus literally said, "I who speak to you am". The usage of "I am" is reminiscent of 8:58: see notes there. (MacArthur)
 
-TODO: 4:27
+4:27: **Just then his disciples came back**. Had the disciples arrived earlier, they would have interrupted and destroyed the conversation. This feature subtly reveals Jesus' divine control over the situation. (MacArthur)
+
+4:28: **went away into town and said to the people**. Jesus had such an impact on the woman that she was eager to share the news among the townspeople whom she had previously avoided because of her reputation. Her witness and candor about regarding her own life so impressed them that they came to see Jesus for themselves. (MacArthur)
+
+4:34: **My food is to do the will of Him who sent Me**. Most likely, Jesus echoed Deuteronomy 8:3 where Moses stated, “man shall not live by bread alone; but man lives by every word that proceeds from the mouth of the LORD” (cf. Matt. 4:4; Luke 4:4). (MacArthur)
+
+4:34: **My food is to do the will of Him who sent Me**. When He talked with the Samaritan woman, Jesus was performing the will of the Father and thereby received greater sustenance and satisfaction than any mere physical food could offer Him. (MacArthur)
+
+4:35: **white for harvest**. Crops were planted in November, and by January the grain would be sprouting up in vibrant colors. The white clothing of the people comong may have looked like white heads on the stalks: an indication of readiness for harvest. (MacArthur)
 
 4:35: **four months then comes the harvest .. see that the fields are white for harvest**. In the physical realm, there is a period of time between sowing and harvesting. But in the spiritual real, Jesus' coming has already ushered in the end-time harvest in which sowing and reaping paradoxically coincide, so that the "crop" of believers is now being gathered into God's kingdom. The immediate reference may be to the approaching Samaritans who are going to believe in Jesus. (ESV)
+
+4:35: **white for harvest**. Jesus knew the hearts of all, so He was able to state their readiness for salvation. (MacArthur)
 
 4:36: **the sower and the reaper may rejoice together**. This statement is reminiscent of Amos 9:13, where the "treader of grapes" overtakes "him who sows the seed", depicting the abundance and prosperity of the new age. Jesus is ushering in the messianic age in which sowing and reaping coincide. (ESV)
 
@@ -1501,10 +1511,20 @@ TODO: 4:27
 
 ### Jesus Heals an Official’s Son
 
+4:44: **prophet has no honor in his own country**. The proverb contrasts the believing response of the Samaritans with the characteristic unbelief of Jesus' own people in Galillee and Judea, whose reticent faith depended so much on Jesus' performance of miracles. While in Samaria Jesus had enjoyed His first unqualified and unopposed success, His own people's hearts were not open to Him, but exhibited reluctance and hardness. (MacArthur)
+
+4:45: **the Galileans welcomed him, having seen all that he had done in Jerusalem**. People did not oppose Him, but wated more signs and wonders. The basis of their welcome was extremely crass. This was not a response of belief. (MacArthur)
+
 4:46: **an official**. Probably a Gentile centurion, possibly in the serveice of Herod Antipas. John shows Jesus bringing the gospel to a respected Jewish teacher, then to an outcast Samaritan woman, then to an official working for the Roman government — thus by implication from these examples, to everyone in the world. (ESV)
+
+4:47: **implored him**. The language indicates that the official repeatedly begged Jesus to heal his son. His approach to Jesus was out of desperation, and his motivation was centered in Jesus' reputation as a miracle worker rather than as Messiah. (MacArthur)
+
+4:48: **Unless you people see signs and wonders**. The "you" is plural: addresses these words to the Galileans as a whole. The official exhibited the same response to Jesus: not faith, but the need for miraculous works that improve their physical lives. (MacArthur)
 
 4:50: **believed .. and went on his way**. The distance from Capernaum to Cana was at least 38km. You can walk it in 8 hours non stop, or more likely, in 10 hours or so. The official had spent the whole day getting here, and was satisfied by simply hearing Jesus say the word. He came, he heard the word, and he believed so truly that he turned around and went home. And it took him another day to get back to his city (see v.52 "yesterday").
 This is unwavering faith, which is all the more wonderful — knowing that Jesus had performed only one sign up until now (v. 54: "This was now the second sign"). Jesus was not widely known as a miracle worker: he was known as a teacher, a baptist, a caller to repentance, a prophet perhaps, and there may have been a rumour of just one miracle He performed (v. 46: "where he had made the water wine"; the author reminds us of this episode probably to emphasize that the episode was well known in Cana; also v. 45: "the Galileans welcomed him").
+
+4:54: **This was now the second sign**. The second major "sign" of eight which John used to reinforce Jesus' true identity for producing belief in his readers. (MacArthur)
 
 ## 5
 
