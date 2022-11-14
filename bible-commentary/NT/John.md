@@ -1524,7 +1524,7 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 4:50: **believed .. and went on his way**. The distance from Capernaum to Cana was at least 38km. You can walk it in 8 hours non stop, or more likely, in 10 hours or so. The official had spent the whole day getting here, and was satisfied by simply hearing Jesus say the word. He came, he heard the word, and he believed so truly that he turned around and went home. And it took him another day to get back to his city (see v.52 "yesterday").
 This is unwavering faith, which is all the more wonderful — knowing that Jesus had performed only one sign up until now (v. 54: "This was now the second sign"). Jesus was not widely known as a miracle worker: he was known as a teacher, a baptist, a caller to repentance, a prophet perhaps, and there may have been a rumour of just one miracle He performed (v. 46: "where he had made the water wine"; the author reminds us of this episode probably to emphasize that the episode was well known in Cana; also v. 45: "the Galileans welcomed him").
 
-4:54: **This was now the second sign**. The second major "sign" of eight which John used to reinforce Jesus' true identity for producing belief in his readers. (MacArthur)
+4:54: **This was now the seconds ign**. The second major "sign" of eight which John used to reinforce Jesus' true identity for producing belief in his readers. (MacArthur)
 
 ## 5
 
