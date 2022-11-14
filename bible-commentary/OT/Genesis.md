@@ -552,7 +552,7 @@ In the Garden of Eden story, the name “Adam” is originally not really a name
 
 2:23: **Then the man said**. Adam composed a poem when he met his woman.
 
-2:23: **Адам сказал**. Адам использует поэтический язык, чтобы выразить своё отношение к Еве. Наверное, это отношение можно перевести на русский как "кровинушка моя": здесь и родство, и нежность.
+2:23: **Адам сказал**. Адам использует поэтический язык, чтобы выразить своё отношение к Еве. Чтобы понять романтику рёбер и костей, нужно вспомнить русский аналог "кровинушка моя": здесь и родство, и нежность.
 
 2:23: **shall be called Woman**. The English words man/woman sustain the same relationship as the Hebrew words, hinting at the original creation. (MacArthur)
 
