@@ -1396,11 +1396,20 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 
 4:xx: The story of the Samaritan woman reinforces John's main theme that Jesus is the Messiah (v. 26: "I am he"). (ESV)
 
+4:1: **узнал Иисус о дошедшем до фарисеев слухе .. пошёл в Галилею**. До фарисеев дошло известие о том выдающемся успехе, какой имела в Иудее деятельность нового Kрестителя. Эти фарисеи могли обратить внимание иудейских начальников на Христа, и потому Христос, зная, что час Его страданий еще не пришел, не нашел нужным преждевременно вступать в споры с фарисеями и прекратил Свою деятельность в Иудее. Это Он мог сделать без ущерба для приготовления людей к принятию Царства Небесного, так как Иоанн Kреститель продолжал свою проповедь о приближении этого Царства и по-прежнему совершал крещение покаяния. (Лопухин А.П.)
+
+4:1: **слух .. что Он крестит**. Евангелист, намекая на клевету завистников, говорит, что хотя Иисус не крестил, однако же завистники, желая подстрекнуть фарисеев против Христа, клеветали, что Он крестил. (Блаж. Феофилакт Болгарский)
+
 4:3: **He left Judea**. Most likely, Jesus wanted to avoid any possible trouble with John's disciples who were troubled with His growing popularity. The Pharisees were also focusing on His growing influence, so Jesus decided to travel north to avoid any conflict. (MacArthur)
+
+4:3: **оставил Иудею**. Почему же Он оставил Иудею? Не по боязни, а для того, чтобы пресечь клевету и утишить ненависть. (Свт. Иоанн Златоуст
+)
 
 4:4: **through Samaria**. This was the usual route taken by travelers from Judea to Galilee, though strict Jews, in order to avoid defilement, could bypass Samaria by opting for a longer route that involved crossing the Jordan and travelling on the east side. (ESV)
 
 4:4: **Samaria**. Samaritans were a racially mixed group of partly Jewish and partly Gentile ancestry (see 2 Kgs 17:24-31, where the king of Assyria brings foreign people to settle in Samaria), who were disdained by both Jews and non-News. The Samaritans had their own version of the Pentateuch, their own temple on Mount Gerizim, and their own rendering of Israelite history. Tensions often ran high between Jews and Samaritans: Josephus recounts a fighting in the first century A.D. that started with a murder of a Galilean. The fighting was so intense that Roman soldiers were called in to pacify by force. (ESV)
+
+4:4: **Самария**. иудеи, возвратившиеся, наконец, из плена, возымели ненависть к ним, как иноплеменникам и своим врагам, и по имени горы стали называть их самарянами. Немалая вражда с ними у иудеев происходила и оттого, что самаряне принимали не все книги Священного Писания, а только книги Моисеевы и не много придавали важности Пророкам. (Свт. Иоанн Златоуст)
 
 4:4: **he had to pass through Samaria**. It was the shorter route. But the apostle may have been highlighting divine necessity: Jesus had an appointment with divine destiny in meeting the Samaritan woman, to whom He would reveal His messiahship. (MacArthur)
 
@@ -1411,6 +1420,14 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 4:6: **sixth hour**. Refers to noon, when it would have been hot and time to rest. Normally, women would come to draw water in the morning or evening when it was cooler. The immoral woman comes at a time when no one else would be at the well. (ESV)
 
 4:6: **sixth hour**. If the woman alone came at 12:00, this may indicate that here public shame caused her to be isolated from other women. (MacArthur)
+
+4:6: **шестого часа**. Евреи считали время от рассвета, с семи утра. (Прот. Иоанн Бухарев)
+
+4:6: **около шестого часа**. Время было уже полуденное, жаркое; в это время люди на востоке обыкновенно сидят дома. (Лопухин А.П.)
+
+4:6: **колодец Иаковлев**. В Ветхом же Завете о таком колодце упоминаний нет. (Лопухин А.П.)
+
+4:6: **сел**. Утомленный Христос сел у колодца «так» (οὕτως; это слово в русском Евангелии осталось без перевода), т. е. просто, вероятно, прямо на земле. Около Него мог быть невдалеке любимый Его ученик Иоанн. (Лопухин А.П.)
 
 4:7: **Jesus said to her**. Jesus took the initiative in speaking to a Samaritan woman  — an astonishing break with culture and tradition, showing His desire to save the lost. (ESV)
 
