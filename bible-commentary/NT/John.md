@@ -1429,9 +1429,27 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 
 4:6: **сел**. Утомленный Христос сел у колодца «так» (οὕτως; это слово в русском Евангелии осталось без перевода), т. е. просто, вероятно, прямо на земле. Около Него мог быть невдалеке любимый Его ученик Иоанн. (Лопухин А.П.)
 
+4:7: **Приходит женщина**. Как Истинный Бог, Он, конечно, знал о том, что она сейчас придет. (Свт. Кирилл Александрийский)
+
+4:7: **Приходит женщина**. Когда рыбак желает наловить рыб, то он идет к морю, забрасывает свою рыболовную снасть в глубину его и вытаскивает плавающих там рыб. Так поступил и Иисус Христос, домостроительно заботящийся о нашем спасении: сев у источника, Он уловил оказавшуюся у колодца самарянку, которая пришла набрать воды. (Свт. Феолипт Филадельфийский)
+
 4:7: **Jesus said to her**. Jesus took the initiative in speaking to a Samaritan woman  — an astonishing break with culture and tradition, showing His desire to save the lost. (ESV)
 
 4:7: **Jesus said to her**. For a Jewish man to speak to a woman in public, let alone to ask from a Samaritan, was a definite breach of rigid social custom as well as a marked departure from the social animosity that existed between the two groups. Further, a religious leader did not hold conversations with women of ill repute. (MacArthur)
+
+4:7: **Иисус говорит ей**. Бог, видя и сердце ее, жаждущее спасительной воды, но не знающей Могущего дать ей сию, спешит открыть Себя жаждущей душе. (Свт. Григорий Палама)
+
+4:7: **дай Мне**. "Дай мне" говорит Иисус, и "дай мне" слышит от самарянки. (Свт. Феолипт Филадельфийский)
+
+4:7: **дай Мне пить**. Так как евреи думали, что впадут в нечистоту, принимая пищу и питьё из рук иноплеменников, Иисус пренебрегает иудейскими обычаями, чтобы направить речь к цели и уловить её в Царствие Божие. (Свт. Кирилл Александрийский)
+
+4:7: **дай Мне пить**. Иисус утрудился от пути и жаждал, из чего ясно: тело Его было истинное тело человеческое, и нуждалось в пище и питии. Иисус мог по Своему желанию устранить эту потребность Своею Божественною силой, но как бы мог Он тогда называть людей братиями? Как бы Он научил нас терпеливому перенесению страданий, если бы Сам их не перенес? Нет, Он мог – однако не хотел. Он не сотворил ни одного чуда ради Себя Самого – чтобы Себя накормить, напоить или одеть. Все Его чудеса были чудесами ради людей. В Его жизни нет ни тени себялюбия. (Свт. Николай Сербский)
+
+4:7: **дай Мне пить**. Создатель всего мира и всей воды в нём говорит "дай Мне пить" не потому, что жаждет воды — а потому, что жаждет нашей доброй воли и любви. (Свт. Николай Сербский)
+
+4:7: **дай Мне пить**. Он требует воды не потому, что жаждет, а с премудрой целью, чтобы иметь удобный случай побеседовать с женщиной. Он знал заранее, что она уверует и будет причиной того, что уверуют многие; поэтому, начав беседу, он совсем оставил воду. (Евфимий Зигабен)
+
+4:8: **Ибо ученики Его отлучились**. Если бы они не отлучились, то они сами почерпнули бы воды, и женщина осталась бы неупомянутой. Провидению было угодно, дабы обстоятельства сложились таким образом. (Свт. Николай Сербский)
 
 4:8: **to buy food**. Jesus and His disciples did not follow some of the self-imposed regulations of stricter Jews, who would have been unwilling to eat food handled by outcast Samaritans. (MacArthur)
 
@@ -1507,6 +1525,8 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 4:27: **Just then his disciples came back**. Had the disciples arrived earlier, they would have interrupted and destroyed the conversation. This feature subtly reveals Jesus' divine control over the situation. (MacArthur)
 
 4:28: **went away into town and said to the people**. Jesus had such an impact on the woman that she was eager to share the news among the townspeople whom she had previously avoided because of her reputation. Her witness and candor about regarding her own life so impressed them that they came to see Jesus for themselves. (MacArthur)
+
+4:28: **женщина оставила водонос свой, и пошла в город**. Она оставила свой водонос у колодезя и верой соделала свое сердце водоносом, зачерпнув им “воду живую” из источника Господа. Взяв ее, она пошла в свой город и напоила струей ведения тех, кого одолела засуха неведения. (Свт. Феолипт Филадельфийский)
 
 4:34: **My food is to do the will of Him who sent Me**. Most likely, Jesus echoed Deuteronomy 8:3 where Moses stated, “man shall not live by bread alone; but man lives by every word that proceeds from the mouth of the LORD” (cf. Matt. 4:4; Luke 4:4). (MacArthur)
 

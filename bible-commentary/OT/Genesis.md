@@ -626,7 +626,7 @@ In ancient Israel, sons did not move away when they married, but lived near thei
 
 3:1: **He said**. Eve received him without fear or surprise, but as some credible messenger from heaven. (MacArthur)
 
-3:1: **He said**. This is no surprise that Even received satan without suspicion. Suspicion did not even exist, because everything in the creation was good. If she seen angels before, they were all benevolent.
+3:1: **He said**. This is no surprise that Eve received satan without suspicion. Suspicion did not even exist, because everything in the creation was good. If she seen angels before, they were all benevolent.
 Therefore, the following conversation takes place with someone Eve is not cautions about.
 Even the fact that a serpent approaches her and speaks cannot be creepy in a world where fear did not exist. She must've been curious and thought the speaking serpent is God's creation.
 This means that satan's words seemed credible and reliable, like everything else in the world. And yet this was the first time that a human questioned God's actions in her heart. A conflict arose between what God did, and what this person thinks He should have done.
@@ -662,6 +662,8 @@ This means that satan's words seemed credible and reliable, like everything else
 3:4: **you will not surely die**. The **death** they experienced first was not physical death, but spiritual **death**: a state in which a person cannot commune with God, does not accept God, does not even like God, is unable to choose God, and cannot and does not want to receive anything that comes from God. Adam and Eve used to live together with God, walk and talk with God, and by their very nature they used to do His will, they naturally loved God and obeyed God. But because of their transgression, they've been alienated from God: they've broken that relationship, and the spiritual separation manifested itself in a physical separation: being cast out. (~MacArthur)
 
 3:4: **не умрёте**. Примечая, что страх смерти держит Еву в послушании Богу, он отъемлет прежде всего сию опору: **не умрете**. (Свт. Филарет (Дроздов))
+
+3:5: **знает Бог**. Змей пытается выглядеть говорящим правду, а Бога выставить хитрецом и обманщиком.
 
 3:5: **знает Бог**. Дабы не показаться противоречащим Слову Божию, он старается внести свое противоречие в само Слово Божие. Со вкушением от древа познания Бог соединил совершенное ведение добра и зла, подобно как со вкушением от древа жизни совокупил жизнь бессмертную; и обещает в сем ведении новые очи, то есть новую степень ведения, и даже божественность. 
 Такое понятие о древе познания он или приписывает самому Богу. 
@@ -722,6 +724,8 @@ Adam, however, committed a direct transgression without deception. (See MacArthu
 
 3:6: **who was with her**. The whole time Adam was around, and didn’t stop his wife. 
 
+3:6: **who was with her**. Слово "immah" в тексте может указывать, что Адам всё это время был с Евой рядом. Однако мы не видим, чтобы он как-то участвовал в диалоге. Более того, плод он принял из рук Евы ("взяла .. и дала мужу своему"). Это говорит либо о том, что он был рядом и пассивно наблюдал, либо его не было рядом, и Ева принесла ему плоды.
+
 3:7: **knew that they were naked**. when Adam and Eve disobeyed God, the first thing they experience is guilt and shame: something they didn't know before. That is why they covered themselves. (MacArthur)
 
 3:7: **opened**. The serpent had promised them enlightenment; what they received was a hideously twisted caricature. It opened their eyes to the meaning of guilt, but it made them want to hide their eyes in shame. Sin instantly destroyed their innocence. Now they had to rely on their conscience to distinguish between good and their newly acquired capacity to see and know evil. (MacArthur)
@@ -753,11 +757,15 @@ Adam, however, committed a direct transgression without deception. (See MacArthu
 
 3:9: **Адам, где ты**. Стал ли ты Богом, как обещал тебе змий, или подпал под власть смерти, как угрожал тебе Я, если вкусишь плодов дерева? Справедливо ли было бы тебе презреть заповедь Того, Кто даровал тебе все, и внять обещанию того, кто дотоле не оказал тебе никакого добра? (Прп. Ефрем Сирин)
 
-3:10: **не ел ли ты от дерева?**. Для чего говорит это Творец? Конечно для того, чтоб расположить Адама прийти в чувство, сознать грех свой и покаяться. (Прп. Симеон Новый Богослов)
+3:10: **убоялся**. Прикрытие наготы не истребило чувство стыда. (Еп. Виссарион (Нечаев))
+
+3:10: **убоялся**. Грех тем и отличается от обычной болезни, что поражённый им часто не желает исцеления и не ищет его. (Даниил Сысоев священник)
 
 3:11: **кто сказал тебе**.  Обрати внимание на человеколюбие и крайнее незлобие Господа. Он мог тотчас, даже не удостоив ответом сделавшего такой грех, подвергнуть его наказанию, которое Он наперед уже определил за преступление, однако долго терпит, медлит, вопрошает и выслушивает ответ, и опять спрашивает, как бы вызывая виновного к оправданию, чтобы, при открывшемся случае, показать ему Свое человеколюбие и после такого преступления. 
 Чрез это Он внушает нам, чтобы мы, судя виновных, не обращались с ними грубо,  но проявляли бы свое великодушие и снисходительность, памятуя, что они одной с нами природы, растворяли бы наказание человеколюбием. 
 (Свт. Иоанн Златоуст)
+
+3:11: **не ел ли ты от дерева?**. Для чего говорит это Творец? Конечно для того, чтоб расположить Адама прийти в чувство, сознать грех свой и покаяться. (Прп. Симеон Новый Богослов)
 
 3:12: **The woman .. gave me fruit .. and I ate**. Adam did not just answer, "yes, I ate"; he blames Eve and justifies himself. Perhaps, thinking that she will be punished instead?
 It is possible, however, that Adam, who has not known punishment yet, didn't even think about the consequences.
@@ -776,7 +784,7 @@ It is possible, however, that Adam, who has not known punishment yet, didn't eve
 
 3:14: **змею**. Когда оба были спрошены, и открылось, что не имеют они ни покаяния, ни истинного оправдания, тогда обращается Бог к змию, но не с вопросом, а с определением наказания. Ибо где было место покаянию, там поставлен вопрос, а кто чужд покаянию, тому изречен прямо приговор суда. (Прп. Ефрем Сирин)
 
-3:14: **The serpent**. God addresses the **serpent **first (ESV)
+3:14: **The serpent**. God addresses the **serpent** first (ESV)
 
 3:14: **The serpent**. Verse 1 declared the **serpent** “more crafty” (Hb. ‘arum); now **God** declares it more **cursed** (Hb. ’arur) (ESV)
 
@@ -860,6 +868,8 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 
 3:16: **он будет господствовать над тобою**. Если и раньше жена, в качестве только помощницы мужа, ставилась в некоторую зависимость от него, то теперь, после того, как первая жена доказала неуменье пользоваться свободой, Бог определенным законом поставляет ее действие под верховный контроль мужа. Лучшей иллюстрацией этого служит вся история дохристианского мира, в особенности же древнего Востока. И только лишь в христианстве жене снова возвращены отнятые у неё права (Еф. 5:25: "мужья, любите своих жён"). (Лопухин А.П.)
 
+3:17: **because you have listened to the voice of your wife .. [while] I commanded you [not to eat]**. The reason given for the curse on the ground and human death is that man turned his back on the voice of God and followed the voice of his wife instead.
+
 3:17: **cursed is the ground**. Again, the punishment strikes to the very heart of man’s nature: the punishment of the man involves his relationship with the very **ground** from which he was formed. The punishment is not work itself (cf. 2:15: "garden .. to work it and keep it"), but rather the hardship and frustration that will accompany the man’s labor. Underlying this judgment is a disruption of the harmonious relationship that originally existed between humans and nature. (ESV)
 
 3:17: **cursed is the ground**. Adam was condemned to a life of labor, tilling the cursed earth. The ground will yield reluctantly, yet richly, and through his hard work. (MacArthur)
@@ -867,8 +877,6 @@ The Hebrew term here translated “**desire**” (*teshuqah*) is rarely found in
 3:17: **проклята земля за тебя**. Избыток своеволия и безнаказанность привели тебя к непослушанию и заставили забыть Мои заповеди. Безделье расположило тебя к тому, чтобы много возомнить о своем естестве. И так как тебе не была полезна такая свобода, то Я и прокляну землю так, что она впредь уже не будет, как прежде, давать плодов без посева и возделания, а только при большом труде, усилии и заботах; подвергну тебя постоянным скорбям и печалям, заставлю все делать с изнурительным напряжением, чтобы эти мучительные труды были для тебя всегдашним вразумлением вести себя скромно и знать свою природу. (Свт. Иоанн Златоуст)
 
 3:17: **проклята земля**. Тогда как отъемлется у покоренной суете твари часть совершенства, заграждается часть путей к ее злоупотреблению. (Свт. Филарет (Дроздов))
-
-3:17: **because you have listened to the voice of your wife .. [while] I commanded you [not to eat]**. The reason given for the curse on the ground and human death is that man turned his back on the voice of God and followed the voice of his wife instead. 
 
 3:17: **со скорбью будешь питаться от неё**. Бог наказывает, но Бог и даёт облегчение наказания: не все животные были изъяты из-под власти человека, но многие скоты и оставлены нам в помощь. Это свидетельствует о великой мудрости, заботливости, и великом человеколюбии Божием. (~Свт. Иоанн Златоуст)
 
@@ -934,7 +942,7 @@ This was also a graphic object lesson showing that only God can provide a suitab
 
 3:22: **Адам стал как один из Нас**. Событие показало, в каком смыс­ле понимал свое обещание диавол. Адам действительно сделался подобным Богу, если под сим уподоблением ра­зуметь приобретение знакомства с добром и злом без от­ношения к тому, как приобретено это знакомство. Оно приобретено чрез порабощение злу, с утратою невинности и правоты. Не достойно ли, посему, величайшего сожале­ния, что Адам, увлеченный желанием равнобожия, не до­гадался, что ему обещано диаволом только мечтательное равнобожие? Не достойно ли сожаления, что он по своей вине впал в сети диавола? (Еп. Виссарион (Нечаев))
 
-3:22: **lest he .. lives forever**. **Knowing good and evil** was somehow incompatible with **living forever**: no good would have come out of it. What precisely would that be is uncertain: perhaps, living forever in such a sorry state would remove the possibility of repentance, resulting in eternal separation from God?
+3:22: **lest he .. lives forever**. "Knowing good and evil" was somehow incompatible with "living forever": no good would have come out of it. What precisely would that be is uncertain: perhaps, living forever in such a sorry state would remove the possibility of repentance, resulting in eternal separation from God?
 
 3:22: **live forever**. Driving the man and his wife out of the garden was an act of merciful grace to prevent them from being sustained forever by the tree of life and live forever in this pitiful cursed condition. (MacArthur)
 
