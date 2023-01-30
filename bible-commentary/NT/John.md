@@ -1951,11 +1951,117 @@ This is unwavering faith, which is all the more wonderful — knowing that Jesus
 
 ### The Healing at the Pool on the Sabbath
 
-5:25: Spiritually **dead** — those currently dead in sin — **will** come to **life**. (See: "you were dead in trespasses and sins" (Eph 2:6); " let the dead bury their own dead" (Mt 8:22)).
+5:1: **After this .. feast of the Jews**. Marks the passing of an indefinite period of time. There is no way to be certain which feast is indicated. (ESV)
 
-5:27: **Son of Man** is a reference to the "son of man" of Daniel, Who is Messiah. Jesus will judge because He is the Messiah. (Андроник)
+5:1: **feast of the Jews**. Possibly, Tabernacles.
+Other festivals mentioned in John:
+Passover: 2:13,23; 6:4; 11:55; 12:1
+Tabernacles: 7:2
+Dedication (Hanukkah): 10:22
+Unnamed: 5:1
+(ESV)
 
-5:27: **Judgment** is not primarily about the verdict, or the punishment, but first of all, about revealing the truth. (Андроник)
+5:2: **Bethesda**. Means "House of mercy" (ESV)
+
+5:4: **angel .. went down .. into the pool and stirred the water**. This verse is found in some early manuscripts, but not the earliest. Nevertheless, v.7 (which is in all manuscripts) shows that people believed something like what this statement reports. (ESV)
+
+5:5: **Invalid**. Probably means "paralyzed" or "lame" or "extremely weak". Gk. "astneneia" is a general expression for a disabled person. (ESV)
+
+5:5: **thirty-eight years**. Longer than many people in antiquity lived. (ESV)
+
+5:6: **Jesus .. knew**. Probably indicates Jesus' divine knowledge of this man's situation. Similar to Jesus' knowledge of Nathanael (1:48) and the Samaritan woman (4:18). (ESV)
+
+5:10: **the Jews**. Greek says "loudaioi": a word used to refer specifically to Jewish religious leaders who opposed Jesus; also in vv. 15-18 (ESV)
+
+5:10: **it is not lawful for you to take up your bed**. Nothing in the OT specifically prohibited such an innocent activity. The man was violating later Jewish traditions: hundreds of minutely detailed rules about what kind of "work" was prohibited, including carrying an object "from one domain into another" (Mishnah, Shabbat 7.2).
+When confronted (v.17, "Jesus said to them"), Jesus does not get into a rabbinic discussion on the nature of work. Rather, He claims He is working, just like God (v. 17), and hence is the Lord of the Sabbath.
+(ESV)
+
+5:14: **sin no more, that nothing worse may happen to you**. May imply that the man's suffering was due to sin, without suggesting that all suffering is due to personal sin (see note on 9:2). (ESV)
+
+5:16: **this was why the Jews were persecuting Jesus**. Jesus' Jewish opponents were putting their merely human religious tradition above genuine love and compassion for others, which the OT commanded: "you shall love your neighbor as yourself" (Lev 19:18). (ESV)
+
+5:17: **My Father**. Suggests a far closer relationship with God than other people had. (ESV)
+
+5:17: **Father is working**. While Gen 2:2-3 teaches that God rested (Hb. *shabat*) on the 7th day of creation, Jewish rabbis agreed that God continually upholds the universe, yet without breaking the rest ("shabat"). (ESV)
+
+5:17: **and I am working**. Jesus implies that He, like the Father, is lord over the Sabbath. Therefore this is a claim to deity. The Jews recognized this claim (v. 18: "he was .. making Himself equal with God"). (ESV)
+
+### Jesus Is Equal with God
+
+5:18: **equal with God**. Equal in his nature and in every way, yet related to God in a Father-Son relationship. (ESV)
+
+### The Authority of the Son
+
+5:19: **the Son can do nothing of his own accord**. Implies that 1) Jesus is equal to God, i.e. He is fully divine; 2) the Father and Son have different functions and roles 3) the Son is subject to the Father in everything He does, yet this does not deny their fundamental equality (ESV)
+
+5:19: **only what He sees the Father doing**. May imply that Jesus had a unique ability to see the Father's providential activities in the events of everyday life. That is, Jesus perceives God's hand and purpose in every event in this world. (ESV)
+
+5:20: **greater works**. Raising of the dead (11:1-45) and the resurrection. (ESV)
+
+5:21: **the Son gives life to whom He will**. Another claim to deity: the OT makes clear that giving life is the sole prerogative of God. (ESV)
+
+5:21: **gives life**. This "life" is both the new "life" given to believers, and the resurrection of the body at Christ's second coming (ESV)
+
+5:22: **has given all judgment to the Son**. Another claim to deity: judgment is the exclusive prerogative of God. The Father has delegated the work of final judgment to the Son. (ESV)
+
+5:22: **весь суд отдал Сыну**. Если бы людей судил Отец — то могло бы показаться, что далёкий Создатель установил законы и наказывает людей по Своему желанию. Но Иисус не только наш создатель: Он показал Свою любовь к нам, умерев за нас.
+Он не далёк от нас: судить людей будет Тот, Кто пришёл ради нас, Кто жил для нас, пожертвовал Собой и умер за нас.
+
+5:23: **that all may honor the Son, just as they honor the Father**. In effect, establishes Jesus' right to be worshipped. (ESV)
+
+5:23: **Whoever does not honor the Son does not honor the Father who sent him**. Shows that religions that consider Jesus merely a great prophet do not represent the truth about God, because they fail to worship and honor Jesus. (ESV)
+
+5:24: **has eternal life**. Eternal life is not promised; it beings immediately, in a partially realized, but significant way. This starts when one believes in Jesus. (ESV)
+
+5:25: **has passed from death to life**. Those who believe can face the last judgment with confidence: "God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. You .. who believe .. have eternal life." (1 Jn 5:11-13). (ESV)
+
+5:25: **the dead will hear the voice .. will live**. Spiritually dead — those currently dead in sin — will come to life. (See: "you were dead in trespasses and sins" (Eph 2:6); " let the dead bury their own dead" (Mt 8:22)).
+
+5:26: **For**. Explains why the voice of Jesus is able to speak to dead people and grant them life. (ESV)
+
+5:26: **Father has life in himself**. The Father was never created and was never given his life by someone else: He has life in Himself, and can impart life to others. Just as the Father, the Son has life in Himself and is able to call the dead to life. (ESV)
+
+5:26: **granted the Son to have life in himself**. Authorized to be able to give life to other people. (ESV)
+
+5:27: **Он есть Сын человеческий**. "Сын Человеческий" — это отсылка к "сыну человеческому" из пророка Даниила, который есть Мессия. Иисус будет судить, потому что Он — Мессия. (Андроник Пантак)
+
+5:27: **власть производить и суд**. Суд — это в первую очередь не приговор или наказание, но прежде всего — раскрытие правды. (Андроник Пантак)
+
+5:29: **those who have done good**. Good works function as evidence of true faith, and if good works are lacking — they show an absence of true faith.
+John is not saying that people's deeds are the basis on which judgment is pronounced, for that would contradict John's strong emphasis on belief in Jesus as the way to gain eternal life. (ESV)
+
+### Witnesses to Jesus
+
+5:31..: Jesus speaks of several witnesses who bear testimony concerning Him:
+* John the Baptist: vv. 32-36; see 1:7-8,15,19,32-34; 3:26
+* Jesus' own works: vv. 36; see 10:25,32,37-38; 15:24
+* God the Father: vv. 37-38; see 8:18
+* The Scriptures: vv. 39, 45-47
+* Jesus Himself: see 3:11,32; 8:14,18; 18:37
+* The Spirit: see 14:26; 15:26; 16:8-11,13-14
+* The disciples, esp. John: see 15:27; 19:35; 21:24
+(ESV)
+
+5:31: **If I alone bear witness**. This statement is in keeping with OT teaching regarding the need for multiple witnesses (Dt 17:6; 19:15). (ESV)
+
+5:35: **a burning and shining lamp**. Echoes Ps 132:17: "I have prepared a lamp for my anointed" (ESV)
+
+5:35: **He was**. The past tense may imply that John is now dead or at least in prison. (ESV)
+
+5:37: **the Father .. has himself borne witness**. Through Jesus' miracles and teachings, and by all of God's witness in Scripture (ESV)
+
+5:39: **You search the Scriptures**. The study of Scripture does not by itself impart life. The Scriptures rather bear witness to the One who gives life, in Whom one should believe to receive life. The study of the Bible ought to result in genuine faith in Jesus, followed by obedient action and transformed lives. (ESV)
+
+5:40: **yet you refuse to come to me**. People who read the OT without seeing that it all points to Jesus fail to understand its message. (ESV)
+
+5:43: **I have come in my Father's name**. Jesus came in the authority of the Father, and in a deeper sense, represented the entire character of the Father. (A "name" in an OT sense represented all that was true about him). (ESV)
+
+5:43: **If another comes in his own name**. Jesus predicted the proliferation of false christs. Josephus reports a whole string of messianic pretenders before A.D. 70. (ESV)
+
+5:44: **you receive glory from one another**. One reason people fail to believer is that they long for the approval and favor of others instead of seeking the approval and favor of God. (ESV)
+
+4:46: **if you believed Moses, you would believe Me**. Genuine believers have a heart that is receptive to the true words of God and will recognize and eagerly receive the words of God as spoken by Jesus. (ESV)
 
 ## 6
 
