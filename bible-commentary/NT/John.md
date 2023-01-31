@@ -1949,9 +1949,13 @@ This is unwavering faith, which is all the more wonderful — knowing that Jesus
 
 ## 5
 
+5:xx: Theme: the rejection of Jesus as Messiah. The reservation about Jesus as Messiah shifts to opposition in ch. 5, intensifies in ch. 6, and finally hardens into official opposition in ch. 7. (MacArthur)
+
 ### The Healing at the Pool on the Sabbath
 
 5:1: **After this .. feast of the Jews**. Marks the passing of an indefinite period of time. There is no way to be certain which feast is indicated. (ESV)
+
+5:1: **feast of the Jews**. John repeatedly ties his narrative to various Jewish feasts, but this is the only instance when he did not identify the particular feast. (MacArthur)
 
 5:1: **feast of the Jews**. Possibly, Tabernacles.
 Other festivals mentioned in John:
@@ -1963,13 +1967,27 @@ Unnamed: 5:1
 
 5:2: **Bethesda**. Means "House of mercy" (ESV)
 
+5:3: **lay a multitude of invalids**. Some ancient witnesses indicate that the waters of the pool were red with minerals, and thus thought to have medicinal value. (MacArthur)
+
 5:4: **angel .. went down .. into the pool and stirred the water**. This verse is found in some early manuscripts, but not the earliest. Nevertheless, v.7 (which is in all manuscripts) shows that people believed something like what this statement reports. (ESV)
+
+5:4: **stirred the water**. Intermittent springs may have fed the pool and caused the disturbance of the water. (MacArthur)
 
 5:5: **Invalid**. Probably means "paralyzed" or "lame" or "extremely weak". Gk. "astneneia" is a general expression for a disabled person. (ESV)
 
 5:5: **thirty-eight years**. Longer than many people in antiquity lived. (ESV)
 
+5:5: **thirty-eight years**. Since his sickness had been witnessed by many people for almost four decades, when Jesus cured him, everyone knew the genuineness of the healing. (MacArthur)
+
 5:6: **Jesus .. knew**. Probably indicates Jesus' divine knowledge of this man's situation. Similar to Jesus' knowledge of Nathanael (1:48) and the Samaritan woman (4:18). (ESV)
+
+5:6: **Jesus .. knew**. The word implies supernatural knowledge of the man's situation. Jesus picked the man out from among many sick people. The sovereign initiative was His, and no reason is given as to His choice. (MacArthur)
+
+5:8: **Rise, take .. walk**. Jesus' spoken words had the power to cure in the same way that He spoke the world into being at creation. (MacArthur)
+
+5:8: **bed**. A mat made of straw. It was light enough to be carried on the shoulder. (MacArthur)
+
+5:9: **took up his bed, and walked**. This phrase emphasizes the completeness of the cure. (MacArthur)
 
 5:10: **the Jews**. Greek says "loudaioi": a word used to refer specifically to Jewish religious leaders who opposed Jesus; also in vv. 15-18 (ESV)
 
@@ -1977,9 +1995,17 @@ Unnamed: 5:1
 When confronted (v.17, "Jesus said to them"), Jesus does not get into a rabbinic discussion on the nature of work. Rather, He claims He is working, just like God (v. 17), and hence is the Lord of the Sabbath.
 (ESV)
 
+5:10: **it is not lawful for you to take up your bed**. The assumption in Scripture seems to be that "work" was one's customary employment, but rabbinical opinion had developed oral tradition beyond the OT: it stipulated 39 activities forbidden, including carrying anything from one domain to another. Thus, the man had broken oral tradition, not OT law. Judaism during Jesus' time had degenerated into pious hypocrisy. (MacArthur)
+
 5:14: **sin no more, that nothing worse may happen to you**. May imply that the man's suffering was due to sin, without suggesting that all suffering is due to personal sin (see note on 9:2). (ESV)
 
+5:14: **sin no more, that nothing worse may happen to you**. Although not all disease is a consequence of sin (see Jn 9:1-3: man born blind; Lk 13:1-5: "unless you repent, you will likewise perish"), sin has its inevitable consequences. Jesus may specifically have chosen this man in order to highlight this point. (MacArthur)
+
 5:16: **this was why the Jews were persecuting Jesus**. Jesus' Jewish opponents were putting their merely human religious tradition above genuine love and compassion for others, which the OT commanded: "you shall love your neighbor as yourself" (Lev 19:18). (ESV)
+
+5:16: **persecuting**. Repeatedly persecuting: i.e. not one incident. (MacArthur)
+
+5:16: **because .. on Sabbath**. Most likely, Jesus deliberately practiced such healing on the Sabbath to provoke a confrontation with their religious hypocrisy that blinded them to the true worship of God: there was no prohibition of doing good on Sabbath! (MacArthur)
 
 5:17: **My Father**. Suggests a far closer relationship with God than other people had. (ESV)
 
@@ -1990,6 +2016,16 @@ When confronted (v.17, "Jesus said to them"), Jesus does not get into a rabbinic
 ### Jesus Is Equal with God
 
 5:18: **equal with God**. Equal in his nature and in every way, yet related to God in a Father-Son relationship. (ESV)
+
+5:18..: Jesus makes five claims to equality with God:
+1. He is equal with God in His person: vv. 17-18
+2. He is equal with God in His works: vv. 19-20
+3. He is equal with God in His power and sovereignty: v. 21
+4. He is equal with God in His judgment: v. 22
+5. He is equal with God in His honor: v. 23
+(MacArthur)
+
+5:18: **making Himself equal with God**. This verse confirms that the Jews instantly grasped the implications of His remarks that He was God. (MacArthur)
 
 ### The Authority of the Son
 
@@ -2061,7 +2097,21 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 5:44: **you receive glory from one another**. One reason people fail to believer is that they long for the approval and favor of others instead of seeking the approval and favor of God. (ESV)
 
-4:46: **if you believed Moses, you would believe Me**. Genuine believers have a heart that is receptive to the true words of God and will recognize and eagerly receive the words of God as spoken by Jesus. (ESV)
+5:46: **if you believed Moses, you would believe Me**. Genuine believers have a heart that is receptive to the true words of God and will recognize and eagerly receive the words of God as spoken by Jesus. (ESV)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## 6
 
