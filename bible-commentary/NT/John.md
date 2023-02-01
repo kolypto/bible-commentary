@@ -2029,9 +2029,24 @@ When confronted (v.17, "Jesus said to them"), Jesus does not get into a rabbinic
 
 ### The Authority of the Son
 
+5:19: **Amen, amen I say to you**. This is an emphatic way of saying, "I'm telling you the truth". (MacArthur)
+
+5:19: **the Son can do nothing of his own accord**. In response to Jewish hostility to His assertions of equality with God, Jesus emphasizes that the Son never took independent action that set Him against the Father, because the Son only did those things that were coincident and coextensive with all that the Father does. (MacArthur)
+
+5:19: **the Son can do nothing of his own accord**. To those who accused Jesus of blasphemy — i.e. going against the will of God, Jesus "truly truly" says that everything He does is in perfect sync with the will of the Father.
+
 5:19: **the Son can do nothing of his own accord**. Implies that 1) Jesus is equal to God, i.e. He is fully divine; 2) the Father and Son have different functions and roles 3) the Son is subject to the Father in everything He does, yet this does not deny their fundamental equality (ESV)
 
 5:19: **only what He sees the Father doing**. May imply that Jesus had a unique ability to see the Father's providential activities in the events of everyday life. That is, Jesus perceives God's hand and purpose in every event in this world. (ESV)
+
+5:19: **the Son can do nothing of his own accord**. Because Christ had voluntarily relinquished the independent exercise of His divine attributes, His healing power came from God the Father; it was not self-generated:
+* He cast out demons by the Spirit of God (Matt. 12:28).
+* The power of the Lord was present for Him to perform healing (Luke 5:17).
+* He cast out demons by the finger of God (Luke 11:20).
+* “The Son can do nothing of Himself” (John 5:19).
+* “Signs which God performed through Him” (Acts 2:22).
+* Christ healed because God was with Him (Acts 10:38).
+(MacArthur)
 
 5:20: **greater works**. Raising of the dead (11:1-45) and the resurrection. (ESV)
 
@@ -2044,13 +2059,21 @@ When confronted (v.17, "Jesus said to them"), Jesus does not get into a rabbinic
 5:22: **весь суд отдал Сыну**. Если бы людей судил Отец — то могло бы показаться, что далёкий Создатель установил законы и наказывает людей по Своему желанию. Но Иисус не только наш создатель: Он показал Свою любовь к нам, умерев за нас.
 Он не далёк от нас: судить людей будет Тот, Кто пришёл ради нас, Кто жил для нас, пожертвовал Собой и умер за нас.
 
+5:23: **that all may honor the Son**. This verse gives the reason that God entrusted all judgment to the Son: that all men should honor the Son just as they honor the Father. This verse goes far beyond making Jesus a mere ambassador — but gives Him full and complete equality with the Father. (MacArthur)
+
 5:23: **that all may honor the Son, just as they honor the Father**. In effect, establishes Jesus' right to be worshipped. (ESV)
+
+5:23: **Whoever does not honor the Son does not honor the Father who sent him**. Jesus turned the tables on the Jewish accusation against Him of blasphemy. Instead, Jesus affirmed that the only way anyone can honor the Father is through receiving the Son. Therefore, the Jews were the ones who actually blasphemed the Father by rejection of His Son. (MacArthur)
 
 5:23: **Whoever does not honor the Son does not honor the Father who sent him**. Shows that religions that consider Jesus merely a great prophet do not represent the truth about God, because they fail to worship and honor Jesus. (ESV)
 
 5:24: **has eternal life**. Eternal life is not promised; it beings immediately, in a partially realized, but significant way. This starts when one believes in Jesus. (ESV)
 
-5:25: **has passed from death to life**. Those who believe can face the last judgment with confidence: "God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. You .. who believe .. have eternal life." (1 Jn 5:11-13). (ESV)
+5:24: **has passed from death to life**. Those who believe can face the last judgment with confidence: "God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. You .. who believe .. have eternal life." (1 Jn 5:11-13). (ESV)
+
+5:25-29: **the dead**. The theme of these verses is resurrection. All men, saved and unsaved, will be literally and physically resurrected from the dead. However, the unsaved will be resurrected unto judgment and eternal punishment through separation from God, i.e. second death (Rev 20:6,14; 21:8). (MacArthur)
+
+5:25: **an hour is coming, and is now here**. This phrase reveals the already/not yet tension regarding the resurrection. Those who are born again are already "spiritually" resurrected (Eph 2:1: "you were dead in the trespasses"; Col 2:13: "you, who were dead .. God made alive"), and yet a future physical resurrection still awaits them (1 Cor 15:35-54: "how are the dead raised? .. bare kernel"; Phil 3:20-21: "will transform our lowly body to be like his glorious body"). (MacArthur)
 
 5:25: **the dead will hear the voice .. will live**. Spiritually dead — those currently dead in sin — will come to life. (See: "you were dead in trespasses and sins" (Eph 2:6); " let the dead bury their own dead" (Mt 8:22)).
 
@@ -2066,6 +2089,8 @@ When confronted (v.17, "Jesus said to them"), Jesus does not get into a rabbinic
 
 5:29: **those who have done good**. Good works function as evidence of true faith, and if good works are lacking — they show an absence of true faith.
 John is not saying that people's deeds are the basis on which judgment is pronounced, for that would contradict John's strong emphasis on belief in Jesus as the way to gain eternal life. (ESV)
+
+5:29: **those who have done good**. Jesus was not teaching justification by works (Jn 6:29: "this is the work of God: that you believe in him whom he has sent"). In the context, the "good" is believing on the Son so as to receive a new nature that produces good works (Jn 3:21: "whoever does what is true comes to light"; James 2:14-20: "if someone says he has faith but does not have works"), while the "evil" done is to reject the Son and hate the light, which results in evil deeds. In essence, works merely evidence one's nature as saved or unsaved, but human works never determine one's salvation. (MacArthur)
 
 ### Witnesses to Jesus
 
