@@ -2110,11 +2110,15 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 5:35: **He was**. The past tense may imply that John is now dead or at least in prison. (ESV)
 
+5:36: **the very works that I do**. The miracles of Jesus were witnesses to His deity and messiahship. (MacArthur)
+
 5:37: **the Father .. has himself borne witness**. Through Jesus' miracles and teachings, and by all of God's witness in Scripture (ESV)
 
 5:39: **You search the Scriptures**. The study of Scripture does not by itself impart life. The Scriptures rather bear witness to the One who gives life, in Whom one should believe to receive life. The study of the Bible ought to result in genuine faith in Jesus, followed by obedient action and transformed lives. (ESV)
 
 5:40: **yet you refuse to come to me**. People who read the OT without seeing that it all points to Jesus fail to understand its message. (ESV)
+
+5:41: **I do not receive glory from people. If Jesus agreed to be the kind of Messiah the Jews wanted, providing miracles and food, being a political and military power, — He would receive honor from them. But He sought only to please God. (MacArthur)
 
 5:43: **I have come in my Father's name**. Jesus came in the authority of the Father, and in a deeper sense, represented the entire character of the Father. (A "name" in an OT sense represented all that was true about him). (ESV)
 
