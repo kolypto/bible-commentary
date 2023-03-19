@@ -3822,6 +3822,13 @@ xx: Давайте вспомним. Кто такой Авраам? => Отец
 
 ### Abram Rescues Lot and is blessed by Melchizedek
 
+Maps:
+
+* [Abraham Egypt Bethel](img/Gen-14-Abraham-Egypt-Bethel.png)
+* [Abraham Bethel](img/Gen-14-Abraham-Bethel.png)
+* [Cities of Israel](img/Gen-14-Cities-of-Israel.png)
+* [Ashteroth-Karnaim El-Paran](img/Gen-14-Ashteroth-Karnaim-El-Paran.png)
+
 14:1: **Сеннаар**. В Книге Бытия (Быт. 10:10) говорится, что в начале царство Нимрода составляли «Вавилон, Эрех, Аккад и Халне, в земле Сеннаар». В следующей главе (Быт. 11:2), сказано, что человечество, всё ещё говорившее на одном языке, после Потопа поселилось в Сеннааре, где и началось строительство Вавилонской башни. ([Википедия](https://ru.wikipedia.org/wiki/%D0%A1%D0%B5%D0%BD%D0%BD%D0%B0%D0%B0%D1%80))
 
 14:1: **Элам**. Историческая область и древнее государство восточнее междуречья, в частности, государства шумер.
