@@ -15,6 +15,14 @@ Commentary:
 
 
 
+<!--  print(' '.join([f'<a href="#{i}">{i}</a>' for i in range(1, 50+1)])) -->
+<a href="#1">1</a> <a href="#2">2</a> <a href="#3">3</a> <a href="#4">4</a> <a href="#5">5</a> <a href="#6">6</a> <a href="#7">7</a> <a href="#8">8</a> <a href="#9">9</a> <a href="#10">10</a> <a href="#11">11</a> <a href="#12">12</a> <a href="#13">13</a> <a href="#14">14</a> <a href="#15">15</a> <a href="#16">16</a> <a href="#17">17</a> <a href="#18">18</a> <a href="#19">19</a> <a href="#20">20</a> <a href="#21">21</a> <a href="#22">22</a> <a href="#23">23</a> <a href="#24">24</a> <a href="#25">25</a> <a href="#26">26</a> <a href="#27">27</a> <a href="#28">28</a> <a href="#29">29</a> <a href="#30">30</a> <a href="#31">31</a> <a href="#32">32</a> <a href="#33">33</a> <a href="#34">34</a> <a href="#35">35</a> <a href="#36">36</a> <a href="#37">37</a> <a href="#38">38</a> <a href="#39">39</a> <a href="#40">40</a> <a href="#41">41</a> <a href="#42">42</a> <a href="#43">43</a> <a href="#44">44</a> <a href="#45">45</a> <a href="#46">46</a> <a href="#47">47</a> <a href="#48">48</a> <a href="#49">49</a> <a href="#50">50</a>
+
+
+
+
+
+
 
 
 
@@ -28,7 +36,7 @@ Commentary:
 
 Introduction:
 Reading Genesis 1-11 (Primeval history), readers will see that it’s designed to refute ancient delusions: God is almighty (not limited, like their human-like gods); the sun and the moon are not gods in their own right but are created by God; this God does not need feeding by man but He supplies man with food; it is human sin, not divine annoyance that prompts the flood. (ESV)
-                ObjectMatch(user_id=14, slug='build-great-apis'),
+
 Introduction:
 In this book of beginnings, God revealed Himself and a worldview to Israel which contrasted, at times sharply, with the worldview of Israel’s neighbors. (MacArthur)
 
