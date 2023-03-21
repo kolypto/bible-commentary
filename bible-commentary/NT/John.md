@@ -2568,7 +2568,9 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 5:40: **Но вы не хотите придти ко Мне, чтобы иметь жизнь**. Писания свидетельствуют о Мне, но вы не хотите прийти ко Мне, чтоб иметь жизнь. Отсюда узнаем, что они были злы по произволению. Ибо не сказал: вы не можете прийти, но «не хотите придти». (Блж. Феофилакт Болгарский)
 
-5:41: **I do not receive glory from people. If Jesus agreed to be the kind of Messiah the Jews wanted, providing miracles and food, being a political and military power, — He would receive honor from them. But He sought only to please God. (MacArthur)
+5:40: **Но вы не хотите придти ко Мне, чтобы иметь жизнь**. Это ко многим можно приложить и в настоящее время. Иные не знают, что Иисус — источник жизни. А иные — знают, но не любят. Они хотят жить плотию. (~Прав. Иоанн Кронштадтский)
+
+5:41: **I do not receive glory from people**. If Jesus agreed to be the kind of Messiah the Jews wanted, providing miracles and food, being a political and military power, — He would receive honor from them. But He sought only to please God. (MacArthur)
 
 5:42: **знаю вас: вы не имеете в себе любви к Богу**. Вы Меня преследуете под тем предлогом, что любите Бога. Но не так это, нет. Ибо Я знаю об вас, что вы не имеете в себе любви к Богу, хотя и выставляете всюду, что гоните Меня из любви к Богу. Иудеи действительно не имели любви к Богу, потому что гнали самосущую Любовь - Сына Божия. Действительно, не имели они в себе и слова Его пребывающего, ибо отказывались от Слова и Бога. (Блж. Феофилакт Болгарский)
 
