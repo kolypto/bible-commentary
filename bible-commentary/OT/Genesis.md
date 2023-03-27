@@ -3767,6 +3767,8 @@ xx: Давайте вспомним. Кто такой Авраам? => Отец
 
 13:17: **в долготу и в широту её**. Не назначив пределов земли обетованной, Бог повелевает пройти ее в долготу и широту. Сие можно разуметь так, что он повелевает Авраму проходить и обходить предлежащую ему страну по произволению с таким уверением, что всякое место, где он поставит свою ногу, будет принадлежать к земле обетованной. Бог внушает чрез сие Авраму, что мера обетования есть мера веры и что пределы земли обетованной суть колико подвижны, толико обширны и даже невидимы. (Свт. Филарет (Дроздов))
 
+13:17: **встань, пройди по земле сей в долготу и в широту ее**. Чтобы овладеть землёй, нужно пройти её всю, в длину и в ширину.
+
 13:18: **at Hebron**. A cuneiform tablet discovered there from this time period indicates that Hebron was a capital city of a Canaanite kingdom. (ESV)
 
 13:18: **built an altar**. Repeated mentions of building altars to the Lord indicates that even though Abram’s faith had stumbled while in Egypt, he worships God. This involves trusting God and following Him now, especially remembering that it was by God’s mercy that he’s received his wife back.
