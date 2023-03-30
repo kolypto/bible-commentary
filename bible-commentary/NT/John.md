@@ -2683,20 +2683,57 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 ## 6
 
-6:2: **The crowd** was following Jesus not because they wanted to learn from His teachings, but because they wanted to be entertained by His miracles, or perhaps, even benefit from them.
+🔴 MacArthur Stop
+🔴 Optina STOP
 
-6:6: What kind of “**test**” might that be? How would Philip pass this test, or fail? How could he possibly have known what Jesus **would do**? Perhaps, Jesus had done things like this before, and He expected Philip to ask Jesus to feed the crowd?
+### Jesus Feeds the Five Thousand
 
-6:6: When God **tests** a person, who is going to learn something new from that test? Definitely not God, but the person. What was Philip going to learn about himself from that test?
+6:1..: The feeding of the multitude is another messianic "sign". The sign shows that Jesus fulfills symbolism related to God's provision of manna to Israel in the wilderness through Moses. (ESV)
 
-6:6: The **test** was in the expectation of people sharing the little they had with them with each other. And indeed, a boy came forth who had some food (v. 9)
+6:1: **After this**. Again, indicates the passing of an unspecified period of time. As much as half a year may have passed. (ESV)
 
-6:8: **Andrew**. In all the incidents that we see Andrew involved in, he is always doing the same thing: he's bringing people to Christ. He brought his brother Peter, he brought the boy with the fishes. He even did not hesitate to bring gentiles to Christ: this tells us about the openness of his heart, he probably thought that there is no one who Christ would not want to see. He also had faith: we do not know what he was thinking about when he brought this boy with some crackers and pickled fish, but he definitely believed that the Lord could do something with that. After all, Andrew had seen Jesus make wine; why couldn't he make food? (MacArthur)
+6:2: **large crowd was following Him**. The crowd was following Jesus not because they wanted to learn from His teachings, but because they wanted to be entertained by His miracles, or perhaps, even benefit from them.
 
-6:7-8: Here we see two different approaches. **Philip** has already given up and could only say “I do not know”, but **Andrew** attempts to find a solution even in a hopeless situation.
+6:3: **Jesus went up on the mountain**. "The mountain" may refer not to any specific mountain, but to the hill country east of the lake, known today as "Golan Heights". (ESV)
+
+6:4: **the Passover**. This is the second of the three Passovers mentioned by John, and the only one that find Jesus in Galillee. (ESV)
+
+6:6: **He said this to test him**. What kind of “test” might that be? How would Philip pass this test, or fail? How could he possibly have known what Jesus would do? Perhaps, Jesus had done things like this before, and He expected Philip to ask Jesus to feed the crowd?
+
+6:6: **He said this to test him**. When God tests a person, who is going to learn something new from that test? Definitely not God, but the person. What was Philip going to learn about himself from that test?
+
+6:6: **He said this to test him**. The test was in the expectation of people sharing the little they had with them with each other. And indeed, a boy came forth who had some food (v. 9)
+
+6:7: **two hundred denarii**. A dinarius was about one day's pay. (ESV)
+
+6:8: ⭐ **Andrew**. In all the incidents that we see Andrew involved in, he is always doing the same thing: he's bringing people to Christ. He brought his brother Peter, he brought the boy with the fishes. He even did not hesitate to bring gentiles to Christ: this tells us about the openness of his heart, he probably thought that there is no one who Christ would not want to see.
+He also had faith: we do not know what he was thinking about when he brought this boy with some crackers and pickled fish, but he definitely believed that the Lord could do something with that. After all, Andrew had seen Jesus make wine; why couldn't he make food?
+(MacArthur)
+
+6:7-8: ⭐ **Philip answered .. Andrew said ..**. Here we see two different approaches. Philip has already given up and could only say “I do not know”, but Andrew attempts to find a solution even in a hopeless situation.
 This is how faith functions: one accepts the situation, does whatever little thing is possible to do, and then trusts God to do the rest. And this is what Jesus expects: the disciples should start solving the issue, then bring the issue to Him, so that He can miraculously provide for this need.
 
-6:15: **Make him king**. People wanted Jesus to work 8 hours a day and multiply bread. (Андроник Пантак)
+6:9: **barley loaves and two fish**. Barley was common food for the poor: the more well-to-do preferred white bread. The fish were probably dried or preserved, possibly pickled. (ESV)
+
+6:14: **The Prophet**. The people here see Jesus as fulfilling the prediction of a prophet like Moses (Dt 18:15: "The LORD your God will raise up for you a prophet like me from among you, from your brothers — it is to him you shall listen"). In Acts 3:22-23, Peter identifies Jesus as the fulfillment of this prophecy: "Repent therefore, and turn back .. times of refreshing may come .. and he may send the Christ appointed for you, Jesus .. for restoring all the things about which God spoke by the mouth of his holy prophets long ago. Moses said: ..." (Acts 3:18-26).
+However, "prophet" is not a common title for Jesus and is more often used by those who know little about Him.
+(ESV)
+
+6:15: ⭐ **Make him king**. Люди хотели чтобы Иисус работал восьмичасовую смену и умножал хлеба. 😁 (Андроник Пантак)
+
+6:15: **Make him king**. A spontaneous uprising against the Roman authorities. (ESV)
+
+### Jesus Walks on Water
+
+6:19: **they saw Jesus walking on the sea**. Walking on the sea is not something Jesus did just to amaze the disciples. Rather, it is a powerful, visible demonstration of Jesus' sovereignty over the world that He created. In the OT, God alone rules over the seas (Ps 29:10-11: " The LORD sits enthroned over the flood"; Ps 89:9: "You rule the raging of the sea"; 107:28-30: ""He made the storm be still). (ESV)
+
+6:20: **It is I**. Gk. "ego eimi", "I am". It may allude to God's self-identification as "I am Who I am", and may be an indication of Jesus' divinity. This connection becomes more clear when the phrase is repeated in later verses (Jn 6:35: "I am the bread of life"; Jn 8:24: "unless you believe that I am he you will die in your sins.”"; Jn 8:58: "“Truly, truly, I say to you, before Abraham was, I am.") (ESV)
+
+6:21: **Immediately the boat was at the land**. A miraculous instance of what is taught in Ps 107:29-30: "He made the storm be still, and the waves of the sea were hushed. Then they were glad that the waters were quiet, and he brought them to their desired haven." (ESV)
+
+🔴 ESV STOP
+
+### I Am the Bread of Life
 
 6:26: **Not because you saw signs, but because you ate your fill**. A “sign” is something that points to something; namely, to the Messiah. The sign of bread in the wilderness pointed to Jesus as the Messiah, but the people did not see that sign. They merely saw a miracle and were attracted by free bread and entertainment. (Андроник Пантак)
 
@@ -2714,7 +2751,7 @@ This is how faith functions: one accepts the situation, does whatever little thi
 
 6:44: **Unless the father draws him**. Now, the sum of the doctrine of eternal security comes down to this.  Is the death of Christ a work that *potentially* saves *willing* sinners, or is it a work that *actually* provides salvation for *unwilling* sinners who by God’s sovereign grace *will be made willing*? The only possible answer is that God provided a sacrifice in His Son, a true payment in full for the sins of *all who would ever believe*, and all who would ever believe will believe because the Father will **draw them**, and He will grant them repentance, and faith, and regeneration. (MacArthur)
 
-6:44: **No one cam come to Me unless the Father .. draw him**. This is the doctrine of election. Did I come to Jesus because I was irresistibly  drawn by God and had nothing to do with it, or did I come to Christ because my heart said I want to come to Christ? And the answer is, "yes, it is so" 😁
+6:44: **No one can come to Me unless the Father .. draw him**. This is the doctrine of election. Did I come to Jesus because I was irresistibly  drawn by God and had nothing to do with it, or did I come to Christ because my heart said I want to come to Christ? And the answer is, "yes, it is so" 😁
 This is a paradox, but it shouldn't be a problem. John Murray says, "there is an apparent paradox in every biblical doctrine". For instance:
 1. Who wrote Romans? It it all from Paul? Did God write it instead of Paul? Did they take turns writing it: one verse from Paul, then one verse from God? No; it was all from the mind of Paul, and, at the same time, it was all from God. It can't be in our human thinking. It's paradoxical. But it is.
 2. Was Jesus God or man? Half God, half man? What's half a god then? A nothing. But he was 100% God, and 100% man. It can't be. But if you try to find a truth in the middle that accommodates both, in the end you destroy both.
@@ -2744,6 +2781,7 @@ In the end, that’s a matter of faith, isn’t it?
 В итоге, это вопрос веры. Мы, будучи неспособны понять всё целиком.. верим ли Ему?
 (Джон МакАртур; в вольном переводе)
 
+### The Words of Eternal Life
 
 6:66: “**From that time many of his disciples went back**,” back where?  Just back, back to their former life, “and walked no more with him.”  Why?  Too much, too much was expected, too much was required.  They weren’t interested in total commitment.  They bailed out.  Free food?  That’s great.  Healing?  Super.  Commitment?  Not interested.  Verse 67, “Jesus said to the 12.”  Listen, after everybody leaves, guess who’s still there?  12 guys.  What I’m trying to show you is: these are not just sort of tagalongs; these 12 are the ones who counted the cost, stuck it out, paid the price when the rest bailed out.  And He said to them, “Will you also go away?”  And you don’t understand that in English you have to see the Greek.  The Greek is a class of condition that should expect a no answer.  In other words Jesus said this, and if you were looking at it in the Greek, “You won’t also go away, will you?”  Peter speaks for the group and says, “Where would we go?  You have the words of eternal life.  And we believe and are sure that you are the Christ, the Son of the living God.”  Then, Jesus points out that even among them, one of them’s a devil.  But the point was this: the crowd was on the surface in the physical; Peter says, we’ve gone past that, we’re looking at a spiritual truth, we see You as the Messiah, the Son of the living God.  You got it, Peter.  (MacArthur)
 
