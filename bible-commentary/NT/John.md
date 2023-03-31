@@ -2738,19 +2738,51 @@ However, "prophet" is not a common title for Jesus and is more often used by tho
 
 6:26: **не потому, что видели чудеса, но потому, что ели хлеб и насытились**. Знак — это то что указывает на что-то; а конкретно — на Мессию. Знамение хлеба в дикой местности указывает на Иимума как на Мессию, но люди не разглядели смысл этого знамения. Они просто увидели чудо и их привлёк бесплатный хлеб и впечатления. (Андроник Панта)
 
+6:26: **but because you ate your fill of the loaves**. People were seeking Jesus only for the physical or material benefit that He gave, whereas they should have sought Him because they saw signs that pointed to Jesus' divine nature. (ESV)
+
 6:27: **Do not work for the food that perishes**. Jesus calls their attention from mere miracles to the signs. He calls them to "work", to make effort, to strive for spiritual things rather than physical things.
+
+6:27: **on Him God the Father has set His seal**. A seal mad of wax, clay, or soft metal, would signify either ownership or authentication of an item or a document; the second sense is probably in view here. (ESV)
 
 6:29: **The work is to believe**. Jesus says that this is what they should do: recognize signs as such.
 
-6:30: **What sign** The Jews may think that they are willing to accept a sign if it’s going to be given, but they have just missed one, being unable to understand and recognize. They even remember the manna episode (v. 31), but are unable to link what had happened with Israel with what has just happened in front of their eyes.
+6:30: **what sign do you do, that we may see and believe you?**. The Jews may think that they are willing to accept a sign if it’s going to be given, but they have just missed one, being unable to understand and recognize. They even remember the manna episode (v. 31), but are unable to link what had happened with Israel with what has just happened in front of their eyes.
 
-6:40: **Look on the Son**. To see is to have a personal experience, a relation, a contact. (Андроник Пантак)
+6:32: **My Father gives you true bread from heaven**. The true bread would be something that nourishes people eternally and spiritually and thus is infinitely superior to the manna given to Israel. (ESV)
 
-6:40: **Looks on the Son and believes**. May be a parallel to the serpent raised by Moses in the wilderness: people who looked on it, and believed, were saved from a physical disease. People who look on the Son, and believe, are saved from the spiritual disease.
+6:35: **I am the bread of life**. The first of seven "I am" sayings recorded in this Gospel.
+Metaphorical "I am" statements:
+1. I am the bread of life: 6:35, 48, 51
+2. I am the light of the world: 8:12; 9:5
+3. I am the door of the sheep: 10:7, 9
+4. I am the good shepherd: 10:11, 14
+5. I am the resurrection and the life: 11:25
+6. I am the way, the truth, and the life: 14:6
+7. I am the true vine: 15:1
+Absolute "I am" statements:
+* 6:20: “It is I; do not be afraid.”
+* 8:24,28,58: "unless you believe that o am he you will die in your sins" ; "“When you have lifted up the Son of Man, then you will know that wI am he"; "Truly, truly, I say to you, before Abraham was, I am."
+* 18:5: "They answered him, “Jesus of Nazareth.” Jesus said to them, “I am he.”"
+Refers to God as "I am": Ex 3:14
+(ESV)
 
-6:44: **Unless the father draws him**. Now, the sum of the doctrine of eternal security comes down to this.  Is the death of Christ a work that *potentially* saves *willing* sinners, or is it a work that *actually* provides salvation for *unwilling* sinners who by God’s sovereign grace *will be made willing*? The only possible answer is that God provided a sacrifice in His Son, a true payment in full for the sins of *all who would ever believe*, and all who would ever believe will believe because the Father will **draw them**, and He will grant them repentance, and faith, and regeneration. (MacArthur)
+6:37: **All that the Father gives me will come to me**. Links with v. 44: "No one can come to Me unless the Father .. draws him".
 
-6:44: **No one can come to Me unless the Father .. draw him**. This is the doctrine of election. Did I come to Jesus because I was irresistibly  drawn by God and had nothing to do with it, or did I come to Christ because my heart said I want to come to Christ? And the answer is, "yes, it is so" 😁
+6:37: **whoever comes to Me I will never cast out**. No one should think, "maybe I am not chosen by God": Jesus will not reject anyone. Yet a few verses later Jesus paradoxically states that once people come to Jesus, they will realize that behind their willing decision to come and believe lies the mysterious, invisible work of the Father Who all along was drawing them to Christ. (ESV)
+
+6:39: **this is the will .. that I should lose nothing of all that He has given Me, but raise it up on the last day**. Implies that everyone who has been "given" by the Father to the Son for salvation will in fact be saved. In v. 40 Jesus further explains who these people are: "everyone who looks on the Son and believes in Him". (ESV)
+
+6:40: **всякий, видящий Сына и верующий в Него, имел жизнь вечную**. Видеть — это иметь личный опыт, отношение, взаимодействие (Андроник Пантак)
+
+6:40: **everyone who looks on the Son and believes**. May be a parallel to the serpent raised by Moses in the wilderness: people who looked on it, and believed, were saved from a physical disease. People who look on the Son, and believe, are saved from the spiritual disease.
+
+6:43: **Do not grumble among yourselves**. The grumbling is reminiscent of the pattern of grumbling against God in the Old Testament (Ex 16:8: "the LORD has heard your grumbling that you grumble against him"; Num 14:27: "How long shall this wicked congregation grumble against me?"; Ps 95:8-9: "do not harden your hearts .. as on the day at Massah in the wilderness, when your fathers put me to the test") (ESV)
+
+6:44: **Unless the father draws him**. Now, the sum of the doctrine of eternal security comes down to this.  Is the death of Christ a work that *potentially* saves *willing* sinners, or is it a work that *actually* provides salvation for *unwilling* sinners who by God’s sovereign grace *will be made willing*? The only possible answer is that God provided a sacrifice in His Son, a true payment in full for the sins of *all who would ever believe*, and all who would ever believe will believe because the Father will "draw them", and He will grant them repentance, and faith, and regeneration. (MacArthur)
+
+6:44: **No one can come to Me unless the Father .. draws him**. "No one can come", Gk. "dynamai" means "to be able". No human being has the moral and spiritual ability to come to Christ — unless God gives him the desire and inclination to come and the ability to place trust in Christ. (ESV)
+
+6:44: ⭐ **No one can come to Me unless the Father .. draws him**. This is the doctrine of election. Did I come to Jesus because I was irresistibly  drawn by God and had nothing to do with it, or did I come to Christ because my heart said I want to come to Christ? And the answer is, "yes, it is so" 😁
 This is a paradox, but it shouldn't be a problem. John Murray says, "there is an apparent paradox in every biblical doctrine". For instance:
 1. Who wrote Romans? It it all from Paul? Did God write it instead of Paul? Did they take turns writing it: one verse from Paul, then one verse from God? No; it was all from the mind of Paul, and, at the same time, it was all from God. It can't be in our human thinking. It's paradoxical. But it is.
 2. Was Jesus God or man? Half God, half man? What's half a god then? A nothing. But he was 100% God, and 100% man. It can't be. But if you try to find a truth in the middle that accommodates both, in the end you destroy both.
@@ -2759,26 +2791,29 @@ See whenever you try to reduce the truth of God down to the human brain, you’r
 In the end, that’s a matter of faith, isn’t it?
 (MacArthur)
 
-6:44: (перевод) **Никто не может прийти ко Мне, если не привлечет его Отец, пославший Меня; и Я воскрешу его в последний день.** Иоанна 6:44
+6:44: (перевод) **Никто не может прийти ко Мне, если не привлечет его Отец, пославший Меня; и Я воскрешу его в последний день.**
 Смотрите как получается: с одной стороны, мы приходим к Богу добровольно. С другой стороны, если Бог не позовёт нас, то мы вообще не пошли бы к Нему. Так кто же действует первый? 
 Пришёл ли я Ко Христу потому что Бог тянул меня с непреодолимой силой, и я ничего не мог поделать? Или пришёл ли я ко Христу потому что моё сердце того пожелало? 
 Ответ на это очень простой. "Да, это так". 😁
 Нам кажется, что либо одно, либо другое, и это такой парадокс. Так оно и есть. Джон Мюррей, американский богослов, даже так сказал: "парадокс есть в каждой Библейской доктрине". 
-Например, послание апостола Павла к Римлянам. Его писал Павел. В то же время, нам известно, что всё Писание богодухновенно. Тогда кто же его написал? Всё это от Павла, и Бог тут не при чём? Или всё это диктовал Бог, а Павел только записывал? Или они вообще писали по очереди? Что-то не сходится. Потому что в послании вы видим Божью истину в каждом слове, и одновременно, видим личность Павла. Там и его словарный запас, и его мысль, и его жизнь. 
-Автор -- Павел. И одновременно, автор -- Бог.
-По нашему, человеческому, разумению, это невозможно! Это парадокс. Да, так и есть.
-Ещё пример. Был ли Иисус Богом, или человеком? 
-Может, Он был полубогом, и получеловеком? А скажите-ка мне тогда.. что такое половина Бога? Это ничто. А Иисус был на 100% Бог. И одновременно на 100% человек. 
-Это невозможно. Но дело в том, что если вы попытаетесь как-либо примирить эти две правды и найти что-то среднее... вы уничтожаете их обе. 
-И ещё вопрос. Вот вы христианин. Кто живёт вашу христианскую жизнь? 
-Вы живёте, а Бог тут только наблюдает? 
-Или же её живёт Христос, который в вас, а вы просто наблюдаете? 
-А Павел как об этом пишет? "Уже не я живу, но живёт во мне Христос".
-Такой же парадокс. 
-В итоге получается, что если попытаться "впихнуть" Божью мудрость в малую коробочку человеческого сознания, то всё равно останутся лишние детали. Потому что Бог знает, как оно всё вместе работает; а мы -- нет.
-И Он не обязан ограничивать себя, делая только то, что мы способны понять.
+Например, послание апостола Павла к Римлянам. Его писал Павел. В то же время, нам известно, что всё Писание богодухновенно. Тогда кто же его написал? Всё это от Павла, и Бог тут не при чём? Или всё это диктовал Бог, а Павел только записывал? Или они вообще писали по очереди? Что-то не сходится. Потому что в послании вы видим Божью истину в каждом слове, и одновременно, видим личность Павла. Там и его словарный запас, и его мысль, и его жизнь. Автор -- Павел. И одновременно, автор -- Бог. По нашему, человеческому, разумению, это невозможно! Это парадокс. Да, так и есть.
+Ещё пример. Был ли Иисус Богом, или человеком? Может, Он был полубогом, и получеловеком? А скажите-ка мне тогда.. что такое половина Бога? Это ничто. А Иисус был на 100% Бог. И одновременно на 100% человек. Это невозможно. Но дело в том, что если вы попытаетесь как-либо примирить эти две правды и найти что-то среднее... вы уничтожаете их обе.
+И ещё вопрос. Вот вы христианин. Кто живёт вашу христианскую жизнь? Вы живёте, а Бог тут только наблюдает? Или же её живёт Христос, который в вас, а вы просто наблюдаете? А Павел как об этом пишет? "Уже не я живу, но живёт во мне Христос".Такой же парадокс.
+В итоге получается, что если попытаться "впихнуть" Божью мудрость в малую коробочку человеческого сознания, то всё равно останутся лишние детали. Потому что Бог знает, как оно всё вместе работает; а мы -- нет. И Он не обязан ограничивать себя, делая только то, что мы способны понять.
 В итоге, это вопрос веры. Мы, будучи неспособны понять всё целиком.. верим ли Ему?
 (Джон МакАртур; в вольном переводе)
+
+6:51: **the bread that I will give for the life of the world is my flesh**. Jesus intermingles physical and spiritual truth: He is not talking about literal "bread" but about the true "living bread" in the sense that it satisfies spiritual hunger in those who believe.
+Jesus becomes this spiritual nourishment by sacrificing His own physical body in His death on the cross.
+(ESV)
+
+6:52: **How can this man give us his flesh to eat**. Another example of misunderstanding: Jesus' hearers take Him literally. Jesus teaches spiritual truths by referring to physical objects, and people frequently misunderstand. (ESV)
+
+6:53: **unless you eat the flesh of the Son of Man and drink his blood, you have no life in you**. Cannot be intended literally: Jesus often speaks in terms of physical objects to teach about spiritual realities.
+Here, to "eat" Jesus' flesh has the spiritual meaning of trusting and believing in Him and His death for the sins of mankind. See in v.35, where Jesus speaks of coming to Him as satisfying "hunger", and believing in Him as satisfying "thirst".
+Similarly, to "drink blood" means to trust in His atoning death, which is represented by the shedding of His blood.
+The theme of being united with "the Son of Man" is represented in the Lord's Supper, where Jesus' followers symbolically eat His flesh and drink His blood. This is anticipated in OT feasts (see 1 Cor 5:7: "For Christ, our Passover lamb, has been sacrificed") and consummated in the marriage supper of the Lamb (Rev 19:9: "Blessed are those who are invited to the marriage supper of the Lamb")
+(ESV)
 
 🔴 ESV STOP
 
