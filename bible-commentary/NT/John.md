@@ -2683,10 +2683,13 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 ## 6
 
-🔴 MacArthur Stop
 🔴 Optina STOP
 
 ### Jesus Feeds the Five Thousand
+
+6:1..: The structure of this chapter is close to the same structure as Chapter 5: both occur around a Jewish feast, both lead to a discourse of Jesus' deity, the result of both chapters is the same: Jesus is rejected. In Chapter 5, Jesus is rejected in the southern region around Jerusalem, in Chapter 6 Jesus is rejected in the north, around Galilee. (MacArthur)
+
+🔴 MacArthur STOP
 
 6:1..: The feeding of the multitude is another messianic "sign". The sign shows that Jesus fulfills symbolism related to God's provision of manna to Israel in the wilderness through Moses. (ESV)
 
@@ -2715,13 +2718,17 @@ This is how faith functions: one accepts the situation, does whatever little thi
 
 6:9: **barley loaves and two fish**. Barley was common food for the poor: the more well-to-do preferred white bread. The fish were probably dried or preserved, possibly pickled. (ESV)
 
+6:11: **Jesus then took the loaves**. Interestingly, both creative miracles of Jesus: the water into wine, and the multiplying of bread, speak of the main elements in the Lord's Supper. Which is not described in this Gospel: perhaps, because John wrote to supplement and provide additional information not recorded in the synoptics (MacArthur)
+
 6:14: **The Prophet**. The people here see Jesus as fulfilling the prediction of a prophet like Moses (Dt 18:15: "The LORD your God will raise up for you a prophet like me from among you, from your brothers — it is to him you shall listen"). In Acts 3:22-23, Peter identifies Jesus as the fulfillment of this prophecy: "Repent therefore, and turn back .. times of refreshing may come .. and he may send the Christ appointed for you, Jesus .. for restoring all the things about which God spoke by the mouth of his holy prophets long ago. Moses said: ..." (Acts 3:18-26).
 However, "prophet" is not a common title for Jesus and is more often used by those who know little about Him.
 (ESV)
 
 6:15: ⭐ **Make him king**. Люди хотели чтобы Иисус работал восьмичасовую смену и умножал хлеба. 😁 (Андроник Пантак)
 
-6:15: **Make him king**. A spontaneous uprising against the Roman authorities. (ESV)
+6:15: **by force**. Force against whom? Jesus? No: by force — against the Roman government.
+
+6:15: **by force make him king**. A spontaneous uprising against the Roman authorities. (ESV)
 
 ### Jesus Walks on Water
 
@@ -2730,7 +2737,6 @@ However, "prophet" is not a common title for Jesus and is more often used by tho
 6:20: **It is I**. Gk. "ego eimi", "I am". It may allude to God's self-identification as "I am Who I am", and may be an indication of Jesus' divinity. This connection becomes more clear when the phrase is repeated in later verses (Jn 6:35: "I am the bread of life"; Jn 8:24: "unless you believe that I am he you will die in your sins.”"; Jn 8:58: "“Truly, truly, I say to you, before Abraham was, I am.") (ESV)
 
 6:21: **Immediately the boat was at the land**. A miraculous instance of what is taught in Ps 107:29-30: "He made the storm be still, and the waves of the sea were hushed. Then they were glad that the waters were quiet, and he brought them to their desired haven." (ESV)
-
 
 ### I Am the Bread of Life
 
@@ -2815,11 +2821,21 @@ Similarly, to "drink blood" means to trust in His atoning death, which is repres
 The theme of being united with "the Son of Man" is represented in the Lord's Supper, where Jesus' followers symbolically eat His flesh and drink His blood. This is anticipated in OT feasts (see 1 Cor 5:7: "For Christ, our Passover lamb, has been sacrificed") and consummated in the marriage supper of the Lamb (Rev 19:9: "Blessed are those who are invited to the marriage supper of the Lamb")
 (ESV)
 
-🔴 ESV STOP
-
 ### The Words of Eternal Life
 
-6:66: “**From that time many of his disciples went back**,” back where?  Just back, back to their former life, “and walked no more with him.”  Why?  Too much, too much was expected, too much was required.  They weren’t interested in total commitment.  They bailed out.  Free food?  That’s great.  Healing?  Super.  Commitment?  Not interested.  Verse 67, “Jesus said to the 12.”  Listen, after everybody leaves, guess who’s still there?  12 guys.  What I’m trying to show you is: these are not just sort of tagalongs; these 12 are the ones who counted the cost, stuck it out, paid the price when the rest bailed out.  And He said to them, “Will you also go away?”  And you don’t understand that in English you have to see the Greek.  The Greek is a class of condition that should expect a no answer.  In other words Jesus said this, and if you were looking at it in the Greek, “You won’t also go away, will you?”  Peter speaks for the group and says, “Where would we go?  You have the words of eternal life.  And we believe and are sure that you are the Christ, the Son of the living God.”  Then, Jesus points out that even among them, one of them’s a devil.  But the point was this: the crowd was on the surface in the physical; Peter says, we’ve gone past that, we’re looking at a spiritual truth, we see You as the Messiah, the Son of the living God.  You got it, Peter.  (MacArthur)
+6:63: **the flesh is no help at all**. The flesh: i.e. human nature, emotions, will, intellect. It is completely incapable of producing genuine spiritual life: this can only be done by the Spirit. (ESV)
+
+6:63: **The words that I have spoken to you are spirit and life**. The Holy Spirit works in and through the words that Jesus speaks, and they work in the unseen spiritual realm and awaken genuine spiritual life. (ESV)
+
+6:64: **there are some of you who do not believe**. Jesus knows the status of everyone's heart, and therefore, He knows who does not believe, and also knows who would betray Him. (ESV)
+
+6:64: **there are some of you who do not believe**. Some of the people following Him were not genuine believers and were perhaps following Jesus only because of the physical benefits He gave: healing, food, miracles. (ESV)
+
+6:66: **From that time many of his disciples went back**. Back where?  Just back, back to their former life, “and walked no more with him.”  Why?  Too much, too much was expected, too much was required.  They weren’t interested in total commitment.  They bailed out.  Free food?  That’s great.  Healing?  Super.  Commitment?  Not interested. (MacArthur)
+
+6:68: **Lord, to whom shall we go? You have the words of eternal life**. Peter rightly implies here that there is no other teacher who can lead people to eternal life and to true fellowship with God Himself. (ESV)
+
+🔴 ESV STOP
 
 ## 7
 
