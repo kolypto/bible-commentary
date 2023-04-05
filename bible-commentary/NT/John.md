@@ -2689,13 +2689,11 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 6:1..: The structure of this chapter is close to the same structure as Chapter 5: both occur around a Jewish feast, both lead to a discourse of Jesus' deity, the result of both chapters is the same: Jesus is rejected. In Chapter 5, Jesus is rejected in the southern region around Jerusalem, in Chapter 6 Jesus is rejected in the north, around Galilee. (MacArthur)
 
-🔴 MacArthur STOP
-
 6:1..: The feeding of the multitude is another messianic "sign". The sign shows that Jesus fulfills symbolism related to God's provision of manna to Israel in the wilderness through Moses. (ESV)
 
 6:1: **After this**. Again, indicates the passing of an unspecified period of time. As much as half a year may have passed. (ESV)
 
-6:2: **large crowd was following Him**. The crowd was following Jesus not because they wanted to learn from His teachings, but because they wanted to be entertained by His miracles, or perhaps, even benefit from them.
+6:2: **because they saw His signs**. The crowds followed not out of belief, but out of curiosity concerning the miracles that He performed. In spite of their motivation, Jesus still had compassion on them, healed their sick, and fed them. (MacArthur)
 
 6:3: **Jesus went up on the mountain**. "The mountain" may refer not to any specific mountain, but to the hill country east of the lake, known today as "Golan Heights". (ESV)
 
@@ -2724,19 +2722,39 @@ This is how faith functions: one accepts the situation, does whatever little thi
 However, "prophet" is not a common title for Jesus and is more often used by those who know little about Him.
 (ESV)
 
+6:14: **The Prophet**. They wanted an earthly, political Messiah to meet all their needs and to deliever from Roman oppression, and one who makes no demands of them. (MacArthur)
+
 6:15: ⭐ **Make him king**. Люди хотели чтобы Иисус работал восьмичасовую смену и умножал хлеба. 😁 (Андроник Пантак)
 
 6:15: **by force**. Force against whom? Jesus? No: by force — against the Roman government.
 
 6:15: **by force make him king**. A spontaneous uprising against the Roman authorities. (ESV)
 
+6:15: **Jesus withdrew to the mountain**. Mob enthusiasm would have jeopardized God's will, so Jesus withdraws. (MacArthur)
+
 ### Jesus Walks on Water
 
+6:16..: The miracle demonstrates Jesus' deity by His sovereignty over the laws of nature. (MacArthur)
+
+6:17: **started across the sea to Capernaum**. Synoptic gospels indicate that as soon as Jesus had fed the multitudes, He immediately dismissed His disciples to travel west toward Capernaum: Mt 14:22: "Immediately He made the disciples get into the boat and go before Him to the other side, while He dismissed the crowds"; also Mk 6:45 (same). (MacArthur)
+
+6:18: **a strong wind**. The Sea of Galillee is 213m below sea level. Cooler air from the northern mountains rushes down into the lake and displaces the warm, moist air, causing violent churning of the water. (MacArthur)
+
 6:19: **they saw Jesus walking on the sea**. Walking on the sea is not something Jesus did just to amaze the disciples. Rather, it is a powerful, visible demonstration of Jesus' sovereignty over the world that He created. In the OT, God alone rules over the seas (Ps 29:10-11: " The LORD sits enthroned over the flood"; Ps 89:9: "You rule the raging of the sea"; 107:28-30: ""He made the storm be still). (ESV)
+
+6:19: **Jesus walking on the sea**. The synoptics reveal that in fear and the darkness, they thought He was a ghost.
+The Son of God, who made the world, was in control of its forces, and, in this case, He suspended the law of gravity. The act was not frivolous on Jesus' part, for it constituted a dramatic object lesson to the disciples of Jesus' true identity as the sovereign Lord of all creation. (MacArthur)
+
+6:19: Почему этот эпизод произошёл после умножения хлебов?
+Как только люди захотели сделать Иисуса царём (и по сути, поднять восстание ради Него) — Иисус распустил народ, отправил учеников на море, и Сам удалился. И в этот же день Иисус демонстрирует ученикам Свою власть над природой: возможно, для того, чтобы вернуть их понимание Мессии в верное русло и увести их от мыслей о политическом Мессии.
 
 6:20: **It is I**. Gk. "ego eimi", "I am". It may allude to God's self-identification as "I am Who I am", and may be an indication of Jesus' divinity. This connection becomes more clear when the phrase is repeated in later verses (Jn 6:35: "I am the bread of life"; Jn 8:24: "unless you believe that I am he you will die in your sins.”"; Jn 8:58: "“Truly, truly, I say to you, before Abraham was, I am.") (ESV)
 
 6:21: **Immediately the boat was at the land**. A miraculous instance of what is taught in Ps 107:29-30: "He made the storm be still, and the waves of the sea were hushed. Then they were glad that the waters were quiet, and he brought them to their desired haven." (ESV)
+
+6:21: **Immediately the boat was at the land**. Another miracle occurred: the boat miraculously and instantly arrived at its precise destination as soon as Jesus stepped into the boat. (MacArthur)
+
+🔴 MacArthur STOP
 
 ### I Am the Bread of Life
 
