@@ -4290,6 +4290,7 @@ This may be the second reason why Abram thought that Ismael is indeed the promis
 
 16:16: **Abram was eighty-six years old**. Ishmael is born 11 years after Abram settled in the land of Canaan (ESV)
 
+##### Вопросы:
 
 
 
@@ -4463,6 +4464,7 @@ The highest quality evidence indicates that circumcision does not decrease the s
 С толикою силою вера и духовное помазание действует на все окружающее и все покоряет себе. 
 (Свт. Филарет (Дроздов))
 
+##### Вопросы:
 
 
 
@@ -4708,6 +4710,7 @@ Perhaps, now Abraham’s indignation has settled down, and he started talking th
 
 18:33: **и Авраам возвратися на место свое**. Авраам возвра­тился на «место свое», т. е. к мамврийскому дубу, и уже отсюда в следующее утро видел дым и пламень от погиба­ющих городов (Быт. 19:28). Праведность Лота была такова, что, при ходатайстве Авраама, ее достаточно было только для спасения его одного с семейством от участи, постигшей нечестивых. (Еп. Виссарион (Нечаев))
 
+##### Вопросы:
 
 
 
