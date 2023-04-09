@@ -2754,23 +2754,38 @@ The Son of God, who made the world, was in control of its forces, and, in this c
 
 6:21: **Immediately the boat was at the land**. Another miracle occurred: the boat miraculously and instantly arrived at its precise destination as soon as Jesus stepped into the boat. (MacArthur)
 
-🔴 MacArthur STOP
-
 ### I Am the Bread of Life
 
-6:26..: (26) Люди смотрят мимо знамений (указывающих на Мессию) и думают лишь о том, что Иисус — источник бесперебойного питания. (27) Иисус говорит людям, которые беспокоятся лишь о хлебе, чтобы они не о батонах думали, а о духовных вещах. (28) Они спрашивают, и как же это делать? (29) Иисус говорит: дело Божье — верить в Того, Кого Он послал. Не о хлебе думать, а о Мессии и спасителе. То есть, обо Мне. (30) Евреи поняли намёк, и спрашивают: ну хорошо, а чем ты докажешь, что ты Богом посланный? (31) Вот Моисей, например, сделал так, чтобы хлеб с неба падал. А ты что сделаешь? (32) Иисус объясняет, что не Моисей это сделал, а Бог Отец. И сейчас, прямо сейчас, тот же Отец даёт вам настоящую, духовную пищу. (34) Евреи заинтересовались, но опять же, простыми батонами. (35) Теперь Иисус говорит им в лоб: Я это, я, тот хлеб, который Бог послал с небес. Духовная пища — это я. (Андроник Пантак)
+6:22: **On the next day**. The crowds were still at the original site, and out of curiosity, desired to find Jesus again. "Other boats" (v. 23) also heard of the miracles and desired sought Him out. (MacArthur)
+
+6:25..: The key theme of this discourse: "I am the bread of life", with the first "I AM" in the Gospel.
+John records the miracle, but quickly moves on to spiritual realities: the discourse that defines who Jesus is: not a wonder-worker, but the Son of God. (MacArthur)
+
+6:25..: (26) Люди смотрят мимо знамений (указывающих на Мессию) и думают лишь о том, что Иисус — источник бесперебойного питания. (27) Иисус говорит людям, которые беспокоятся лишь о хлебе, чтобы они не о батонах думали, а о духовных вещах. (28) Они спрашивают, и как же это делать? (29) Иисус говорит: дело Божье — верить в Того, Кого Он послал. Не о хлебе думать, а о Мессии и спасителе. То есть, обо Мне. (30) Евреи поняли намёк, и спрашивают: ну хорошо, а чем ты докажешь, что ты Богом посланный? (31) Вот Моисей, например, сделал так, чтобы хлеб с неба падал. А ты что сделаешь? (32) Иисус объясняет, что не Моисей это сделал, а Бог Отец. И сейчас, прямо сейчас, тот же Отец даёт вам настоящую, духовную пищу. (34) Евреи заинтересовались, но опять же, простыми батонами. (35) Теперь Иисус говорит им в лоб: Я это, я, тот хлеб, который Бог послал с небес. Духовная пища — это я. (Андроник Пантак)
+
+6:25: **found him**. In the synagogue at Capernaum: v. 59: "Jesus said these things in the synagogue, as he taught sat Capernaum". (MacArthur)
 
 6:26: **не потому, что видели чудеса, но потому, что ели хлеб и насытились**. Знак — это то что указывает на что-то; а конкретно — на Мессию. Знамение хлеба в дикой местности указывает на Иимума как на Мессию, но люди не разглядели смысл этого знамения. Они просто увидели чудо и их привлёк бесплатный хлеб и впечатления. (Андроник Панта)
 
 6:26: **but because you ate your fill of the loaves**. People were seeking Jesus only for the physical or material benefit that He gave, whereas they should have sought Him because they saw signs that pointed to Jesus' divine nature. (ESV)
 
+6:26: **but because you ate your fill of the loaves**. Signs were just miracles to them: people sought no understanding of the true spiritual significance of Jesus' person and mission. They followed Him for food and sights. (~MacArthur)
+
+6:27: **Do not work for the food that perishes**. Jesus rebuked the crowd for purely materialistic notions of the messianic kingdom.  (MacArthur)
+
 6:27: **Do not work for the food that perishes**. Jesus calls their attention from mere miracles to the signs. He calls them to "work", to make effort, to strive for spiritual things rather than physical things.
 
 6:27: **on Him God the Father has set His seal**. A seal mad of wax, clay, or soft metal, would signify either ownership or authentication of an item or a document; the second sense is probably in view here. (ESV)
 
+6:28: **what must we do**. They thought it's about some works, some physical actions, that earn you everlasting life. (MacArthur)
+
 6:29: **The work is to believe**. Jesus says that this is what they should do: recognize signs as such.
 
 6:30: **what sign do you do, that we may see and believe you?**. The Jews may think that they are willing to accept a sign if it’s going to be given, but they have just missed one, being unable to understand and recognize. They even remember the manna episode (v. 31), but are unable to link what had happened with Israel with what has just happened in front of their eyes.
+
+6:31: **Our fathers ate the manna in the wilderness**. They saw Jesus' miraculous feeding to be a small miracle compared to what Moses did. In order for them to believe, they would need to see Him feed the nation of Israel on the same scale that God did for forty years.
+
+🔴 MacArthur STOP
 
 6:32: **My Father gives you true bread from heaven**. The true bread would be something that nourishes people eternally and spiritually and thus is infinitely superior to the manna given to Israel. (ESV)
 
