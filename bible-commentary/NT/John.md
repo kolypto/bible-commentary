@@ -2785,9 +2785,11 @@ John records the miracle, but quickly moves on to spiritual realities: the disco
 
 6:31: **Our fathers ate the manna in the wilderness**. They saw Jesus' miraculous feeding to be a small miracle compared to what Moses did. In order for them to believe, they would need to see Him feed the nation of Israel on the same scale that God did for forty years.
 
-🔴 MacArthur STOP
+6:32: **true bread from heaven**. The manna God gave was temporary and perished and was only a meager shadow of what God offered them in the true bread, Jesus Christ, who gives spiritual and eternal life to mankind ("world"). (MacArthur)
 
 6:32: **My Father gives you true bread from heaven**. The true bread would be something that nourishes people eternally and spiritually and thus is infinitely superior to the manna given to Israel. (ESV)
+
+6:34: **give us this bread always**. People, in their spiritual blindness, again failed to understand that Jesus was that "bread". This obtuseness prompted Jesus to speak very plainly that He was referring to Himself. (MacArthur)
 
 6:35: **I am the bread of life**. The first of seven "I am" sayings recorded in this Gospel.
 Metaphorical "I am" statements:
@@ -2809,17 +2811,33 @@ Refers to God as "I am": Ex 3:14
 
 6:37: **whoever comes to Me I will never cast out**. No one should think, "maybe I am not chosen by God": Jesus will not reject anyone. Yet a few verses later Jesus paradoxically states that once people come to Jesus, they will realize that behind their willing decision to come and believe lies the mysterious, invisible work of the Father Who all along was drawing them to Christ. (ESV)
 
+6:37: **All that the Father gives me will come to me**. This verse emphasizes the sovereign will of God in the selection of those who come to Him for salvation. The idea of "gives Me" is that every person drawn by God (v. 44: "unless the Father draws him") must be seen as a gift of the Father's love to the Son. The Son receives each "love gift" (v. 37: "I will never cast out"), holds on to each (v. 39: "I should lose nothing"), and will raise each to eternal glory (v. 39: "raise it up on the last day"). (MacArthur)
+
 6:39: **this is the will .. that I should lose nothing of all that He has given Me, but raise it up on the last day**. Implies that everyone who has been "given" by the Father to the Son for salvation will in fact be saved. In v. 40 Jesus further explains who these people are: "everyone who looks on the Son and believes in Him". (ESV)
+
+6:40: **everyone who looks on the Son and believes**. This verse now emphasizes human responsibility in salvation. Although God is sovereign (see note on v. 37), He works through faith. However, even faith is a gift of God (Rom 12:3: "the measure of faith that God has assigned"). Intellectually harmonizing the sovereignty of God and the responsibility of man is impossible humanly speaking, but perfectly resolved in the infinite mind of God. (MacArthur)
 
 6:40: **всякий, видящий Сына и верующий в Него, имел жизнь вечную**. Видеть — это иметь личный опыт, отношение, взаимодействие (Андроник Пантак)
 
 6:40: **everyone who looks on the Son and believes**. May be a parallel to the serpent raised by Moses in the wilderness: people who looked on it, and believed, were saved from a physical disease. People who look on the Son, and believe, are saved from the spiritual disease.
 
+6:41..: Structure:
+1. The murmuring reaction of the crowd.
+2. Jesus' rebuke of the crowd for their reaction.
+3. Jesus' reiteration of His message to the crowd.
+(MacArthur)
+
+6:41: **The Jews**. In this Gospel, the term "Jews" is often associated with hostility towards Christ. It is used ironically to indicate the incongruity of their rising hostility toward their Messiah. (MacArthur)
+
+6:42: **whose father and mother we know**. They knew Jesus as a fellow Galilean. "A prophet has no honor in his own country" (Jn 4:44). (MacArthur)
+
 6:43: **Do not grumble among yourselves**. The grumbling is reminiscent of the pattern of grumbling against God in the Old Testament (Ex 16:8: "the LORD has heard your grumbling that you grumble against him"; Num 14:27: "How long shall this wicked congregation grumble against me?"; Ps 95:8-9: "do not harden your hearts .. as on the day at Massah in the wilderness, when your fathers put me to the test") (ESV)
 
-6:44: **Unless the father draws him**. Now, the sum of the doctrine of eternal security comes down to this.  Is the death of Christ a work that *potentially* saves *willing* sinners, or is it a work that *actually* provides salvation for *unwilling* sinners who by God’s sovereign grace *will be made willing*? The only possible answer is that God provided a sacrifice in His Son, a true payment in full for the sins of *all who would ever believe*, and all who would ever believe will believe because the Father will "draw them", and He will grant them repentance, and faith, and regeneration. (MacArthur)
-
 6:44: **No one can come to Me unless the Father .. draws him**. "No one can come", Gk. "dynamai" means "to be able". No human being has the moral and spiritual ability to come to Christ — unless God gives him the desire and inclination to come and the ability to place trust in Christ. (ESV)
+
+6:44: **Unless the father draws him**. The doctrine of total depravity: man is enslaved to sin, and his "free will" cannot bring him to God. Man is unable to believe apart from God's empowerment (Rom 3:11: "None is righteous, .. no one seeks God"; Eph 2:1-3: "you were dead in trespasses and sins, following the course of this world, following the prince of the power of the air", 2 Tim 1:9: "called us .. because of His purpose .. before the ages began"). Only those whom the Father gives the ability to will toward Him will actually come to Him. The drawing here is selective: those whom God has chosen will believe — because God has sovereignly determined that result from eternity past. (MacArthur)
+
+6:44: **Unless the father draws him**. Now, the sum of the doctrine of eternal security comes down to this.  Is the death of Christ a work that *potentially* saves *willing* sinners, or is it a work that *actually* provides salvation for *unwilling* sinners who by God’s sovereign grace *will be made willing*? The only possible answer is that God provided a sacrifice in His Son, a true payment in full for the sins of *all who would ever believe*, and all who would ever believe will believe because the Father will "draw them", and He will grant them repentance, and faith, and regeneration. (MacArthur)
 
 6:44: ⭐ **No one can come to Me unless the Father .. draws him**. This is the doctrine of election. Did I come to Jesus because I was irresistibly  drawn by God and had nothing to do with it, or did I come to Christ because my heart said I want to come to Christ? And the answer is, "yes, it is so" 😁
 This is a paradox, but it shouldn't be a problem. John Murray says, "there is an apparent paradox in every biblical doctrine". For instance:
@@ -2842,9 +2860,19 @@ In the end, that’s a matter of faith, isn’t it?
 В итоге, это вопрос веры. Мы, будучи неспособны понять всё целиком.. верим ли Ему?
 (Джон МакАртур; в вольном переводе)
 
+6:51..: Structure.
+1. Jesus' pronouncement
+2. The crowd's perprelixity
+3. Jesus' promises
+(MacArthur)
+
 6:51: **the bread that I will give for the life of the world is my flesh**. Jesus intermingles physical and spiritual truth: He is not talking about literal "bread" but about the true "living bread" in the sense that it satisfies spiritual hunger in those who believe.
 Jesus becomes this spiritual nourishment by sacrificing His own physical body in His death on the cross.
 (ESV)
+
+6:52: **How can this man give us his flesh to eat**. Every time Jesus had given them a veiled saying or physical illustration, the Jews failed to see its spiritual significance. (MacArthur)
+
+6:52: **How can this man give us his flesh to eat**. The Mosaic Law prohibited the drinking of blood or the eating of raw meat. The Jews, unable to go beyond the mere physical perspective, were perplexed and angered. (MacArthur)
 
 6:52: **How can this man give us his flesh to eat**. Another example of misunderstanding: Jesus' hearers take Him literally. Jesus teaches spiritual truths by referring to physical objects, and people frequently misunderstand. (ESV)
 
@@ -2854,7 +2882,20 @@ Similarly, to "drink blood" means to trust in His atoning death, which is repres
 The theme of being united with "the Son of Man" is represented in the Lord's Supper, where Jesus' followers symbolically eat His flesh and drink His blood. This is anticipated in OT feasts (see 1 Cor 5:7: "For Christ, our Passover lamb, has been sacrificed") and consummated in the marriage supper of the Lamb (Rev 19:9: "Blessed are those who are invited to the marriage supper of the Lamb")
 (ESV)
 
+6:53: **unless you eat the flesh of the Son of Man and drink his blood, you have no life in you**. Just as eating and drinking are necessary for physical life, so also is belief in His sacrificial death on the Cross necessary for eternal life.
+
 ### The Words of Eternal Life
+
+6:60..: Structure:
+1. The false disciples' reaction of unbelief;
+2. The true disciples' reaction of belief.
+(MacArthur)
+
+6:60: **this is a hard saying**. After this sermon, only a small nucleus of disciples remained. (MacArthur)
+
+6:61: **knowing in Himself**. Jesus knew the hearts of men (Jn 2:23-25: "He Himself knew what was in man"): He supernaturally know that many did not believe in Him as Messiah and Son of God. These false disciples were simply attracted to the physical phenomena and failed to understand the true significance of Jesus' teachings. (MacArthur)
+
+6:61: **his disciples were grumbling**. Many of the disciples had the same reaction as the Jews (MacArthur)
 
 6:63: **the flesh is no help at all**. The flesh: i.e. human nature, emotions, will, intellect. It is completely incapable of producing genuine spiritual life: this can only be done by the Spirit. (ESV)
 
@@ -2864,10 +2905,17 @@ The theme of being united with "the Son of Man" is represented in the Lord's Sup
 
 6:64: **there are some of you who do not believe**. Some of the people following Him were not genuine believers and were perhaps following Jesus only because of the physical benefits He gave: healing, food, miracles. (ESV)
 
+6:65: **no one can come to me unless it is granted him by the Father**. Genuine faith is never exclusively a matter of human decision. (MacArthur)
+
 6:66: **From that time many of his disciples went back**. Back where?  Just back, back to their former life, “and walked no more with him.”  Why?  Too much, too much was expected, too much was required.  They weren’t interested in total commitment.  They bailed out.  Free food?  That’s great.  Healing?  Super.  Commitment?  Not interested. (MacArthur)
 
 6:68: **Lord, to whom shall we go? You have the words of eternal life**. Peter rightly implies here that there is no other teacher who can lead people to eternal life and to true fellowship with God Himself. (ESV)
 
+6:70: **Did I not choose you?**. In response to Peter's somewhat pretentious words that the disciples had come to believe in Jesus, He reminds them that He sovereignly chose them before that. (MacArthur)
+
+6:70: **one of you is a devil**. The supreme adversary of God so operates behind failing human beings that his malice becomes theirs. See Mt. 16:23, where Jesus says to Peter: "Get behind me, Satan!". Jesus supernaturally knows the source and identifies it precisely: Judas is a tool of satan doing unmitigated wickedness. (MacArthur)
+
+🔴 MacArthur STOP
 🔴 ESV STOP
 
 ## 7
