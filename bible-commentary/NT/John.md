@@ -2784,7 +2784,11 @@ John is not saying that people's deeds are the basis on which judgment is pronou
 
 6:6: **ибо Сам знал, что́ хотел сделать**. Бог испытывает человека не по неведению — а по ведению. Чтобы слушатели не возымели неуместных мыслей по этому поводу, евангелист замечает: "ибо Сам знал, что́ хотел сделать". Евангелист с великим тщанием заранее устраняет всякое злое подозрение. (Свт. Иоанн Златоуст)
 
+6:6: **где нам купить хлебов?**. В параллельном: "отпусти народ, чтобы они пошли в селения и купили себе пищи. Но Иисус сказал им: не нужно им идти, вы дайте им есть." (Мф 14:15-16)
+
 6:7: **two hundred denarii**. A dinarius was about one day's pay. (ESV)
+
+6:7: **двести динариев не довольно будет**. Услыхав "где нам купить", Филипп тотчас увлекается этим искусительным вопросом и видит одно только средство – деньги. (Свт. Кирилл Александрийский)
 
 6:8: ⭐ **Andrew**. In all the incidents that we see Andrew involved in, he is always doing the same thing: he's bringing people to Christ. He brought his brother Peter, he brought the boy with the fishes. He even did not hesitate to bring gentiles to Christ: this tells us about the openness of his heart, he probably thought that there is no one who Christ would not want to see.
 He also had faith: we do not know what he was thinking about when he brought this boy with some crackers and pickled fish, but he definitely believed that the Lord could do something with that. After all, Andrew had seen Jesus make wine; why couldn't he make food?
@@ -2793,16 +2797,29 @@ He also had faith: we do not know what he was thinking about when he brought thi
 6:7-8: ⭐ **Philip answered .. Andrew said ..**. Here we see two different approaches. Philip has already given up and could only say “I do not know”, but Andrew attempts to find a solution even in a hopeless situation.
 This is how faith functions: one accepts the situation, does whatever little thing is possible to do, and then trusts God to do the rest. And this is what Jesus expects: the disciples should start solving the issue, then bring the issue to Him, so that He can miraculously provide for this need.
 
+6:9: **здесь есть у одного мальчика**. Ученики, очевидно, уже сами отыскивали запасы пищи, которые могли быть у кого-либо из народа. K этому их, конечно, побудило обращение к ним Христа: «вы дайте им есть» (Мф.14:16). (Лопухин А.П.)
+
 6:9: **Андрей .. говорит: здесь есть .. пять хлебов ячменных и две рыбки**. Андрей указывает на пять хлебов ячменных и две рыбки, быть может, вспомнивши о чудесах пророков, как, например, Елисей совершил чудо над хлебами, когда Самария дошла до крайней погибели (4 Цар. 4:42-44: "И сказал Елисей: отдай людям, пусть едят. И сказал слуга его: что тут я дам ста человекам? И сказал он: отдай людям, пусть едят, ибо так говорит Господь: "насытятся, и останется". Он подал им, и они насытились, и еще осталось, по слову Господню."). (Блж. Феофилакт Болгарский)
+
+6:9: **Андрей .. говорит: здесь есть .. пять хлебов ячменных и две рыбки**. Андрей становится выше Филиппа; но и он не совсем понял дело. Я думаю, что он и не просто это сказал, а потому, что слышал о чудесах Пророков, о том, например, как Елисей совершил чудо над хлебами. Поэтому, хотя Андрей и взошел на некоторую высоту, но не смог достигнуть самой вершины. (Свт. Иоанн Златоуст)
 
 6:9: **barley loaves and two fish**. Barley was common food for the poor: the more well-to-do preferred white bread. The fish were probably dried or preserved, possibly pickled. (ESV)
 
 6:9: **здесь есть у одного мальчика пять хлебов ячменных и две рыбки**. Мальчик мог бы поесть сам. Но он готов поделиться тем малым, что у него есть: мальчик, очевидно, не может накормить всех — но он всё равно предложил, готовый поделиться с теми, с кем может. Жертвенность этого мальчика послужила причиной для чуда, которое совершил Иисус: распространив эту жертвенность так, что её плодов хватило всем.
 Мальчик поделился — но сам не оскудел: и сам наелся досыта, и был рад видеть славу Божию, и наверняка ему с лихвой вернули из того, что осталось.
 
+6:9: **но что это для такого множества?**. Андрей не подумал о силе Христа, и из предшествующих чудес не научился, что Иисус может всё, и притом весьма легко. (Свт. Кирилл Александрийский)
+
+6:9: **но что это для такого множества?**. Он думал, что чудотворец мог бы сделать только из малого малое, а из большего большее. Но было не так. Для Господа равно легко было из большего или меньшего числа хлебов произвести изобилие в них, потому что Он не нуждался для этого в готовом веществе. (Свт. Иоанн Златоуст)
+
 6:11: **Jesus then took the loaves**. Interestingly, both creative miracles of Jesus: the water into wine, and the multiplying of bread, speak of the main elements in the Lord's Supper. Which is not described in this Gospel: perhaps, because John wrote to supplement and provide additional information not recorded in the synoptics (MacArthur)
 
 6:11: **Иисус, взяв хлебы и воздав благодарение**. Господь мог из ничего сотворить хлебы в достаточном числе для народа. Однако же, чтобы не думали, что тварь чужда Его премудрости, Он самую тварь употребляет в орудие для совершения чудес. Да постыдятся манихеи, которые говорят, что хлеб и все созданное есть произведение бога злого и посему, если кто подаст им хлеб, не берут оный из рук его, но приказывают бросить его издалека. Да постыдятся же, когда слышат, что Христос, Сын Бога Благого, умножал хлебы. Если бы они были злым творением, Благий не умножил бы зла, не говорю уже о том, что и Сам не стал бы есть хлеба. (Блж. Феофилакт Болгарский)
+
+6:11: **Иисус, взяв хлебы и воздав благодарение**. Но почему Христос, пред исцелением расслабленного, пред воскрешением мертвого, пред укрощением моря, не молился, а здесь, над хлебами, это делает? Он этим показывает, что, приступая к пище, нам должно воздавать благодарение Богу. С другой стороны, Он делал это обыкновенно в случаях не очень важных, чтобы ты знал, что Он это делает не по какой-либо нужде.
+Если бы Иисус нуждался в молитве — Он скорее делал бы это в чудотворениях важнейших. Но важнейшие чудеса Он совершал Своею властию, а молитву совершал по снисхождению.
+Так зачем? Иисус, совершая чудо при многих, возносит хвалу Богу, чтобы они уверовали, что Он не враг Богу, и устраняет такое подозрение.
+(Свт. Иоанн Златоуст)
 
 6:14: **The Prophet**. The people here see Jesus as fulfilling the prediction of a prophet like Moses (Dt 18:15: "The LORD your God will raise up for you a prophet like me from among you, from your brothers — it is to him you shall listen"). In Acts 3:22-23, Peter identifies Jesus as the fulfillment of this prophecy: "Repent therefore, and turn back .. times of refreshing may come .. and he may send the Christ appointed for you, Jesus .. for restoring all the things about which God spoke by the mouth of his holy prophets long ago. Moses said: ..." (Acts 3:18-26).
 However, "prophet" is not a common title for Jesus and is more often used by those who know little about Him.
