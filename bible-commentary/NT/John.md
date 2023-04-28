@@ -10,14 +10,14 @@ Commentary:
 
 ## John
 
-Author. Apostle John, the son of Zebedee, a Pelestinian Jew and a member of Jesus' inner apostolic circle.
+Author. Apostle John, the son of Zebedee, a Palestinian Jew and a member of Jesus' inner apostolic circle.
 
-Audience: Jews and Gentiles living in the larger Greco-Roman world. He frequently explains Jewish customs and Palestinial geography and translates Aramaic terms into Greek, thus showing awareness of non-Jewish readers.
+Audience: Jews and Gentiles living in the larger Greco-Roman world. He frequently explains Jewish customs and Palestinian geography and translates Aramaic terms into Greek, thus showing awareness of non-Jewish readers.
 
 Date of writing. Most likely, 70-100 A.D. The lack of reference to Sadducees, who ceased to be a Jewish religious party after A.D. 70, points to this date. John died in A.D. 100.
 
 ### History and Authorship
-Early church tradition strongly and consistently identified the author as the aspostle John. Irenaeus (A.D. 130-200) was a disciple of Polycarp (A.D. 70-160) who was a disciple of the apostle John, and he testified on Polycarp's authority that John wrote the Gospel during his residence at Ephesus in Asia Minor when he was advanced in age (Against Heresies 2.22.5; 3.1.1).
+Early church tradition strongly and consistently identified the author as the apostle John. Irenaeus (A.D. 130-200) was a disciple of Polycarp (A.D. 70-160) who was a disciple of the apostle John, and he testified on Polycarp's authority that John wrote the Gospel during his residence at Ephesus in Asia Minor when he was advanced in age (Against Heresies 2.22.5; 3.1.1).
 Clement of Alexandria (A.D. 150-215) wrote that John, aware of the facts set forth in the other Gospels and being moved by the Holy Spirit composed a "spiritual Gospel" (Ecclesiastical History 6.14.7).
 
 > 5. В этих же книгах Климент приводит предания древних пресвитеров о порядке Евангелий: «Первыми написаны Евангелия, где есть родословные.
@@ -29,7 +29,7 @@ John is never mentioned by name: instead, he designates himself as "the disciple
 
 The Gospel's anonymity strongly reinforces John's authorship — for only someone of his well known and preeminent authority would be able to write a Gospel that differed so markedly in form and substance from the other Gospels and have it receive unanimous acceptance in the early church.
 
-John and James were known as "the sons of Zebedee" and Jesus gave them the name "Sons of Thunder". John was one of the three most intmate associates of Jesus, alond with Peter and James. Afterwards, John became a "pillar" in the Jerusalem church (Gal 2:9). He went to Ephesus, tradition says, before the destruction of Jerusalem tradition and wrote his Gospel. Later he was exiled to Patmos (Rev 1:9) by the Romans.
+John and James were known as "the sons of Zebedee" and Jesus gave them the name "Sons of Thunder". John was one of the three most intimate associates of Jesus, along with Peter and James. Afterwards, John became a "pillar" in the Jerusalem church (Gal 2:9). He went to Ephesus, tradition says, before the destruction of Jerusalem tradition and wrote his Gospel. Later he was exiled to Patmos (Rev 1:9) by the Romans.
 
 Date: c. A.D. 80-90, about 50 years after he witnessed Jesus' earthly ministry.
 
@@ -38,7 +38,7 @@ Date: c. A.D. 80-90, about 50 years after he witnessed Jesus' earthly ministry.
 ### Жизнь Апостола Иоанна
 Откуда был родом Апостол Иоанн, об этом нельзя сказать ничего определенного. Об отце его, Зеведее, известно только, что он, с своими сыновьями, Иаковом и Иоанном, жил в Капернауме и занимался рыболовным промыслом в довольно широких размерах, на что указывает то обстоятельство, что у него были работники (Мк. 1:20). Более выдающеюся личностью является жена Зеведея, Саломия, которая принадлежала к тем женщинам, какие сопровождали Христа Спасителя и из своих средств приобретали что требовалось на содержание довольно большого кружка учеников Христовых, составлявших почти постоянную Его свиту (Лк. 8:1-3; Мк. 15:41). Она разделяла честолюбивые желания ее сыновей и просила Христа об исполнении их мечтаний (Мф. 20:20). Она издали присутствовала при снятии с креста Спасителя (Мф. 27:55 и сл.) и участвовала в покупке ароматов для помазания тела погребенного Христа (Мк. 16:1; ср. Лк. 23:56).
 
-Семья Зеведея находилась, по преданию, в родстве с семейством Пресвятой Девы: Саломия и Пресвятая Дева были родные сестры, - и это предание находится в полном соответствии с тем фактом, что Спаситель, в то время как Ему предстояло с минуты на минуту предать Дух Свой Отцу Своему, вися на кресте, поручил Пресвятую Деву попечению Иоанна (см. объясн. на Ев. Ин. 19:25). Этим родством можно объяснить и то, почему именно из всех учеников Иаков и Иоанн заявили претензию на первые места в Царстве Христовом (Мф. 20:21). Но если Иаков и Иоанн приходились племянниками Пресвятой Деве, то они, значит, были в родстве и с Иоанном Крестителем (ср. Лк. 1:36), проповедь которого и должна была поэтому их особенно заинтересовать. Все эти семьи были проникнуты одним благочестивым, подлинно израильским настроением: об этом говорит, между прочим, и то, что имена, которые носили члены этих семей, все настоящие еврейские, без примеси греческих или латинских прозвищ.
+Семья Зеведея находилась, по преданию, в родстве с семейством Пресвятой Девы: Саломия и Пресвятая Дева были родные сестры, - и это предание находится в полном соответствии с тем фактом, что Спаситель, в то время как Ему предстояло с минуты на минуту предать Дух Свой Отцу Своему, вися на кресте, поручил Пресвятую Деву попечению Иоанна (см. объяснение на Ин. 19:25). Этим родством можно объяснить и то, почему именно из всех учеников Иаков и Иоанн заявили претензию на первые места в Царстве Христовом (Мф. 20:21). Но если Иаков и Иоанн приходились племянниками Пресвятой Деве, то они, значит, были в родстве и с Иоанном Крестителем (ср. Лк. 1:36), проповедь которого и должна была поэтому их особенно заинтересовать. Все эти семьи были проникнуты одним благочестивым, подлинно израильским настроением: об этом говорит, между прочим, и то, что имена, которые носили члены этих семей, все настоящие еврейские, без примеси греческих или латинских прозвищ.
 
 Из того, что Иаков везде называется прежде Иоанна, можно с уверенностью заключать, что Иоанн был моложе Иакова, а предание называет его и самым младшим между апостолами. Не более 20-ти лет было Иоанну, когда призвал его следовать за Собою Христос, и предание о том, что он дожил до царствования императора Траяна (цар. в 98 до 117 г.), не заключает в себе невероятности: Иоанну тогда было около 90 лет. Вскоре после призвания к следованию за Собой Христос призвал Иоанна к особому, апостольскому, служению, и Иоанн стал одним из числа 12-ти апостолов Христовых. В силу своей особой любви и преданности Христу, Иоанн сделался одним из наиболее близких и доверенных учеников Христа и даже наиболее любимым между всеми ими. Он удостоился присутствовать при важнейших событиях из жизни Спасителя, напр., при Его преображении, при молении Христа в Гефсимании и др. В противоположность Апостолу Петру, Иоанн жил более внутренней, созерцательной жизнью, чем внешней, практически деятельной. Он более наблюдает, чем действует, он чаще погружается в свой внутренний мир, обсуждая в уме своем величайшие события, которых он призван был стать свидетелем. Душа его более витает в горнем мире, почему ему издревле в церковной иконописи усвоялся символ орла (Баженов с. 8-10). Но иногда Иоанн проявлял и пылкость души, даже крайнюю раздражительность: это было тогда, когда он вступался за честь своего Учителя (Лк. 9:54; Мк. 9:38-40). Пламенное желание быть ближе ко Христу сказалось и в просьбе Иоанна предоставить ему вместе с братом первые должности в славном Царстве Христовом, для чего Иоанн готов был пойти со Христом и на страдания (Мф. 20:20-29). За такую способность к неожиданным порывам Христос назвал Иоанна и Иакова «сынами грома» (Мк. 3:17), предсказывая вместе с этим, что проповедь обоих братьев будет неотразимо, как гром, действовать на души слушателей.
 
@@ -101,10 +101,10 @@ The second part is the Farewell Discourse and the Passion Narrative.
 
 Literary motifs:
 
-* Statements that are misunderstoon, and then explained by Jesus
+* Statements that are misunderstood, and then explained by Jesus
 * Events or statements that occur in threes (three denials of Jesus, three utterances from the cross)
 * Statements that occur in sevens, including seven great signs and seven "I am" statements
-* Heightened constrasts: light/darkness, life/death, fleeting/eternal, disease/health, love/hate
+* Heightened contrasts: light/darkness, life/death, fleeting/eternal, disease/health, love/hate
 
 Seven "I am" statements: 6:35; 8:12; 10:7, 9; 10:11, 14; 11:25; 14:6; 15:1, 5
 
@@ -178,11 +178,11 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 
 1:1: **Слово было у Бога**. Точнее будет перевести, "Слово было к Богу". Иоанн хочет сказать этим, что Логос стоял в известном взаимоотношении к Богу Отцу как отдельная самостоятельная личность. Он не разделен от Бога Отца, но и не сливается с Ним, а пребывает в личном и внутреннем отношении к Отцу – нераздельном и неслиянном. (Лопухин А.П.)
 
-1:1: **the Word was God**. Jesus is the eternal, preexistent, now incarnate, Word, and as one-of-a-kind Son of the Father who himseld is God. (ESV)
+1:1: **the Word was God**. Jesus is the eternal, preexistent, now incarnate, Word, and as one-of-a-kind Son of the Father who himself is God. (ESV)
 
-1:1: **the Word was God**. The Greek contruction emphasizes that the Word had all the essense or attributes of deity, i.e. Jesus the Messiah was fully God. Even in His incarnation, when He emptied Himself, He did not cease to be God but took on a genuine human nature and voluntarily refrained from the independent exercise of the attributes of deity. (MacArthur)
+1:1: **the Word was God**. The Greek construction emphasizes that the Word had all the essence or attributes of deity, i.e. Jesus the Messiah was fully God. Even in His incarnation, when He emptied Himself, He did not cease to be God but took on a genuine human nature and voluntarily refrained from the independent exercise of the attributes of deity. (MacArthur)
 
-1:1: **the Word was God**. From Arius (A.D. 256-336) until the present day (Jehova's Witnesses) some have claimed that "the Word was God" merely identifies Jesus as *a* God, because the Greek word, *Theos*, is not preceded by a a definite article. However, according to Colwell's Rule, in Greek grammar it may specify that "God" is the predicate nominative of a definite subject. That is, "the Word" is the one true God who created all things. (ESV)
+1:1: **the Word was God**. From Arius (A.D. 256-336) until the present day (Jehovah's Witnesses) some have claimed that "the Word was God" merely identifies Jesus as *a* God, because the Greek word, *Theos*, is not preceded by a a definite article. However, according to Colwell's Rule, in Greek grammar it may specify that "God" is the predicate nominative of a definite subject. That is, "the Word" is the one true God who created all things. (ESV)
 
 1:1: **In the beginning .. with God .. was God**. Here are the building blocks that go into the doctrine of the Trinity: the one true God consists of more than one person, they relate to each other, and they have always existed. (ESV)
 
@@ -243,11 +243,11 @@ Although John uses the simplest NT vocabulary, the truths that the prologue conv
 (Иоанн Скот Эриугена)
 
 1:5: **light .. darkness**.
-Intellectually, "lifht" refers to biblical truth, while "darkness" refers to error or falsehood.
+Intellectually, "light" refers to biblical truth, while "darkness" refers to error or falsehood.
 Morally, "light" refers to holiness or purity, while "darkness" refers to sin and wrongdoing.
 (MacArthur)
 
-1:5: **light .. darkness**. Darkness has special significance in relationship to satan (and his demonic cohorts) who rules the present spiritually dark world. as the "prince of the power of the air", promoting rebellion against God. Whereas "light" and "life" have their special significance in relationship to the Lord Jesus Chirst (MacArthur)
+1:5: **light .. darkness**. Darkness has special significance in relationship to satan (and his demonic cohorts) who rules the present spiritually dark world. as the "prince of the power of the air", promoting rebellion against God. Whereas "light" and "life" have their special significance in relationship to the Lord Jesus Christ (MacArthur)
 
 1:5: **И свет во тьме светит, и тьма не объяла его**. Это значит, что благодать Духа Святого, несмотря на грехопадения человеческие, несмотря на тьму вокруг души нашей, все-таки светится в сердце. (Прп. Серафим Саровский)
 
@@ -2978,7 +2978,7 @@ John records the miracle, but quickly moves on to spiritual realities: the disco
 
 6:26..: (26) Люди смотрят мимо знамений (указывающих на Мессию) и думают лишь о том, что Иисус — источник бесперебойного питания. (27) Иисус говорит людям, которые беспокоятся лишь о хлебе, чтобы они не о батонах думали, а о духовных вещах. (28) Они спрашивают, и как же это делать? (29) Иисус говорит: дело Божье — верить в Того, Кого Он послал. Не о хлебе думать, а о Мессии и спасителе. То есть, обо Мне. (30) Евреи поняли намёк, и спрашивают: ну хорошо, а чем ты докажешь, что ты Богом посланный? (31) Вот Моисей, например, сделал так, чтобы хлеб с неба падал. А ты что сделаешь? (32) Иисус объясняет, что не Моисей это сделал, а Бог Отец. И сейчас, прямо сейчас, тот же Отец даёт вам настоящую, духовную пищу. (34) Евреи заинтересовались, но опять же, простыми батонами. (35) Теперь Иисус говорит им в лоб: Я это, я, тот хлеб, который Бог послал с небес. Духовная пища — это я. (Андроник Пантак)
 
-6:26: **не потому, что видели чудеса, но потому, что ели хлеб и насытились**. Знак — это то что указывает на что-то; а конкретно — на Мессию. Знамение хлеба в дикой местности указывает на Иимума как на Мессию, но люди не разглядели смысл этого знамения. Они просто увидели чудо и их привлёк бесплатный хлеб и впечатления. (Андроник Панта)
+6:26: **не потому, что видели чудеса, но потому, что ели хлеб и насытились**. Знак — это то что указывает на что-то; а конкретно — на Мессию. Знамение хлеба в дикой местности указывает на Иисуса как на Мессию, но люди не разглядели смысл этого знамения. Они просто увидели чудо и их привлёк бесплатный хлеб и впечатления. (Андроник Пантак)
 
 6:26: **but because you ate your fill of the loaves**. People were seeking Jesus only for the physical or material benefit that He gave, whereas they should have sought Him because they saw signs that pointed to Jesus' divine nature. (ESV)
 
