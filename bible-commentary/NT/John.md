@@ -253,7 +253,7 @@ Morally, "light" refers to holiness or purity, while "darkness" refers to sin an
 
 1:5: **тьма**. Тьмою называется плоть не потому, будто она такова по естеству (да не будет!), но по причине греха. Ибо плоть, доколе управляется законом природы, не имеет решительно никакого зла, но когда подвигнется за предел природы и служит греху, становится и называется тьмою. (Блж. Феофилакт Болгарский)
 
-1:5: **И свет во тьме светит**. Свет (φῶς, phōs) — духовная жизнь, праведность, истина; тьма (σκοτίᾳ, skotia) — плотскость, заблуждение, падение, противление воле Божией, смерть. Греческое слово "скотия" как бы подсказывает, о чём идёт речь :)
+1:5: **И свет во тьме светит**. Свет (Gk. φῶς, phōs) — духовная жизнь, праведность, истина; тьма (Gk. σκοτίᾳ, skotia) — плотскость, заблуждение, падение, противление воле Божией, смерть. Греческое слово "скотия" как бы подсказывает, о чём идёт речь :)
 
 1:5: **overcome**. Darkness is not able to overcome or conquer the light. Just as a single candle can overcome a room filled with darkness, so also the powers of darkness are overcome by the person and work of the Son. (MacArthur)
 
@@ -279,7 +279,7 @@ Morally, "light" refers to holiness or purity, while "darkness" refers to sin an
 
 1:6: **был человек, посланный от Бога**. Лука уточняет, что призван Иоанн был, будучи в пустыне: "был глагол Божий к Иоанну, сыну Захарии, в пустыне" (Лк 3:2) (Евфимий Зигабен)
 
-1:6: **посланный от Бога**. Богу не требуется свидительство человека. «Я не имею нужды ни в каком свидетеле. Хотя бы и никто не хотел свидетельствовать о Мне, Я оттого в Своем естестве нисколько не унижаюсь. А так как спасение людей есть предмет Моего попечения, то Я снизошел до такого самоуничижения, что и человеку предоставляю свидетельствовать о Мне»
+1:6: **посланный от Бога**. Богу не требуется свидетельство человека. «Я не имею нужды ни в каком свидетеле. Хотя бы и никто не хотел свидетельствовать о Мне, Я оттого в Своем естестве нисколько не унижаюсь. А так как спасение людей есть предмет Моего попечения, то Я снизошел до такого самоуничижения, что и человеку предоставляю свидетельствовать о Мне»
 Не думай, что Иоанн Креститель пришел свидетельствовать для того, чтобы придать достоверность учению Господа, нет; а для того, чтобы единоплеменники его уверовали чрез него.
 (Свт. Иоанн Златоуст)
 
@@ -289,13 +289,13 @@ Morally, "light" refers to holiness or purity, while "darkness" refers to sin an
 
 1:7: **свидетельствовать**. Иоанн — не проповедник покаяния и суда, каким мы знаем его из синоптических Евангелий, а свидетель о Христе, как Агнце Божием, Который берет на Себя грехи мира. (Лопухин А.П.)
 
-1:7: **он пришёл для свитедельства**. Так как по сказанному от Бога через Моисея, "при словах двух свидетелей, или при словах трех свидетелей состоится дело" (Втор 19:15; о судебных делах) — то приводит Бог достоверного свидетеля. Не почитал он должным, хотя бы и был весьма почтенным лицом, требовать веры сверх закона от читателей писания его о Спасителе нашем и верить ему только одному в повествовании о предметах, превышающих наш ум и понимание.  (Свт. Кирилл Александрийский)
+1:7: **он пришёл для свидетельства**. Так как по сказанному от Бога через Моисея, "при словах двух свидетелей, или при словах трех свидетелей состоится дело" (Втор 19:15; о судебных делах) — то приводит Бог достоверного свидетеля. Не почитал он должным, хотя бы и был весьма почтенным лицом, требовать веры сверх закона от читателей писания его о Спасителе нашем и верить ему только одному в повествовании о предметах, превышающих наш ум и понимание.  (Свт. Кирилл Александрийский)
 
-1:7: **он пришёл для свитедельства**. Действительно, Бог не требовал от людей верить одному только Христу, но задействовал многих других людей, чтобы укрепить веру во Христа: пророков, Марию, Иоанна, и апостолов. Бог действует не через стихию и чудеса, а через людей. Видимо потому, что видя свидетельство жизни одного из нас, мы скорее поверим, чем любому другому явлению.
+1:7: **он пришёл для свидетельства**. Действительно, Бог не требовал от людей верить одному только Христу, но задействовал многих других людей, чтобы укрепить веру во Христа: пророков, Марию, Иоанна, и апостолов. Бог действует не через стихию и чудеса, а через людей. Видимо потому, что видя свидетельство жизни одного из нас, мы скорее поверим, чем любому другому явлению.
 Если посмотреть на историю в Библии, Бог почти всегда действует через людей. И веру в людях зажигает через жизни, действия, и свидетельства других людей. Так и здесь: Иоанн пришёл, "дабы все уверовали чрез него".
-Почему не иначе? Возможно, иначе бы мы не приняли свидетельство, кроме как через одного из "своих". Мы же склонны думать, говоря о праведности, что "ну это же Христос, а мы простые, грешные". Так Бог свидетельсвует нам через одного из нас.
+Почему не иначе? Возможно, иначе бы мы не приняли свидетельство, кроме как через одного из "своих". Мы же склонны думать, говоря о праведности, что "ну это же Христос, а мы простые, грешные". Так Бог свидетельствует нам через одного из нас.
 
-1:7: **он пришёл для свитедельства**. Цель выступления Иоанна состояла в том, чтобы быть свидетелем и именно «свидетельствовать о Свете,» т. е. о Логосе или Христе (ср. стих 5), убеждать всех пойти к этому Свету, как к действительному свету жизни. Через его свидетельство все – и иудеи, и язычники – должны были уверовать во Христа как в Спасителя мира. (Лопухин А.П.)
+1:7: **он пришёл для свидетельства**. Цель выступления Иоанна состояла в том, чтобы быть свидетелем и именно «свидетельствовать о Свете,» т. е. о Логосе или Христе (ср. стих 5), убеждать всех пойти к этому Свету, как к действительному свету жизни. Через его свидетельство все – и иудеи, и язычники – должны были уверовать во Христа как в Спасителя мира. (Лопухин А.П.)
 
 1:8: **Он не был свет**. Иоанн предпочёл жизни в городах пребывание в пустыне, явив изумительную крепость в подвижничестве и дойдя до самой вершины праведности в людях, Креститель вполне справедливо возбуждал удивление к себе, и некоторыми считался даже за Самого Христа. Так, вожди иудейские посылают некоторых к нему, повелев спросить его, не Христос ли он (Ин. 1:19–25). Поэтому евангелист уточняет: "он не был свет".  (Свт. Кирилл Александрийский)
 
@@ -340,7 +340,7 @@ This previews the book: since the first 12 chapters stress the rejection of Chri
 
 1:12: **who did receive him**. To *receive* Christ is 1) to comprehend the facts of the Gospel, 2) to believe that they are true, and 3) to engage oneself in appropriating them for your life. (MacArthur)
 
-1:12: **become children of God**. "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy". (Berkhoff) We become partakers of the divine nature (2 Pet 1:4). God gives us His own life, His own self, His own righteous character. Not yet in its fullness, but the new life principle is already planted in us. And it cannot be perceived: its' done in secret, but it is kknown only through its effect. (MacArthur)
+1:12: **become children of God**. "Regeneration is, that act of God by which the principle of new life is implanted in man and the governing disposition of his soul is made holy". (Berkhoff) We become partakers of the divine nature (2 Pet 1:4). God gives us His own life, His own self, His own righteous character. Not yet in its fullness, but the new life principle is already planted in us. And it cannot be perceived: its' done in secret, but it is known only through its effect. (MacArthur)
 
 1:12: **believed in His name**. "His name" refers to all that is true about him: the totality of his person. (ESV)
 
@@ -385,7 +385,7 @@ Jesus gives life to those who believe in Him: those who love who He is, who have
 1:12: **быть чадами Божиими**. Быть чадами Божиими — значит быть в самом близком отношении к Богу, подобно детям к отцу, – быть под особенным Его попечением, иметь свободный доступ к Нему и наследовать царство небесное. (Прот. Иоанн Бухарев)
 
 1:13: **ни от крови, ни от хотения плоти, ни от хотения мужа, но от Бога родились**. Здесь делается сравнение Божественного и плотского рождения, не без цели напоминания нам о плотских родах: чтобы мы, через сравнение познавши неблагородство и низость плотского рождения, устремились к Божественной благодати.
-От крови — от месячных, ［и от крови матери которая питает дитя］. Хотения плоти — скореее всего, сладострастие жены. Хотение мужа — сладострастие мужа. Через всё это выставляется на вид низость плотского рождения.
+От крови — от месячных, ［и от крови матери которая питает дитя］. Хотения плоти — скорее всего, сладострастие жены. Хотение мужа — сладострастие мужа. Через всё это выставляется на вид низость плотского рождения.
 (Блж. Феофилакт Болгарский)
 
 1:13: **от Бога родились**. Если мы рождены через Духа, а Дух должен быть Богом и от Бога по природе, то и мы становимся общниками Божественной природы и называемся рожденными от Бога и посему называемся богами. (Свт. Кирилл Александрийский)
@@ -396,13 +396,13 @@ Jesus gives life to those who believe in Him: those who love who He is, who have
 #### His Deity
 
 1:14: **И Слово стало плотию; .. славу Его .. как Единородного **. Здесь сказано: Иисус (будучи Богом) стал человеком (стал плотию), но при этом не утратил Свою славу, славу как Божества, единого родом с Отцом — но оставался Богом. Мы свидетели, мы это видели. И теперь рассказываем вам.
-Такими понятными, человеческими словами очевидцев, утверждается истина: Христис стал человеком, не переставая быть Богом.
+Такими понятными, человеческими словами очевидцев, утверждается истина: Христос стал человеком, не переставая быть Богом.
 
 1:14: **became flesh**. Became flesh, without ceasing to be God. Rather, the Word, who was God, also took on humanity. See Php 2:6-7: "though He was in the form of God, .. He emptied himself by taking the form of a servant".
 This is the most amazing event: the eternal, omnipotent, omnipresent, infinitely holy Son of God, took on a human nature. He was both God and Man at the same time, in one person.
 (ESV)
 
-1:14: **И слово стало плотию**. Прочие евангелисты начинали с воплощения: зачатие, рождение, воспитание; Иоанн же только вратце коснулся этого предмета: так как прочие евангелисты большею частью повествовали о человеческом естестве Сына Божия, то должно было опасаться, чтобы по этому самому кто-нибудь из людей, пресмыкающихся по земле, не остановился только на этих одних догматах, что и случилось с Павлом Самосатским [епископ Антиохийский, еретик III века]. (Свт. Иоанн Златоуст)
+1:14: **И слово стало плотию**. Прочие евангелисты начинали с воплощения: зачатие, рождение, воспитание; Иоанн же только вкратце коснулся этого предмета: так как прочие евангелисты большею частью повествовали о человеческом естестве Сына Божия, то должно было опасаться, чтобы по этому самому кто-нибудь из людей, пресмыкающихся по земле, не остановился только на этих одних догматах, что и случилось с Павлом Самосатским [епископ Антиохийский, еретик III века]. (Свт. Иоанн Златоуст)
 
 1:14: **И слово стало плотию**. То есть, Бог соделался человеком. Не для того соделалось плотию, чтобы Слову не быть уже Словом, но для того, чтобы Слову и всегда быть Словом, и иметь плоть. В этой плоти Бог-Слово приял в образе человеческом страдание и смерть. (Свт. Афанасий Великий)
 
@@ -434,20 +434,20 @@ Later, the Holy Spirit will make into a temple both the Church (1 Cor 3:16: "you
 1:14: **Единородного** / **the only Son**. Значение слова: Единородный, единственный.
 Варианты синодального перевода: единородного (5), единственного (1), одна (1), он один (1), Единородный (1).
 Варианты в ESV: one and only son, the only, [the] one and only Son, [but the] one and only Son, only, one and only, only child
-Strong's 3439: monogenḗs (from 3411 /misthōtós, "one-and-only" and 1085 /génos, "offspring, stock") – properly, one-and-only; "one of a kind" – literally, "one (monos) of a class, genos" (the only of its kind). (Strong)
+Strong's 3439: Gk. monogenes (from 3411 Gk. misthotos, "one-and-only" and 1085 Gk. genos, "offspring, stock") – properly, one-and-only; "one of a kind" – literally, "one (monos) of a class, Gk. genos" (the only of its kind). (Strong)
 
 1:14: **the only Son**. No in the sense of being created or born, but in the sense of being a Son who is exactly like his Father in all attributes, and in the sense of having a Father-Son relationship with God the Father. (ESV)
 
 1:14: **the only Son**. "only" (Gk. monogenes) means "one of a kind, unique" (ESV)
 
-1:14: ⭐ **we beheld His glory**. Although His deity may have been veiled in human flesh, glimpses exist in the Gospels of His devine majesty.
+1:14: ⭐ **we beheld His glory**. Although His deity may have been veiled in human flesh, glimpses exist in the Gospels of His divine majesty.
 First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display the attributes of God: grace, goodness, mercy, wisdom, truth, etc. And also, His power. (MacArthur)
 
 1:14: **славу как Единородного от Отца**. То есть, такую славу, какую Он должен был иметь как Единственный Сын Божий, имеющий несравненно большую часть, чем другие чада Божии, ставшие такими по благодати.
 Выражение «от Отца» (παρὰ πατρός) не может относиться к слову «Единородный» (тогда вместо предлога παρ. был бы поставлен предлог ἐκ). Это выражение определяет собою «славу», которую имел Логос: слава эта получена Им от Отца.
 (Лопухин А.П.)
 
-1:14: **видели славу Его, славу как Единородного от Отца**. Сын воплотился, Почеловечился, и Бог стал видимым в плоноте благодати и истины. Ведение Бога по сути остаётся недоступным человку, но ради нас Он воплотился, и мы, нуждающиеся в благодати, осеняемся ею. (Максим Исповедник)
+1:14: **видели славу Его, славу как Единородного от Отца**. Сын воплотился, очеловечился, и Бог стал видимым в полноте благодати и истины. Ведение Бога по сути остаётся недоступным человеку, но ради нас Он воплотился, и мы, нуждающиеся в благодати, осеняемся ею. (Максим Исповедник)
 
 1:14: **видели славу Его**. Несмотря на то, что божественность Христа была скрыта человеческой плотью, в Евангелиях заметны проблески Его божественного величия. Так же и в нашей жизни: Библия проповедует о скрытом Боге, но в жизни христианина можно увидеть проблески Его величия в совпадениях и обстоятельствах.
 
@@ -461,7 +461,7 @@ First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display th
 
 1:15: **Иоанн свидетельствует**. Иоанн указывал на пришедшего Господа и крестил Его -- не с тем, что свидетельством раба придать более достоверности словам Владыки, но снисходя к немощи слушателей: иначе многие из иудеев не приняли бы Его слова.
 Кроме того: кто говорит о себе самом что-то великое, тот делает собственное свидетельство подозрительным и нередко таким образом восстановляет против себя многих из слушателей. Потому приходит свидетельствовать о нём другой.
-И какой! Тот, кто отрешился от всего чувственного, и может слышать Голос свыше. Свидетельство Иоанна подготовило мысль слушателей, чтобы не повредил им убогий вид Христа, который мог встать в противореие с величием Его слов. А Он облекся в такой смиренный и для всех обычный вид, что и самарянские жены, и блудницы, и мытари с большою свободою осмеливались подходить к Нему и вступали в беседу с Ним. ［Ведь Он не предавался такой аскезе, как Иоанн, и жил обычной жизнью. Это могло смутить одних, но при этом привлечь других］.
+И какой! Тот, кто отрешился от всего чувственного, и может слышать Голос свыше. Свидетельство Иоанна подготовило мысль слушателей, чтобы не повредил им убогий вид Христа, который мог встать в противоречие с величием Его слов. А Он облекся в такой смиренный и для всех обычный вид, что и самарянские жены, и блудницы, и мытари с большою свободою осмеливались подходить к Нему и вступали в беседу с Ним. ［Ведь Он не предавался такой аскезе, как Иоанн, и жил обычной жизнью. Это могло смутить одних, но при этом привлечь других］.
 (Свт. Иоанн Златоуст)
 
 1:15: **восклицая, говорит**. Слово «восклицая» указывает на большую смелость Иоанна, ибо он взывал о Христе не в углу, а с большою смелостью. (Блж. Феофилакт Болгарский)
@@ -500,7 +500,7 @@ First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display th
 
 1:17: **the law was given through Moses**. The Law was not a display of God's grace but God's demand for holiness. God designed the Law as a means to demonstrate the unrighteousness of man in order to show the need for a Savior. Furthermore, the Law revealed only a part of truth and was preparatory in nature. (MacArthur)
 
-1:17: **grace and truth**. Mostl likely recalls the Hebrew behind the phrase "steadfast love and faithfulness" (hesed and emet in Ex. 34:6: "The LORD, the LORD, a God merciful and gracious, slow to anger, and abounding in steadfast flove and faithfulness"): an expression that refers to God's covenant faithfulness to his people Israel. (ESV) Jesus displayed the same divine attributes when He tabernacled among men in the NT era (MacArthur)
+1:17: **grace and truth**. Most likely recalls the Hebrew behind the phrase "steadfast love and faithfulness" (Hb. hesed and Hb. emet in Ex. 34:6: "The LORD, the LORD, a God merciful and gracious, slow to anger, and abounding in steadfast love and faithfulness"): an expression that refers to God's covenant faithfulness to his people Israel. (ESV) Jesus displayed the same divine attributes when He tabernacled among men in the NT era (MacArthur)
 
 1:17: **благодать же и истина произошли чрез Иисуса Христа**. Это значит: Иисусом Христом доставлено не какое-либо более или менее подробное и ясное понятие о благодати и истине, но сама благодать, сама истина существенно преподаны человекам, насаждены в человеков. Мы соделались причастниками Божественного естества. (Свт. Игнатий (Брянчанинов))
 
@@ -524,7 +524,7 @@ First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display th
 
 1:18: **Бога не видел никто никогда**. Самого Бога Отца видит только Сын и Дух Святой. А мы не можем видеть какую бы то ни было бестелесную силу. (Свт. Иоанн Златоуст)
 
-1:18: **Бога не видел никто никогда**. А как же сказано: "лажени чистии сердцем, яко тии Бога узрят"? (Мф. 5:8). Говорится здесь о видении, нам возможном, – о видении умом и мыслию о Боге. Таким образом, и об ангелах можно сказать, что они по своему чистому и бодрственному естеству всегда не что другое созерцают, а только Бога. (Свт. Иоанн Златоуст)
+1:18: **Бога не видел никто никогда**. А как же сказано: "блаженны чистые сердцем, ибо они Бога узрят?"? (Мф. 5:8). Говорится здесь о видении, нам возможном, – о видении умом и мыслию о Боге. Таким образом, и об ангелах можно сказать, что они по своему чистому и бодрственному естеству всегда не что другое созерцают, а только Бога. (Свт. Иоанн Златоуст)
 
 1:18: **Бога не видел никто никогда**. Моисей и другие видели славу Божию под какими-либо покровами, но никто не созерцал этой славы в неприкосновенном виде, и евангелист признает это возможным для верующих только в будущей жизни (1 Ин 3:2: "когда откроется, будем подобны Ему, потому что увидим Его, как Он есть"). Только Единородный Сын, Он видел и видит Бога в Его величии, и явил людям Бога как любящего их Отца, и осуществлял намерения Бога относительно спасения людей в Своей деятельности. (Лопухин А.П.)
 
@@ -534,7 +534,7 @@ First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display th
 
 1:18: **сущий в недре Отчем**. Пребывание в лоне гораздо более означает, нежели видение. Кто просто – видит, тот имеет еще не совсем точное познание о видимом предмете; а кто пребывает в лоне, тот имеет полное видение. Иисус имеет нечто, что ещё полнее видения. (Свт. Иоанн Златоуст)
 
-1:18: **сущий в недре Отчем**. Называется Сыном, потому что Он одного и того же существа с Отцом, и "в недре Отчем" обрзначает сродство, единосущие, и нераздельность. (Евфимий Зигабен)
+1:18: **сущий в недре Отчем**. Называется Сыном, потому что Он одного и того же существа с Отцом, и "в недре Отчем" обозначает сродство, единосущие, и нераздельность. (Евфимий Зигабен)
 
 1:18: **made him known**. John meant that all that Jesus is and does interprets and explains who God is and what He does. (MacArthur)
 
@@ -546,7 +546,7 @@ First of all, the transfiguration (Mt 17:1-8). Disciples also saw Him display th
 
 1:19: **And this is the testimony of John**. John presents the first of many witnesses to prove that Jesus is the Messiah and Son of God. (MacArthur)
 
-1:19: **testimony**. Gk. μαρτυρία (martyria): Witness, evidence, testimony, reputation. From martus; evidence given.
+1:19: **testimony**. Gk. μαρτυρία (Gk. martyria): Witness, evidence, testimony, reputation. From Gk. martus; evidence given.
 
 1:19: **John**. Born into a priestly family, belonged to the tribe of Levi. He began his ministry when he was approximately 30 years old and boldly proclaimed the need for spiritual repentance and preparation for the coming of the Messiah. (MacArthur)
 
@@ -567,19 +567,19 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 1:19: **левитов**. Левиты были присоединены к священникам как сопровождающая их стража, они исполняли при Синедрионе полицейские обязанности. Так как путь из Иерусалима в Иерихон и, следовательно, к Иордану, где крестил Иоанн, был небезопасен (Лк.10:30: "некоторый человек шел из Иерусалима в Иерихон и попался разбойникам"), то священникам было не лишним захватить с собой стражу. Но, кроме этого, стража была взята с целью придать посольству строго официальный характер. (Лопухин А.П.)
 
-1:19: **кто ты?**. Спросили не потому, что не знали этого, так как всем было известно то, что случилось при его рождении, обрезании и наречении имени, когда все говорили: что убо отроча сие будет (Лк. 1:76: "И ты, младенец, наречешься пророком Всевышнего").
+1:19: **кто ты?**. Спросили не потому, что не знали этого, так как всем было известно то, что случилось при его рождении, обрезании и наречении имени, когда все говорили: "что будет младенец сей?" (Лк. 1:76: "И ты, младенец, наречешься пророком Всевышнего").
 
 1:19: **кто ты?**. Вопрос этот предполагает собою, что об Иоанне в то время ходили слухи: на Иоанна в народе стал устанавливаться взгляд как на Мессию (Лк.3:15: "все помышляли в сердцах своих об Иоанне, не Христос ли он"). (Лопухин А.П.)
 
 1:20: **I am not the Christ**. Some thought that John was the Messiah (Lk 3:15: "people .. were questioning in their hearts .. whether he might be the Christ"). (MacArthur)
 
-1:20: **Я не Христос**. Иудеи надеялись лестию расположить его к отму, чтобы он объявил себя Христом. Вот только простой народ так предполагал по простоте и неведению, а эти спрашивали с злым умыслом.
+1:20: **Я не Христос**. Иудеи надеялись лестию расположить его к тому, чтобы он объявил себя Христом. Вот только простой народ так предполагал по простоте и неведению, а эти спрашивали с злым умыслом.
 Но таково свойство благомыслящего служителя – не только не похищать чести, принадлежащей господину, но и отвергать ее даже в таком случае, когда бы предлагали ее другие.
 (Свт. Иоанн Златоуст)
 
 1:20: **Я не Христос**. Он не только не обнаружил никакого славолюбия и не присвоил себе славы Господа, но пренебрегал и той, которая воздавалась ему многими. (Евфимий Зигабен)
 
-1:21: **are you Elijah?**. Elijah, who never died, was expected to return in the end times (Mal 4:5: "I will send you Elijah the prophet before the great and awesome day of the Lord comes") to "restore all things". John resembled Elijah in his rugged lifestyle, but he denied that he himseld was Elijah. Jesus, understanding more about this than John, saw John as fulfilling the prophecy of Elijah. (ESV)
+1:21: **are you Elijah?**. Elijah, who never died, was expected to return in the end times (Mal 4:5: "I will send you Elijah the prophet before the great and awesome day of the Lord comes") to "restore all things". John resembled Elijah in his rugged lifestyle, but he denied that he himself was Elijah. Jesus, understanding more about this than John, saw John as fulfilling the prophecy of Elijah. (ESV)
 
 1:21: **are you Elijah?**. The angel announced that John would go before Jesus "in the spirit and power of Elijah" (Lk 1:17), thus indicating that someone other than literal Elijah could fulfil the prophecy. (MacArthur)
 
@@ -587,7 +587,7 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 1:21: **Ты Илия?», сказал «Нет»**. Христос сказал о нём: «Он есть Илия, которому надлежит прийти», но добавил: «Если хотите принять, он есть Илия». Ибо сказал так потому, что тот совершил служение Илии. (Прп. Исихий Иерусалимский)
 
-1:21: **are you the Prophet?**. The coming of the Prophet was predicted by Moses (Dt 18:15,18: "I will raise up for them a prophet like you .. and I will put my words in his mouth"") and was excpected in Jesus' day. John denied being this Prophet as well. (ESV)
+1:21: **are you the Prophet?**. The coming of the Prophet was predicted by Moses (Dt 18:15,18: "I will raise up for them a prophet like you .. and I will put my words in his mouth"") and was expected in Jesus' day. John denied being this Prophet as well. (ESV)
 
 1:21: **are you the Prophet?**. The New Testament applies this passage of Deuteronomy (Dt 18:18,18) to Jesus (Acts 3:22-23; Acts 7:37). (MacArthur)
 
@@ -600,7 +600,7 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 1:24: **А посланные были из фарисеев**. По обычному толкованию, здесь продолжается беседа посланных от синедриона. Но с таким толкованием нельзя согласиться, потому что:
 1) в Синедрионе главенствующее положение занимали саддукеи, которые расходились с фарисеями во взглядах на Мессию. Они бы не доверили расследование по делу Иоанна фарисеям;
 2) маловероятно, чтобы между священниками и левитами было много фарисеев, которые группировались почти всегда только около раввинов;
-3) последний вопрос от депутации свитедельствует о её полном равнодушии к делу Иоанна (ст. 22: "кто же ты? чтобы нам дать ответ пославшим нас"). Эти фарисеи же были весьма заинтересованы крещением.
+3) последний вопрос от депутации свидетельствует о её полном равнодушии к делу Иоанна (ст. 22: "кто же ты? чтобы нам дать ответ пославшим нас"). Эти фарисеи же были весьма заинтересованы крещением.
 Таким образом, это либо отдельная делегация, либо частный вопрос от некоторых фарисеев, заданный когда официальная депутация удалилась.
 (Лопухин А.П.)
 
@@ -612,11 +612,11 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 1:26: **я крещу в воде; но стоит среди вас Некто**. Беседуя о сущности своего крещения, Иоанн сказал, что оно маловажно и несовершенно и не имеет в себе ничего, кроме воды. Но Иоанн указывает на "Идущего за мною": говоря как бы так: «не думайте, что все заключается в моем крещении. Если бы оно было совершенно, то не пришел бы после меня другой с установлением другого крещения. А мое крещение только приготовление и указание пути к тому крещению. Наше дело – тень и образ. Должно прийти другому лицу, которое покажет истину». (Свт. Иоанн Златоуст)
 
-1:26: **я крещу в воде; но стоит среди вас Некто**. Примечай кротость святого и правдивость. Он свидетельсвует о славе Христа в большою смелостью и не скрывает славы Господа — но объявляет, что его крещение водой, не имеющей прощения грехов, лишь подготовительное к принятию крещения духовного, дарующего прощение грехов. (Блж. Феофилакт Болгарский)
+1:26: **я крещу в воде; но стоит среди вас Некто**. Примечай кротость святого и правдивость. Он свидетельствует о славе Христа в большою смелостью и не скрывает славы Господа — но объявляет, что его крещение водой, не имеющей прощения грехов, лишь подготовительное к принятию крещения духовного, дарующего прощение грехов. (Блж. Феофилакт Болгарский)
 
-1:26: **я крещу в воде; но стоит среди вас Некто**. Иоанн отвечает фарисеям, что его крещение не имеет того значения, какое должно было иметь крещение, которое, по представлению фарисеев, будет совершать Мессия или кто-либо из пророков. Он, Иоанн, крестит только в воде, – очевидно противополагая в мысли своему крещению то крещение Духом Святым, которое будет совершать Мессия (Мф.3:11: "Он будет крестить вас Духом Святым и огнем"). Нет, как бы говорит Иоанн, не на меня вы должны устремить все свое внимание, а на Того, Kто уже находится среди вас неведомо для вас, т. е., конечно, на Мессию, Kоторого вы ждете. (Лопухин А.П.)
+1:26: **я крещу в воде; но стоит среди вас Некто**. Иоанн отвечает фарисеям, что его крещение не имеет того значения, какое должно было иметь крещение, которое, по представлению фарисеев, будет совершать Мессия или кто-либо из пророков. Он, Иоанн, крестит только в воде, – очевидно противополагая в мысли своему крещению то крещение Духом Святым, которое будет совершать Мессия (Мф.3:11: "Он будет крестить вас Духом Святым и огнем"). Нет, как бы говорит Иоанн, не на меня вы должны устремить все свое внимание, а на Того, Kто уже находится среди вас неведомо для вас, т. е., конечно, на Мессию, Которого вы ждете. (Лопухин А.П.)
 
-1:27: **I am not worthy to untie**. John demonstrates extraordinary humulity. John always shifts the focus onto Messiah, going as far as to state that he was not worthy even of performing a slave's job in relationship to Messiah. (MacArthur)
+1:27: **I am not worthy to untie**. John demonstrates extraordinary humility. John always shifts the focus onto Messiah, going as far as to state that he was not worthy even of performing a slave's job in relationship to Messiah. (MacArthur)
 
 1:27: **Я недостоин развязать ремень у обуви Его**. Этим указывает на несравненное превосходство Иисуса Христа, говоря: я не могу быть даже в числе последних Его рабов, вследствие величия пребывающего в Нем Божества. А такая обязанность действительно поручается обыкновенно низшим рабам. (Евфимий Зигабен)
 
@@ -626,7 +626,7 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 
 1:28: **Bethany across Jordan**. It is different from the village near Jerusalem where Lazarus was raised. This Bethany is designated as "across" the Jordan, i.e. East of the Jordan River. (ESV)
 
-1:28: **Это происходило в Вифаваре (Вифании) при Иордане**. Для чего евангелист сказал, что сие происходило в Вифании? Для того чтобы показать смелость великого проповедника, что он проповедовал так о Христе не в дому, не в углу, но при Иордане, среди множества народа. (Блж. Феофилакт Болгарский)
+1:28: **Это происходило в Вифании при Иордане**. Для чего евангелист сказал, что сие происходило в Вифании? Для того чтобы показать смелость великого проповедника, что он проповедовал так о Христе не в дому, не в углу, но при Иордане, среди множества народа. (Блж. Феофилакт Болгарский)
 
 ### Behold, the Lamb of God
 
@@ -635,7 +635,7 @@ John wants Jewish readers in his own time to realize that opposition to Jesus by
 1:29: **идущего к нему Иисуса**. Зачем в это время Иисус шел к Иоанну – неизвестно. Возможно, креститься; а возможно, чтобы дать повод Иоанну рассказать людям, что Иисус не крестился как грешник — а напротив, Своей чистотой принимает на себя грехи мира.
 
 1:29: **behold, the lamb of God!**. In the OT, on Rosh Hashanah (Jewish new year, the most holy day of the year, and the day of redemption), the sins of God’s people were transferred onto a scapegoat and were released.
-That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jesus Christ, the "lamb of God" who "takes away the sin of the world". The type is fulfilled in that God has laid the sins of all humanity on Jesus, who was the redeeming pascal lamb for the whole mankind. That is the basis for redemption of everyone who believes in Jesus Christ as a Messiah who came to save us from the original sin of Adam. (Wikipedia)
+That scapegoat is seen as a type, a foreshadowing, of the self-sacrifice of Jesus Christ, the "lamb of God" who "takes away the sin of the world". The type is fulfilled in that God has laid the sins of all humanity on Jesus, who was the redeeming pascal lamb for the whole mankind. That is the basis for redemption of everyone who believes in Jesus Christ as a Messiah who came to save us from the original sin of Adam. (Wikipedia)
 
 1:29: **sin of the world**. Of humanity in general, not specifically every person. The use of singular "sin" (not "sins") indicates that Jesus' sacrifice for sin potentially reaches all human beings. John makes clear, however, that its efficacious effect is only for those who receive Christ (vv. 11, 12). (MacArthur)
 
@@ -643,7 +643,7 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 
 1:29: **се, Агнец Божий**. Многих, кто тщательно занимался пророческою книгою Исайи, занимал вопрос, кто был Тот Агнец. И вот, говорит Иоанн, Тот Агнец, Которого ищут; Тот Агнец, вот здесь. Тот Агнец, Которого прообраз указан у Моисея (Исх. 12) и о Котором возвещает Исаия (53).
 
-1:29: **се, Агнец Божий**. Kреститель назвал Христа Агнцем (ὁ ἀμνός) Божиим в том смысле, что Его Сам Бог избрал и приготовил для заклания в жертву за грехи людей, подобно тому как евреи при выходе из Египта готовили агнцев, кровь которых должна была спасти их дома от грозного суда Божия (Исх.12:7). Бог давно уже избрал Этого Агнца (Откр.13:8; 1Пет.1:20) и теперь давал Его людям – всем людям без исключения. (Лопухин А.П.)
+1:29: **се, Агнец Божий**. Креститель назвал Христа Агнцем (ὁ ἀμνός) Божиим в том смысле, что Его Сам Бог избрал и приготовил для заклания в жертву за грехи людей, подобно тому как евреи при выходе из Египта готовили агнцев, кровь которых должна была спасти их дома от грозного суда Божия (Исх.12:7). Бог давно уже избрал Этого Агнца (Откр.13:8; 1Пет.1:20) и теперь давал Его людям – всем людям без исключения. (Лопухин А.П.)
 
 1:29: **вот Агнец Божий, Который берет на Себя грех мира**. Называет его не Судией, судящим мир, хотя Он и есть Судия, но Агнцем Божиим, берущим на Себя грехи мира, то есть свидетельствует людям, что Он пришел в мир не судить грешников за грехи, но взять их грехи, как и Сам о Себе сказал Сын Божий: «Не послал Бог Сына Своего в мир, чтобы судить мир, но чтобы мир спасен был чрез Него» (Ин 3:17). Согласно этому и апостол Его написал: «Христос Иисус пришел в мир спасти грешников» (1Тим 1:15).
 Видим, что один Он берет на Себя грехи всего мира, но берет грехи тех, которые каются истинно, и перестают грехи ко грехам прилагать, и к Нему с верой прибегают, и просят отпущения грехов, – тем Он отпускает грехи.
@@ -672,13 +672,13 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 
 1:31: **не знал Его**. Когда Иоанн удерживал Иисуса от Крещения (Мф 3:14: "удерживал Его и говорил: мне надобно креститься от Тебя, и Ты ли приходишь ко мне") — он уже знал, что Иисус превосходнее многих других. Возможно, даже знал, что Он Христос. Но тем не менее, после крещения, и знамения голубя, Иоанн узнал о Нём столь много больше, что теперь говорит: "раньше я не знал". "Я понятия не имел, Кто Он". А теперь знает: и умом, и внутренним пониманием. (Блж. Феофилакт Болгарский)
 
-1:32: "I saw the Spirit descend .. and it remained on Him**. The Spirit did not merely descend on Jesus; He remained on Him: a sign of divine anointing. Previously, in the Old Testament, the Spirit came upon people to enable them to accomplish certain God-given tasks, but Isaiah predicted that the Messiah would be full of the Spirit at all times (Isa 11:2: "And the Spirit of the LORD shall rest upon him, the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and the fear of the LORD."; Isa 61:1: "The Spirit of the Lord GOD is upon me, because the LORD has tanointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and uthe opening of the prison to those who are bound;"). (ESV)
+1:32: "I saw the Spirit descend .. and it remained on Him**. The Spirit did not merely descend on Jesus; He remained on Him: a sign of divine anointing. Previously, in the Old Testament, the Spirit came upon people to enable them to accomplish certain God-given tasks, but Isaiah predicted that the Messiah would be full of the Spirit at all times (Isa 11:2: "And the Spirit of the LORD shall rest upon him, the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and the fear of the LORD."; Isa 61:1: "The Spirit of the Lord GOD is upon me, because the LORD has anointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound;"). (ESV)
 
 1:33: **увидишь Духа сходящего и пребывающего на Нем**. Христос не нуждался в крещении, ни в этом, ни в каком-либо другом, а, лучше сказать, крещение имело нужду в силе Христовой. Ведь главнейшим из всех благ оставалось то, чтобы крещаемый удостаивался Духа. Потому Христос, когда пришел, приложил это дарование Духа. (Свт. Иоанн Златоуст)
 
 1:36: **увидев идущего Иисуса**. Иоанн «вперил свой взор» в Иисуса (ἐμβλέψας, смотреть не отрывая взгляд), Kоторый в это время в некотором отдалении ходил, как бы осматривая местность (περιπατοῦντι, по-русски неточно – «идущего»).
 
-1:36: **saw Jesus walking by**. **Saw** (Gk. emblepsas): From en and blepo; to look on, i.e. to observe fixedly, or to discern clearly. To stare (look) at with a "locked-in gaze"; look at in a sustained, concentrated way, i.e. with special "interest, love or concern" (Strong)
+1:36: **saw Jesus walking by**. **Saw** Gk. emblepsas: From Gk. "en" and Gk. "blepo": to look on, i.e. to observe fixedly, or to discern clearly. To stare (look) at with a "locked-in gaze"; look at in a sustained, concentrated way, i.e. with special "interest, love or concern" (Strong)
 **Walking by** (Gk. peripatounti): to walk around, i.e. in a complete circle. (Strong)
 
 ### Jesus Calls the First Disciples
@@ -717,11 +717,11 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 Единственное убедительное доказательство, нужное для веры в Бога — это Сам Бог, и опыт общения с Ним.
 Но это доказательство не обязывающее: Бог не навязывает Себя, и сердце человеческое свободно отказаться, если оно этой встречи не желает.
 
-1:42: **взглянув на него**. Взглянув (Gk. emblepsas): устремил на Петра пристальный взор (emplepsas; см. ст. 36) и сказал ему, что знает, кто он (Лопухин А.П.)
+1:42: **взглянув на него**. Взглянув (Gk. emblepsas): устремил на Петра пристальный взор (Gk. emplepsas; см. ст. 36) и сказал ему, что знает, кто он (Лопухин А.П.)
 
 1:42: **when Jesus looked at him**. Jesus knows hearts thoroughly (vv. 43-51, with Nathanael) and not only sees into them, but also transforms a person into what He wants him to become. Simon's new name, Peter ("rock") is not only predictive, but also declarative of how Jesus would transform his character and use him for the foundation of the church. (MacArthur)
 
-1:42: **You shall be called "Cephas"**. In Aramaic, meaning "rock". In the OT God frequently changed people's names to indicate their special calling, e.g. Abaraham. (ESV)
+1:42: **You shall be called "Cephas"**. In Aramaic, meaning "rock". In the OT God frequently changed people's names to indicate their special calling, e.g. Abraham. (ESV)
 
 1:42: **ты - Симон, сын Ионин; ты наречешься Кифа, что значит: камень Петр**. Господь, взглянувши на него, говорит ему: ты – Симон, сын Ионин, тогда как ни от кого не слыхал, что его зовут именно Симоном и что у него отец – Иона; затем дает ему новое имя Петр, выражающее твердость его исповедания, а чтобы дать такое имя, нужно было видеть расположение души Симоновой и его будущую ревность по вере.
 Божество нашего Спасителя очевидно из Его учения, Его чудес и едва не всех поступков: полнота Божества, обитавшего в Нем, преливалась, так сказать, в каждом Его деле и слове, даже во взорах.
@@ -756,12 +756,12 @@ That scapegoat is seens as a type, a foreshadowing, of the self-sacrifice of Jes
 1:48: **when you were under a fig tree**. Nathanael must have had some intense moments under that fig tree, and he must have been sure that only God could've heard him — because when he learns that Jesus saw him, he calls Jesus “Son of God".
 
 1:48: **under a fig tree**. What’s he doing under a fig tree?
-Fig trees were planted around houses: they provided a very great shade area. In many poorer homes there was only one room, so a fig tree is also a place where you can go to get away from the house. So it becase a place or retreat, of prayer, meditation, contemplation, and a place of communing with God. Nathanael, as so many Jews did, may have been praying there. He was seeking God in the privacy of the shade of the fig tree.
+Fig trees were planted around houses: they provided a very great shade area. In many poorer homes there was only one room, so a fig tree is also a place where you can go to get away from the house. So it because a place or retreat, of prayer, meditation, contemplation, and a place of communing with God. Nathanael, as so many Jews did, may have been praying there. He was seeking God in the privacy of the shade of the fig tree.
 And Jesus is saying: "I saw you. In your private place, I saw you". Not just "you", but your seeking, your open heart, your true desire. "I saw that you want to know, and I'm here".
 Very possibly, Nathanael was praying "Lord, show me your Messiah". And here comes Philip: "Nathanael, I found Him, your prayer is answered".
 (MacArthur)
 
-1:48: **Я видел тебя.**.  Знал Он и прежде благонравие Нафанаила не как человек, следивший за ним, а как Бог. И ныне видех тя под смоковницею, когда никого там не было, а был только Филипп и Нафанаил и между собою об этом говорили. Поэтому и сказано, "Иисус, увидев идущего к Нему Нафанаила" — с целию показать, что Христос высказал эти слова еще прежде, чем приблизился Филипп, чтобы такое свидетельство было несомнительно. Для этого Он назвал и время, и место, и само дерево, показав несомненную прозорливость. (Свт. Иоанн Златоуст)
+1:48: **Я видел тебя.**.  Знал Он и прежде благонравие Нафанаила не как человек, следивший за ним, а как Бог. И ныне видел тебя под смоковницею, когда никого там не было, а был только Филипп и Нафанаил и между собою об этом говорили. Поэтому и сказано, "Иисус, увидев идущего к Нему Нафанаила" — с целию показать, что Христос высказал эти слова еще прежде, чем приблизился Филипп, чтобы такое свидетельство было несомнительно. Для этого Он назвал и время, и место, и само дерево, показав несомненную прозорливость. (Свт. Иоанн Златоуст)
 
 1:48: **когда ты был под смоковницею, Я видел тебя**. Господь сказывает ему то, чего не знал никто, кроме его самого и Филиппа, то, что было говорено и делано наедине, и таким образом открывает Свое Божество. (Блж. Феофилакт Болгарский)
 
@@ -775,11 +775,11 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 1:50: **увидишь больше сего**. Т. е. ты, Нафанаил, веруешь в Меня теперь потому, что Я узнал твои свойства и о твоем свидании с Филиппом. А если будешь следовать за Мной, то увидишь больше этой моей прозорливости, – узнаешь, что Я царь не только израильтян, но и всей вселенной, и Спаситель всего мира, – узнаешь, что с пришествием моим на землю отверзается снова разрушенный первым человеком союз между человеками и ангелами. (Прот. Иоанн Бухарев)
 
-1:51: **angels anscending and descending**. He’s saying this: Nathanael, You think you saw divine power in that one act of omniscience? From here on you’re going to see stuff going on all the time between heaven and earth. You’re going to see heaven open. And he has. Miracle, after miracle, after miracle. (MacArthur)
+1:51: **angels ascending and descending**. He’s saying this: Nathanael, You think you saw divine power in that one act of omniscience? From here on you’re going to see stuff going on all the time between heaven and earth. You’re going to see heaven open. And he has. Miracle, after miracle, after miracle. (MacArthur)
 
-1:51: **angels anscending and descending**. Jesus will be a greater way of access to God than the ladder of Gen 28:12: wherever Jesus is, that place will become the "New Bethel" where God is revealed. (ESV)
+1:51: **angels ascending and descending**. Jesus will be a greater way of access to God than the ladder of Gen 28:12: wherever Jesus is, that place will become the "New Bethel" where God is revealed. (ESV)
 
-1:51: **angels anscending and descending**. Nathanael and the other disciples would experience supernatural communication confirming who Jesus was. Moreover, a ladder is replaced by "Son of Man", signifying that Jesus was the means of access between God and man. (MacArthur)
+1:51: **angels ascending and descending**. Nathanael and the other disciples would experience supernatural communication confirming who Jesus was. Moreover, a ladder is replaced by "Son of Man", signifying that Jesus was the means of access between God and man. (MacArthur)
 
 1:51: **Ангелов Божиих восходящих и нисходящих к Сыну Человеческому**. то есть служащих Ему и исполняющих Его повеления относительно спасения имеющих уверовать (людей), тогда-то особенно и откроется Он как Сын Божий по природе. Ведь не друг другу, но, конечно, Богу служат эти духовные Силы. (Свт. Кирилл Александрийский)
 
@@ -822,9 +822,9 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 2:4: **My hour has not yet come**. Jesus chooses not to reveal Himself openly to Israel because of people's misconceptions about the coming Messiah. He does perform numerous messianic "signs", but this miracle is done quietly. (ESV)
 
-2:4: **My hour has not yet come**. The phrase constantly refers to Jesus' death and exaltation (Jn 7:30: "no one laid a hand on Him, because His hour had not yet come"; 8:20: "no one arrested Him, because His hour had not yet come"; 12:23: "The hour has come for the Son of Man to be gloridied"; 12:27: "shall I say 'Father, save me from this hour?'; but for this purpose I have come to this hour"; 13:1: "Jesus knew that his hour had come to depart out of this world to the Father"; 17:1: "Father, the hour has come"). He was on a divine schedule decreed by God before the foundation of the world. (MacArthur)
+2:4: **My hour has not yet come**. The phrase constantly refers to Jesus' death and exaltation (Jn 7:30: "no one laid a hand on Him, because His hour had not yet come"; 8:20: "no one arrested Him, because His hour had not yet come"; 12:23: "The hour has come for the Son of Man to be glorified"; 12:27: "shall I say 'Father, save me from this hour?'; but for this purpose I have come to this hour"; 13:1: "Jesus knew that his hour had come to depart out of this world to the Father"; 17:1: "Father, the hour has come"). He was on a divine schedule decreed by God before the foundation of the world. (MacArthur)
 
-2:4: **My hour has not yet come**. Since the prophets characterized the messianic age as a time when wine would flow liberally (Jer 31:12: "they shall be radiant over the goodness of the Lord, over the grain, the wine, and the oil"; Hos 14:7: "they shall blossom like the vine"; Amos 9:13-14: "the days are coming .. when the plowman shall overtake the reaper, .. and the mountains shall drip with sweet wine"). Jesus likely refers to the fact that the necessity of the Corss must come before the blessings of the millennial age. (MacArthur)
+2:4: **My hour has not yet come**. Since the prophets characterized the messianic age as a time when wine would flow liberally (Jer 31:12: "they shall be radiant over the goodness of the Lord, over the grain, the wine, and the oil"; Hos 14:7: "they shall blossom like the vine"; Amos 9:13-14: "the days are coming .. when the plowman shall overtake the reaper, .. and the mountains shall drip with sweet wine"). Jesus likely refers to the fact that the necessity of the Cross must come before the blessings of the millennial age. (MacArthur)
 
 2:4: **что́ Мне и Тебе, Же́но**. Родителям нужно повиноваться, когда они требуют дело богоугодное. Когда же они чего-либо требуют безвременно и запрещают какое-нибудь дело духовное, то не безопасно им повиноваться.
 Потому и в настоящем случае Христос так отвечал: Его Мать, по той причине, что родила Его, хотела приказывать Ему во всем, по обычаю всех матерей, тогда как должна была чтить Его, как Господа, и поклоняться Ему. ［Как и в другом случае, когда Она желала забрать его от проповедования］.
@@ -893,7 +893,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 2:12: **went down**. Cana was in the hills, 26km away to the southwest of Capernaum. (ESV)
 
-2:12: **Capernaum**. Capernaum served as Jesus' headquarters after the Baptist's imprisonment (Mt 4:12-13: "when He heard that John had been arrested, he withdrew to Galillee ... and lived in Capernaum by the sea"). (ESV)
+2:12: **Capernaum**. Capernaum served as Jesus' headquarters after the Baptist's imprisonment (Mt 4:12-13: "when He heard that John had been arrested, he withdrew to Galilee ... and lived in Capernaum by the sea"). (ESV)
 
 2:12: **в Капернаум**. Для чего Он приходит в Капернаум с Материю? Там Он не сотворил никакого чуда, и жители того города не были из числа благорасположенных к Нему, а притом были еще и самые развращенные (Лк 10:15: "И ты, Капернаум, до неба вознесшийся, до ада низвергнешься")
 Итак, для чего же Он приходит туда? Мне кажется, для того, чтобы не всюду водить с собою братьев и Мать. Он оставил там свою Родительницу, и потом направляется в Иерусалим, и опять начинает творить чудеса. (Свт. Иоанн Златоуст)
@@ -907,7 +907,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 ### Jesus Cleanses the Temple
 
-2:xx: The first way John demonstrated Chirst's deity was to show His passion for reverence. God alone exercises the right to regulate His worship. (MacArthur)
+2:xx: The first way John demonstrated Christ's deity was to show His passion for reverence. God alone exercises the right to regulate His worship. (MacArthur)
 
 2:13: **The Passover of the Jews**. The first of three Passovers which John mentions (6:4; 11:55). That is, John did not miss any of the Passovers during Jesus' years of ministry. Each Passover had significance.
 
@@ -923,7 +923,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 2:15: **those who sold**. Opportunistic merchants saw the possibility of considerable profit during Passover when worshipers came from all over Israel. (MacArthur)
 
-2:15: **moneychangers**. The temple tax had to be in Jewish or Tyrian coinage (because of its high purity silver). Those coming from foreign lands would need to exchange their money into the proper coninage. The money changers charged a high fee for the exchange. Because of the scale of the celebration, exchangers exploited the situation for monetary gain. (MacArthur)
+2:15: **moneychangers**. The temple tax had to be in Jewish or Tyrian coinage (because of its high purity silver). Those coming from foreign lands would need to exchange their money into the proper coinage. The money changers charged a high fee for the exchange. Because of the scale of the celebration, exchangers exploited the situation for monetary gain. (MacArthur)
 
 2:15: **drove them all out**. Although His physical action was forceful, it was not cruel. The moderation of His action is seen in the fact that no uproar occurred with the Passover crowds, in which case the specifically large contingent of Roman troops stationed in the Antonia Fortress overlooking the temple did would have reacted swiftly. (MacArthur)
 
@@ -973,7 +973,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 2:23: **уверовали**. Уверовали в Него, но не твердо. Тверже уверовали в Него те, которые уверовали не вследствие одних только чудес, но и вследствие Его учения, потому что знамения увлекали более грубых, а более разумных – учение и пророчества.  (Евфимий Зигабен)
 
-2:24: **did not entrust Himself to them**. It's a wordplay in Greek. People "believed" (episteusan) in His Name, but He did not "entrust" (episteuen) Himself to them. (ESV)
+2:24: **did not entrust Himself to them**. It's a wordplay in Greek. People "believed" (Gk. episteusan) in His Name, but He did not "entrust" (Gk. episteuen) Himself to them. (ESV)
 
 2:24: **did not entrust Himself to them**. Knowing the hearts of men, Jesus looked for genuine conversion rather than enthusiasm for the spectacular. (MacArthur)
 
