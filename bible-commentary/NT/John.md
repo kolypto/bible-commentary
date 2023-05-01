@@ -3037,11 +3037,25 @@ John records the miracle, but quickly moves on to spiritual realities: the disco
 
 6:28: **what must we do**. They thought it's about some works, some physical actions, that earn you everlasting life. (MacArthur)
 
+6:28: **что нам делать, чтобы творить дела Божии?**. Вопрос был следствием скорее их тупоумия, чем действительного влечения к знанию. "Чему научишь нас другому, что не предуказано нам в Слове Божием? Ддовольно с нас Моисеевых законов – знаем мы не менее, чем надо". Это вопрос не из любознательности, а из гордыни. (Свт. Кирилл Александрийский)
+
+6:28: **что нам делать, чтобы творить дела Божии?**. Сказали же это, как показывают последующие обстоятельства, не с тем, чтобы узнать и исполнить, но чтобы расположить Его опять дать им пищу и насытить их. (Свт. Иоанн Златоуст)
+
 6:29: **The work is to believe**. Jesus says that this is what they should do: recognize signs as such.
+
+6:29: **вот дело Божие, чтобы вы веровали в Того, Кого Он послал**. Чтобы получить вечную жизнь — для этого необходимо только одно дело – вера во Христа как посланного от Бога раздателя небесных благ. Они должны всецело предать сердца свои Христу, отказавшись от греховных пожеланий, от своих эгоистических стремлений и подчинившись откровенной во Христе воле Божией. (Лопухин А.П.)
 
 6:30: **what sign do you do, that we may see and believe you?**. The Jews may think that they are willing to accept a sign if it’s going to be given, but they have just missed one, being unable to understand and recognize. They even remember the manna episode (v. 31), but are unable to link what had happened with Israel with what has just happened in front of their eyes.
 
+6:30: **На это сказали Ему**. Нет ничего хуже, ничего постыднее чревоугодия. Оно делает ум тупым; оно делает душу плотскою; оно ослепляет и не позволяет видеть. Вот смотри: это случилось и с иудеями. Так как, будучи преданы чревоугодию, они всецело были заняты предметами житейскими и не думали ни о чем духовном, то хотя Христос возбуждает их множеством слов, исполненных то строгости, то снисходительности. (Свт. Иоанн Златоуст)
+
 6:31: **Our fathers ate the manna in the wilderness**. They saw Jesus' miraculous feeding to be a small miracle compared to what Moses did. In order for them to believe, they would need to see Him feed the nation of Israel on the same scale that God did for forty years.
+
+6:30: **какое же Ты дашь знамение**. Нет ничего бесчувственнее, ничего бессмысленнее этих слов. Тогда как совершённое Иисусом чудо ещё было пред их глазами, они говорили так, как будто ещё не было сделано ни одного чуда! (Свт. Иоанн Златоуст)
+
+6:31: **Отцы наши если манну в пустыне**. Сказав это, они хотят поставить Его в необходимость совершить не другое какое-либо чудо, а именно такое, какое было при их предках, думая тем подстрекнуть Его совершить такое чудо, которое могло бы напитать их телесно. Не оттого ли вы вспомнили о манне, что сильно желали ее, будучи порабощены чревоугодию? (Свт. Иоанн Златоуст)
+
+6:32: **Иисус же сказал им**. Подивись ещё и вот чему. Иисус, имея в обычае не обращать никакого внимания на вопрошавших Его ради искушения, в настоящем случае, однако же, дает этот ответ с благопромыслительной целью, хотя и знал опять, что они не получат пользы, но в осуждение им говорит. (Свт. Кирилл Александрийский)
 
 6:32: **true bread from heaven**. The manna God gave was temporary and perished and was only a meager shadow of what God offered them in the true bread, Jesus Christ, who gives spiritual and eternal life to mankind ("world"). (MacArthur)
 
