@@ -996,7 +996,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:1: **Pharisee .. a ruler of the Jews**. He was a Pharisee, a teacher of the law, and a ruler in the Sanhedrin; but he knew in his heart that all of that did not make him right with God. (MacArthur)
 
-3:1: **Pharisee**. Highly zealous for ritual and religious purity according to the Mosaic Law, as well as their own traditions that they added to the OT legislation. They were not priests, but their orthodoxy strongly influenced the common people of Israel. Jesus condemned them for their hyperconcentration on externalizing religion (rules and regulations) rather than inward spiritual transformation. (ESV)
+3:1: **Pharisee**. Highly zealous for ritual and religious purity according to the Mosaic Law, as well as their own traditions that they added to the OT legislation. They were not priests, but their orthodoxy strongly influenced the common people of Israel. Jesus condemned them for their hyper-concentration on externalizing religion (rules and regulations) rather than inward spiritual transformation. (ESV)
 
 3:1: **Nicodemus**. His name was Greek in origin: "victor over the people" (Gk. *nike*, *demos*). (ESV)
 
@@ -1006,11 +1006,11 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:1: **Ruler of the Jews**. A member of the Sanhedrin: comprised of the high priest, chief priests, elders, and scribes for a total of 71 people, it executed both civil and criminal jurisdiction according to Jewish law. (MacArthur)
 
-3:2: **by night**. Usually carries a symbolic overtone of spritual darkness elsewhere in John (Jn 9:4: "night is coming, when no one can work"; 11:10: "if anyone walks in the night, he stumbles, because the light is not in him"; 13:30: "［Judas］ immediately went out. And it was night."; but not 21:3: "that night they caught nothing").
+3:2: **by night**. Usually carries a symbolic overtone of spiritual darkness elsewhere in John (Jn 9:4: "night is coming, when no one can work"; 11:10: "if anyone walks in the night, he stumbles, because the light is not in him"; 13:30: "［Judas］ immediately went out. And it was night."; but not 21:3: "that night they caught nothing").
 
 3:2: **by night**. The fact that he came at night suggests he was ashamed of being seen with Jesus: he risked disfavor with his fellow Pharisees, among whom Jesus was generally unpopular. (MacArthur)
 
-3:2: **пришел к Иисусу ночью**. Для чего же ты приходишь ночью и тайно к Тому, Кто говорит божественное и пришел от Бога? Почему не беседуешь с Ним открыто? Но Иисус и этого не сказал ему и не обличил его. Он "трости сокрушены не преломит", говорит Писание, и "льна внемшася не угасит, не преречет, ни возопиет" (Ис 42:3; Мф 12:19-20). (Свт. Иоанн Златоуст)
+3:2: **пришел к Иисусу ночью**. Для чего же ты приходишь ночью и тайно к Тому, Кто говорит божественное и пришел от Бога? Почему не беседуешь с Ним открыто? Но Иисус и этого не сказал ему и не обличил его. Он "трости надломленной не переломит", говорит Писание, и "льна курящегося не угасит" (Ис 42:3; Мф 12:19-20). (Свт. Иоанн Златоуст)
 
 3:2: **пришел к Иисусу ночью**. Он был благорасположен ко Христу, но ещё подвержен иудейским слабостям. Впрочем, Человеколюбец Бог и при этом не отверг его, не укорил и не лишил Своего учения, а с великою кротостию беседует с ним, открывает ему весьма высокие предметы веры, хотя и гадательно, но все же открывает. Человек этот был гораздо более достоин снисхождения, нежели те, которые делали это из лукавства. Последние не заслуживали никакого прощения; а тот, хотя и достоин был обличения, но не в такой степени. (Свт. Иоанн Златоуст)
 
@@ -1034,7 +1034,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:3: **Jesus answered him**. The answer evidences Jesus' ability to know men's hearts (Jn 2:23-24) and thereby demonstrates Jesus' deity. (MacArthur)
 
-3:3: **Jesus answered him**. Jesus answered a question that Nicodemusdid not even ask. He read Nicodemus' heart and came to the very core of his problem: the need for spiritual transformation produced by the Holy Spirit. (MacArthur)
+3:3: **Jesus answered him**. Jesus answered a question that Nicodemus did not even ask. He read Nicodemus' heart and came to the very core of his problem: the need for spiritual transformation produced by the Holy Spirit. (MacArthur)
 
 3:3: **Иисус сказал ему в ответ**. Никодим думал, что, говоря так о Христе, он сказал нечто великое. Что же Христос? Показывает ему, что он еще не достиг и преддверия истинного ведения, не стоит даже и пред вратами его, но еще блуждает где-то вне Царствия. (Свт. Иоанн Златоуст)
 
@@ -1048,7 +1048,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:3: **если кто не родится свыше, не может увидеть Царствия Божия**. То есть если ты не родишься свыше и не получишь точного познания о предметах веры, то будешь блуждать и останешься далеко вне Царствия Небесного. (Свт. Иоанн Златоуст)
 
-3:3: **не может увидеть Царствия Божия**. Кажется, ответ не имеет ничего общего со словами Никодими. Но внимательный читатель заметит: так как Никодим имел понятие о Христе уничиженное ("не увидел" божественности Христа, не увидел Царствия Божия в нём) — Христос отвечает:  тебе естественно иметь такое понятие обо Мне. Ибо ты еще не родился «свыше», то есть от Бога. И ты, и всякий другой будете вне Царствия, если не родитесь свыше и от Бога и не получите должного обо Мне понятия. Ибо рождение чрез крещение, внося в душу свет, дает ей возможность видеть или познавать Царствие Божие. Так и ты, потому что не родился еще духовно, не видишь Меня. (Блж. Феофилакт Болгарский)
+3:3: **не может увидеть Царствия Божия**. Кажется, ответ не имеет ничего общего со словами Никодима. Но внимательный читатель заметит: так как Никодим имел понятие о Христе уничиженное ("не увидел" божественности Христа, не увидел Царствия Божия в нём) — Христос отвечает:  тебе естественно иметь такое понятие обо Мне. Ибо ты еще не родился «свыше», то есть от Бога. И ты, и всякий другой будете вне Царствия, если не родитесь свыше и от Бога и не получите должного обо Мне понятия. Ибо рождение чрез крещение, внося в душу свет, дает ей возможность видеть или познавать Царствие Божие. Так и ты, потому что не родился еще духовно, не видишь Меня. (Блж. Феофилакт Болгарский)
 
 3:4: **как может человек родиться, будучи стар?**. Он слышит о духовном рождении, но не думает о духовном, а низводит сказанное до уничижения плоти, и столь великое и высокое учение подводит под естественный порядок вещей. Вот почему он выдумывает вопросы и смешные недоумения. (Свт. Иоанн Златоуст)
 
@@ -1064,9 +1064,9 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:5: **born of water**. Figuratively in the OT, water refers to renewal or spiritual cleansing. (MacArthur)
 
-3:5: **born of water**. How has Nicodemus undestood that saying? Not as a Christian baptism: it has not yet been instituted. Nicodemus would have understood it as the fulfillment of the new covenant promised through Ezekiel: "I will sprinkle clean water on you, and you shall be clean from all your uncleannesses [...] and I will give you a new heart, and a new spirit I will put within you. [...] and cause you to walk in my statutes and be careful to obey my rules" (Ezek 36:25-27). What Ezekiel is writing there is that the day will come when the Lord will wash your heart, He'll wash your life, He'll wash your inner man, He'll put a new heart in you, and He'll put His Spirit in you. It is "the [internal] washing of regeneration and the renewing [that comes by] the Holy Spirit" (Tit 3:5). (MacArthur)
+3:5: **born of water**. How has Nicodemus understood that saying? Not as a Christian baptism: it has not yet been instituted. Nicodemus would have understood it as the fulfillment of the new covenant promised through Ezekiel: "I will sprinkle clean water on you, and you shall be clean from all your uncleanness [...] and I will give you a new heart, and a new spirit I will put within you. [...] and cause you to walk in my statutes and be careful to obey my rules" (Ezek 36:25-27). What Ezekiel is writing there is that the day will come when the Lord will wash your heart, He'll wash your life, He'll wash your inner man, He'll put a new heart in you, and He'll put His Spirit in you. It is "the [internal] washing of regeneration and the renewing [that comes by] the Holy Spirit" (Tit 3:5). (MacArthur)
 
-3:5: **unless one is born .. he cannot enter the Kingdom of God**. Pharisees eagerly expected the coming of the prophesied resurrection of the saints, but they thought that mere physical lineage and keeping of religious externals qualified them for entrace into the kingdom. Jesus emphasized the need for a spiritual transformation. (MacArthur)
+3:5: **unless one is born .. he cannot enter the Kingdom of God**. Pharisees eagerly expected the coming of the prophesied resurrection of the saints, but they thought that mere physical lineage and keeping of religious externals qualified them for entrance into the kingdom. Jesus emphasized the need for a spiritual transformation. (MacArthur)
 
 3:5: **родится от воды и Духа**. Так как человек по своей природе есть нечто сложное, составленный из двух: тела и души, то и для своего возрождения нуждался в двойном средстве, которое должно быть сродственно обеим сторонам его природы. Духом освящается именно дух человека, а водой, со своей стороны также освященной, – тело.  (Свт. Кирилл Александрийский)
 
@@ -1084,7 +1084,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:7: **I said to you (singular), you (plural) must be born again**. Plural carries broader application to all people: everyone "must be born again". (ESV)
 
-3:8: **wind .. Spirit**. Wind and Spirit are the same in Greek and Hebrew: *pneuma* and *ruach*. (ESV)
+3:8: **wind .. Spirit**. Wind and Spirit are the same in Gk. *pneuma* Hb. *ruach*. (ESV)
 
 3:8: **ветер**. Христос предлагает Никодиму знакомый и понятный для него образ: ветер, который незримый как Дух, но оказывает видимое действие. (Свт. Иоанн Златоуст)
 
@@ -1092,7 +1092,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:8: **the wind blows where it wishes**. The Holy Spirit cannot be controlled or understood, but where the Spirit works, the effects can be witnessed, and there is undeniable and unmistakable evidence. (MacArthur)
 
-3:8: **Дух дышит, где хочет**. Игра слов. Слова Иисуса касаются одновременно и ветра, который шелестит листьями -- но его самого не видно, и Духа, который производит перементы в людях, но Его самого всё так же не видно.
+3:8: **Дух дышит, где хочет**. Игра слов. Слова Иисуса касаются одновременно и ветра, который шелестит листьями -- но его самого не видно, и Духа, который производит перемены в людях, но Его самого всё так же не видно.
 
 3:8: **Дух дышит, где хочет, и голос его слышишь, а не знаешь, откуда**. Бог меняет сердца людей — но люди не могут понять, как и откуда Он приходит. И Дух приходит, когда хочет: наше желание необходимо, но когда приходить — выбирает Дух.
 
@@ -1121,7 +1121,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:11: **you do not receive our witness**. The plural "you" addresses Israel, of whom Nicodemus was speaking as a representative (v.2: "we know"). Jesus indicated that Nicodemus' unbelief was typical of the nation as a collective whole. (MacArthur)
 
-3:11: **Мы говорим**. Христос в Евангелиях нигде не говорит о Себе во множественном числе, следовательно, здесь Он, кроме Себя, имеет в виду кого-либо другого. Kого же? Учеников Своих? Нет, ученики Его еще не выступали с Ним в качестве проповедников. Естественнее всего здесь видеть указание на Иоанна Kрестителя, который в то время с успехом продолжал свою деятельность. (Лопухин А.П.)
+3:11: **Мы говорим**. Христос в Евангелиях нигде не говорит о Себе во множественном числе, следовательно, здесь Он, кроме Себя, имеет в виду кого-либо другого. Кого же? Учеников Своих? Нет, ученики Его еще не выступали с Ним в качестве проповедников. Естественнее всего здесь видеть указание на Иоанна Kрестителя, который в то время с успехом продолжал свою деятельность. (Лопухин А.П.)
 
 3:11: **вы свидетельства Нашего не принимаете**. Господь говорит это не одному Никодиму, но простирает к целому роду иудеев, до конца оставшихся в неверии. (Блаж. Феофилакт Болгарский)
 
@@ -1142,7 +1142,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 3:12: **как поверите, если буду говорить вам о небесном?**. Значит, небесное очень, очень непохоже на земное! Непохоже до того, что хотя бы оно было открыто, и притом таким пренебесным Лицом, Каков был Иисус Христос, и тогда бы не нашло себе веры между нами!..
 Отчего так?.. От крайней отдаленности предметов небесных от всего земного.
 Как говорить о том, для чего в нашем уме нет понятий, а в нашем языке -слов? Опыт святого Павла, который был восхищен в рай, прекрасно поясняет сию важную истину. В раю апостол видел и слышал многое, чего никак нельзя видеть и слышать на земле. Некое понятие о виденном и слышанном осталось в нем и по возвращении на землю. Но что же? Он не находил на языке человеческом слов к пересказанию того, что видел и слышал. Так все виденное и слышанное им на небе было непохоже на все наше земное!
-Что из сего? То, во-первых, чтобы не судить о небесном по земному. Большей части того, что мы здесь видим, слышим, чем занимаемся, - там вовсе не место; а напротив, там именно место тому, яже око не виде, и ухо не слыша, и яже на сердце человеку не взыдоша (1 Кор. 2; 9).
+Что из сего? То, во-первых, чтобы не судить о небесном по земному. Большей части того, что мы здесь видим, слышим, чем занимаемся, - там вовсе не место; а напротив, там именно место тому, у кого «не видел глаз, не слышало ухо, и не приходило на сердце человеку то, что Бог приготовил любящим Его» (1 Кор 2:9).
 (Свт. Иннокентий (Борисов))
 
 3:13: **Никто не восходил на небо, как только сшедший с небес Сын Человеческий**. Какая связь с предыдущим? "не думай, что Я – такой же учитель, каковы были многие Пророки, бывшие от земли; Я с неба пришел. Из Пророков ни один не восходил туда, а Я там всегда пребываю." (Свт. Иоанн Златоуст)
@@ -1153,7 +1153,7 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 
 3:13: **Сшедший с небес Сын человеческий**. Поелику Никодим называл Господа Учителем и Пророком, то Он говорит: не считай Меня за пророка, сущего от земли, посланного Богом учить, но считай Меня сшедшим свыше, как Сына, а не от земли сущим. Никто из пророков не восходил на небо, а только Я один имею взойти, как и нисшел. (Блаж. Феофилакт Болгарский)
 
-3:13: **сшедший с небес Сын Человеческий, сущий на небесах**. Сын Челочевеский сошёл с неба — и даже теперь божественной стороной Своего существа пребывает на небе. («сущий на небесах»). (Лопухин А.П.)
+3:13: **сшедший с небес Сын Человеческий, сущий на небесах**. Сын Человеческий сошёл с неба — и даже теперь божественной стороной Своего существа пребывает на небе. («сущий на небесах»). (Лопухин А.П.)
 
 3:13: **сшедший с небес Сын Человеческий, сущий на небесах**. Находясь на небе, Он не оставлял земли, и, сходя на землю, он не отсутствовал на небе, но был везде, так как Божество – беспредельно. (Евфимий Зигабен)
 
@@ -1168,13 +1168,13 @@ Very possibly, Nathanael was praying "Lord, show me your Messiah". And here come
 3:14: **как Моисей вознес змию в пустыне**. Так полагаю, смысл этого эпизода был в том, что взирающий на змея взирал с верою в Бога.
 Люди без веры пытались спасаться иными средствами, более практичными. Лишь верующий человек может принять столь странный способ спасения: пойти смотреть на какую-то бронзовую статую.
 
-3:14: **вознес змию**. Для чего вешается на кресте медная змея? Чтобы сделать безвредными укушения змей. Итак, одно распинается, а другое лишается действия. Не усматриваешь ли просвет истины? Не прозреваешь ли как бы чрез покров силу домостроительства? Пригвождена ко кресту змея, чтобы стали бездейственны укушения змей; пригвожден ко кресту Христос, чтобы упразднились действия демонов. И как там образ видимой змеи сделал безвредными укуше­ния змей, так и здесь умерщвление Христа было умерщвлением смерти и упразднением демонов. (Свт. Иоанн Златоуст)
+3:14: **вознес змию**. Для чего вешается на кресте медная змея? Чтобы сделать безвредными укушения змей. Итак, одно распинается, а другое лишается действия. Не усматриваешь ли просвет истины? Не прозреваешь ли как бы чрез покров силу домостроительства? Пригвождена ко кресту змея, чтобы стали бездейственны укушения змей; пригвожден ко кресту Христос, чтобы упразднились действия демонов. И как там образ видимой змеи сделал безвредными укушения змей, так и здесь умерщвление Христа было умерщвлением смерти и упразднением демонов. (Свт. Иоанн Златоуст)
 
 3:14: **должно вознесену быть Сыну Человеческому**. Христос только что сказал Никодиму о Своем вечном существовании по Божеству Своему и о Своем воплощении. Теперь Он сообщает ему другую великую тайну – тайну спасения всех людей Своей крестной смертью и последующим затем Своим прославлением. (Лопухин А.П.)
 
 3:14: **должно вознесену быть Сыну Человеческому**. Но почему Он не сказал прямо: Я буду распят, а отослал слушателей к древнему прообразу? Этим Он научает их, во-первых, что события древние имеют соотношение с новыми, что те не чужды для этих; во-вторых, что Он шел на страдание не против воли Своей, и, кроме того, что и Сам Он не потерпел от того никакого вреда, и многим даровано чрез то спасение. (Свт. Иоанн Златоуст)
 
-3:14: **lifted up**. Typical Johannine double meaning: refers to both Jesus' death and ascension. This is the first of the three "lifed up" sayings (Jn 8:28: "when you have lifted up the Son of Man, then you will know that I am He"; 12:32: "when I am lifted up from the earth, will draw all people to myself"). (ESV)
+3:14: **lifted up**. Typical Johannine double meaning: refers to both Jesus' death and ascension. This is the first of the three "lifted up" sayings (Jn 8:28: "when you have lifted up the Son of Man, then you will know that I am He"; 12:32: "when I am lifted up from the earth, will draw all people to myself"). (ESV)
 
 3:15: **eternal life**. Eternal life refers not only to eternal quantity, but divine quality of life. It means literally "the life of the age to come" and refers to heavenly existence in perfect glory and holiness. It is nothing less than participation in the eternal life of the Living Word, Jesus Christ.
 This life is experienced before heaven is reached. It is the life of God in every believer, yet not fully manifest until the resurrection.
@@ -1194,7 +1194,7 @@ This life is experienced before heaven is reached. It is the life of God in ever
 
 3:16: **так возлюбил мир**. Причина, по которой Единородный Сын Божий должен быть вознесен – сначала на позорное орудие казни, а потом на славный престол небесный – заключается в том, что Бог до чрезвычайности любит людей. (Лопухин А.П.)
 
-3:16: **так возлюбил мир**. Сам Христос, по любви Своей к нам, послушен был Отцу Своему в том, чтобы с радостию принять на Себя поругание и печаль, как говорит Писание: вместо предлежащия Ему радости, претерпе крест, о срамоте нерадив (Евр.12:2).  (Прп. Исаак Сирин)
+3:16: **так возлюбил мир**. Сам Христос, по любви Своей к нам, послушен был Отцу Своему в том, чтобы с радостию принять на Себя поругание и печаль, как говорит Писание: вместо предлежащия Ему радости, претерпел крест, о срамоте нерадив (Евр.12:2).  (Прп. Исаак Сирин)
 
 3:16: **loved the world**. Salvation is available not to Israel only, but to the whole humanity. This must have been a revelation to the Jews: even Romans could be saved.
 
@@ -1216,7 +1216,7 @@ This life is experienced before heaven is reached. It is the life of God in ever
 3:17: **послал Бог Сына Своего в мир**. Причина пришествия Сына Божия — чтобы люди, которым угрожала погибель, получили спасение чрез веру в Него. (Свт. Иоанн Златоуст)
 
 3:17: **не судить .. но чтобы мир спасён был**. Как работает это спасение через веру? И почему судится неверующий в Него?
-Как Бог пришёл в мир — это всё равно что чистый свет явился в полумраке: люди, узнавшие хоть немного о Христе, понимают, что через Него можно прийти к чистоте, праведности, честности, любви к людям. Люди, для чьих сердец это ценность — почувтсвуют родство, и потянутся. Отторжение же может испытать только тот, кто на самом деле "ненавидит свет и не идёт к свету, потому что они злы" (ст. 20).
+Как Бог пришёл в мир — это всё равно что чистый свет явился в полумраке: люди, узнавшие хоть немного о Христе, понимают, что через Него можно прийти к чистоте, праведности, честности, любви к людям. Люди, для чьих сердец это ценность — почувствуют родство, и потянутся. Отторжение же может испытать только тот, кто на самом деле "ненавидит свет и не идёт к свету, потому что они злы" (ст. 20).
 В этом и состоит суд: реакция человека на свет показывает, чем он дорожит. И только любящий тьму может отвернуться и не верить.
 
 3:17: **не послал Бог Сына Своего в мир, чтобы судить мир**. Два пришествия Христова: одно уже бывшее, а другое — будущее. О первом говорят, что Сын не послан, чтобы судить мир (потому что, если бы Он для сего пришел, то все были бы осуждены, так как все согрешили, как и Павел говорит. - (Рим. 3:23), но преимущественно для того пришел, чтобы спасти мир. Таковая была цель у Него. Но на деле вышло, что осуждает тех, кои не уверовали.
@@ -1270,7 +1270,7 @@ This life is experienced before heaven is reached. It is the life of God in ever
 
 ### John the Baptist Exalts Christ
 
-3:22: **Jesus .. was baptizing**. That is, overseeing His disciples (4:2: "(although Jesus himself did not baptize, but only his disciples)") as they continued administering the baptism of John, which was besed on repentance and which symbolized purification from sin. (ESV)
+3:22: **Jesus .. was baptizing**. That is, overseeing His disciples (4:2: "(although Jesus himself did not baptize, but only his disciples)") as they continued administering the baptism of John, which was based on repentance and which symbolized purification from sin. (ESV)
 
 3:22: **пришел Иисус с учениками Своими в землю иудейскую**. В праздники Он приходил в город, чтобы там предлагать учение среди народа и чудесами благотворить ему; по окончании же праздников часто отходил на Иордан, потому что и туда стекалось множество народа.  (Свт. Иоанн Златоуст)
 
@@ -1318,7 +1318,7 @@ This life is experienced before heaven is reached. It is the life of God in ever
 
 3:28: **не я Христос, но я послан пред Ним**. Иоанн почти прямо говорит: Он — Христос. Конечно люди пойдут к Нему: ведь здесь действует Сам Бог! Поэтому здесь не должно быть места для ревности: "я послан пред Ним", выполнил свою часть, я теперь "Ему должно расти, а мне умаляться".
 
-3:29: **the bridegroom**. Identifies Jesus as Israel's long-awaited King and Messiah. In the OT, Israrl is frequently depicted as God's bride (e.g. Isa 62:4-5; Jer 2:2; Hos 2:16-20). (ESV)
+3:29: **the bridegroom**. Identifies Jesus as Israel's long-awaited King and Messiah. In the OT, Israel is frequently depicted as God's bride (e.g. Isa 62:4-5; Jer 2:2; Hos 2:16-20). (ESV)
 
 3:29: **friend of bridegroom**. The one who organized the details and presided over the wedding. This friend found joy in watching the ceremony proceed without problems. (MacArthur)
 
@@ -1411,7 +1411,7 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 4:3: **оставил Иудею**. Почему же Он оставил Иудею? Не по боязни, а для того, чтобы пресечь клевету и утишить ненависть. (Свт. Иоанн Златоуст
 )
 
-4:4: **through Samaria**. This was the usual route taken by travelers from Judea to Galilee, though strict Jews, in order to avoid defilement, could bypass Samaria by opting for a longer route that involved crossing the Jordan and travelling on the east side. (ESV)
+4:4: **through Samaria**. This was the usual route taken by travelers from Judea to Galilee, though strict Jews, in order to avoid defilement, could bypass Samaria by opting for a longer route that involved crossing the Jordan and traveling on the east side. (ESV)
 
 4:4: **Samaria**. Samaritans were a racially mixed group of partly Jewish and partly Gentile ancestry (see 2 Kgs 17:24-31, where the king of Assyria brings foreign people to settle in Samaria), who were disdained by both Jews and non-News. The Samaritans had their own version of the Pentateuch, their own temple on Mount Gerizim, and their own rendering of Israelite history. Tensions often ran high between Jews and Samaritans: Josephus recounts a fighting in the first century A.D. that started with a murder of a Galilean. The fighting was so intense that Roman soldiers were called in to pacify by force. (ESV)
 
@@ -1419,7 +1419,7 @@ This is sometimes called "John's realized eschatology" (where "eschatology" mean
 
 4:4: **he had to pass through Samaria**. It was the shorter route. But the apostle may have been highlighting divine necessity: Jesus had an appointment with divine destiny in meeting the Samaritan woman, to whom He would reveal His messiahship. (MacArthur)
 
-4:4: **he had to pass through Samaria**. Probably not because of georgraphy, but due to divine necessity. The words may indicate that Jesus' itenerary was subject to the providential plan of God: "had to" translates Greek *dei*, "to be necessary", which always indicates divine necessity. (ESV)
+4:4: **he had to pass through Samaria**. Probably not because of geography, but due to divine necessity. The words may indicate that Jesus' itinerary was subject to the providential plan of God: "had to" translates Greek *dei*, "to be necessary", which always indicates divine necessity. (ESV)
 
 4:6: **Jesus wearied**. Underscores His full humanity. Jesus' human nature could be weak and tired, though His divine nature was omnipotent. (ESV)
 
@@ -1542,7 +1542,7 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 
 4:15: **чтобы мне .. не приходить сюда черпать**. Самое большее, что она могла подумать о Христе – будто Он какой-нибудь волхв, который при помощи некоторых чародейств может сотворить некое чудо. Чтобы избавить женщину от этих безумных мыслей, Господь неожиданно заговаривает на совершенно другую тему. (Свт. Николай Сербский)
 
-4:16: **call your husband**. Since the woman failed to understand the nature of the living water He offered, Jesus abruptly urned the dialogue to focus sharply on her real spiritual need for conversion and cleansing from sin. His intimate knowledge of her morally depraved life not only indicated His supernatural ability, but also focused on her spiritual condition. (MacArthur)
+4:16: **call your husband**. Since the woman failed to understand the nature of the living water He offered, Jesus abruptly turned the dialogue to focus sharply on her real spiritual need for conversion and cleansing from sin. His intimate knowledge of her morally depraved life not only indicated His supernatural ability, but also focused on her spiritual condition. (MacArthur)
 
 4:16: **позови мужа твоего**. Свойство Бога — знать мысли человека. Обнаруживать же тайные дела может каждый, кто в них соучаствует или слышит о них. (Свт. Иоанн Златоуст)
 
@@ -1560,7 +1560,7 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 
 4:16: **позови мужа твоего**. Так и с нами поступает Господь: обличает нас в грехах наших, но приходит к нам Сам, спасти нас.
 
-4:17: **I have no husband**. While techinically true, the woman's curt statement is probably intended to close the subject. (ESV)
+4:17: **I have no husband**. While technically true, the woman's curt statement is probably intended to close the subject. (ESV)
 
 4:17: **у меня нет мужа**. Думая, что говорит с простым человеком, женщина пыталась обмануть Его и скрыть постыдное дело. (Евфимий Зигабен)
 
@@ -1584,7 +1584,7 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 
 4:20: **Отцы наши поклонялись на этой горе**. Видите ли каковы вместе смирение и любовь к Истине у этой женщины? Видите, что составляло заботу её мыслей? Много ли сейчас людей, которые знают так Писание, как знала Самарянка? ［А много ли верующих, встретив пророка, зададут такой духовный вопрос? А что бы вы спросили, встретив пророка?］ (Свт. Григорий Палама)
 
-4:20: **Отцы наши поклонялись на этой горе**. Таковое знание и тщание в изучении Богодохновенного Писания, принимая которое как благоухание аромата, Христос с удовольствием продолжает беседовать с Самарянкой; потому что как если на угли положишь что-нибудь ароматное, ты привлечешь и удержишь приходящих, а если – нечто зловонное и неприглядное, то оттолкнешь их и отвратишь. Так  относительно помыслов: если возымеешь священную заботу и тщание о них, сделаешь себя достойным Божественного посещения (Эпископис Фиас): потому что это-то и есть благоухание аромата, которое Господь обоняет; если же будешь питать дурные и грязные и земные помыслы, то будешь далек от Божественной неги, сделав себя, увы, достойным того, чтобы Бог отвратился от тебя! (Свт. Григорий Палама)
+4:20: **Отцы наши поклонялись на этой горе**. Таковое знание и тщание в изучении Богодухновенного Писания, принимая которое как благоухание аромата, Христос с удовольствием продолжает беседовать с Самарянкой; потому что как если на угли положишь что-нибудь ароматное, ты привлечешь и удержишь приходящих, а если – нечто зловонное и неприглядное, то оттолкнешь их и отвратишь. Так  относительно помыслов: если возымеешь священную заботу и тщание о них, сделаешь себя достойным Божественного посещения (Эпископис Фиас): потому что это-то и есть благоухание аромата, которое Господь обоняет; если же будешь питать дурные и грязные и земные помыслы, то будешь далек от Божественной неги, сделав себя, увы, достойным того, чтобы Бог отвратился от тебя! (Свт. Григорий Палама)
 
 4:20: **Отцы наши поклонялись на этой горе**. Вопрос же, предложенный самарянкой Иисусу Христу, касался того, чье богослужение лучше и угоднее Богу: самарянское, или иудейское, так как у иудеев с самарянами был спор об этом. Иудеи говорили, что Бог принимает молитву только в Иерусалиме, а самаряне – что на горе (Гаризин), где некогда стоял ковчег завета и в последствии был построен и скоро иудеями разрушен самарянский храм. (Прот. Иоанн Бухарев)
 
@@ -1594,13 +1594,13 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 
 4:20: **место, где должно поклоняться**.  Споры о месте поклонения Богу велись между самарянами и иудеями постоянно. Что Богу угоднее: чтобы люди поклонялись Ему на горе Самарянской или в Иерусалиме? Кто является истинным поклонником и истинным богомольцем: тот, кто поклоняется и молится Ему здесь, или тот, кто поклоняется и молится там? (Свт. Николай Сербский)
 
-4:21: **neither on this mountain nor in Jerusalem**. Jesus is inaugurating a new age in which people will not have to travel to a physical temple in one city to worship but will be able to worship God in every place: because the Holy Spirit will dwell in them, and therefore God's people everywhere will become the new temple where God dwells. (1 Cor 3:16-17: "God’s temple is holy, and you are that temple."; Eph 2:19-22: "Christ Jesus himself being jthe cornerstone, 21 kin whom the whole structure, being joined together, grows into la holy temple in the Lord.") (ESV)
+4:21: **neither on this mountain nor in Jerusalem**. Jesus is inaugurating a new age in which people will not have to travel to a physical temple in one city to worship but will be able to worship God in every place: because the Holy Spirit will dwell in them, and therefore God's people everywhere will become the new temple where God dwells. (1 Cor 3:16-17: "God’s temple is holy, and you are that temple."; Eph 2:19-22: "Christ Jesus himself being the cornerstone, 21 kin whom the whole structure, being joined together, grows into la holy temple in the Lord.") (ESV)
 
 4:21: **наступает время, когда и не на горе сей, и не в Иерусалиме будете поклоняться Отцу**. Иисус открывает другую, более важную, истину, которую Он не открывал ни Никодиму, ни Нафанаилу. Наступает, говорит, время, когда Богу будут поклоняться ни в Иерусалиме, ни здесь. Ты, говорит, стараешься доказать, что обычаи самарянские достойнее обычаев иудейских. А Я тебе говорю, что ни те, ни другие не имеют достоинства, но наступит другой некоторый порядок, который лучше обоих сих. Но и при этом Я объявляю, что иудеи достойнее самарян. Вы, говорит, кланяетесь тому, чего не знаете; а мы, иудеи, кланяемся тому, что знаем. (Блаж. Феофилакт Болгарский)
 
 4:21: **наступает время, когда и не на горе сей, и не в Иерусалиме будете поклоняться Отцу**. Теперь, с наступлением времени нового завета, богослужение не будет привязано к одному какому-нибудь месту, и не будет состоять в приношении жертв и совершении обрядов — но при внешних обрядах, будут поклоняться и умом и сердцем, верою в Спасителя уже пришедшего и в невидимую благодать Его. (Прот. Иоанн Бухарев)
 
-4:21: **и не на горе сей, и не в Иерусалиме будете поклоняться Отцу**. Образ богослужения переменится: уже не будет отыскиваться такое место, о котором станут думать, что собственно и исключительно в нем одном обитает Бог, но как все Наполняющему и все Объемлющему Своей силой. (Свт. Кирилл Александрiийский)
+4:21: **и не на горе сей, и не в Иерусалиме будете поклоняться Отцу**. Образ богослужения переменится: уже не будет отыскиваться такое место, о котором станут думать, что собственно и исключительно в нем одном обитает Бог, но как все Наполняющему и все Объемлющему Своей силой. (Свт. Кирилл Александрийский)
 
 4:21: **будете поклоняться Отцу**. Здесь, несомненно, заключается пророчество об обращении самарян, по крайней мере, значительной их части к вере во Христа. Это пророчество исполнилось вскоре по вознесении Христа (Деян.8:14: "Находившиеся в Иерусалиме Апостолы, услышав, что Самаряне приняли слово Божие, послали к ним Петра и Иоанна"). (Лопухин А.П.)
 
@@ -1614,13 +1614,13 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 Вы, самаряне, не знаете, чему кланяетесь, ибо вы кланяетесь многим богам, многим идолам; вы якобы чтите Бога Авраамова и Иаковлева, но наряду с тем приносите жертвы и бесчисленным идолам ассирийским и вавилонским. Иудеи, по крайней мере, знают о Едином Боге, хотя и они, подобно вам, служат Ему окамененным сердцем, помраченным умом и мертвыми обычаями. И все же спасение от Иудеев; то есть: Мессия родится среди иудеев и чрез Него придет спасение всему миру
 (Свт. Николай Сербский)
 
-4:22: **Вы не знаете, чему кланяетесь**. Хоть самаряне и иудеи почитали одного и того же Бога, но самаряне не знали, что Он есть Господь всех народов, и предполагали, что Он владычествует только над самарянами и иудеями; а иудеи знали, что Он есть всемогущий Господь всех народов. Поэтому Иисус Христос сказал ей: вы кланяетеся, Егоже не весте, т.е. власти Которого вы не знаете. (Евфимий Зигабен)
+4:22: **Вы не знаете, чему кланяетесь**. Хоть самаряне и иудеи почитали одного и того же Бога, но самаряне не знали, что Он есть Господь всех народов, и предполагали, что Он владычествует только над самарянами и иудеями; а иудеи знали, что Он есть всемогущий Господь всех народов. Поэтому Иисус Христос сказал ей: "Вы не знаете, чему кланяетесь", т.е. власти Которого вы не знаете. (Евфимий Зигабен)
 
 4:22: **Вы не знаете, чему кланяетесь**. Он не говорит, что самаряне не знают истинного Бога: они не понимают только как должно истинного существа религии, и потому их поклонение Богу не может вполне сравниться с иудейским культом. (Лопухин А.П.)
 
 4:22: **спасение от Иудеев**. Христос придёт от Иудеев. Спасение самарян, следовательно, тоже придёт от иудеев. (Свт. Григорий Палама)
 
-4:23: **the Father is seeking such people to worship Him**. God does not want external obedience. God wants a woshipful heart that loves Him.
+4:23: **the Father is seeking such people to worship Him**. God does not want external obedience. God wants a worshipful heart that loves Him.
 
 4:23: **true worshipers will worship the Father in spirit and truth**. Worshipers will be identified, not by a particular shrine or location, but by their worship of the Father through the Son. True worshipers are all those everywhere who worship God through the Son, from the heart. (MacArthur)
 
@@ -1678,7 +1678,7 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 Наблюдай: согласно ли сердце твое с тем, что произносит язык.
 (Прав. Иоанн Кронштадтский)
 
-4:25: **знаю, что придет Мессия**. Kак самаряне тогда представляли себе Мессию на этот вопрос нельзя сказать что-либо достоверное. Можно, впрочем, с вероятностью предполагать, что самаряне не могли не усвоить себе некоторой части иудейских представлений о Мессии. Они называли Его «Тагеб», т. е. восстановитель, и говорили, что Он восстановит скинию свидения со всеми ее сосудами и разъяснит сокровенное значение закона Моисеева. Тагеб выступит, однако, не только как Учитель, но и как Царь, Kоторому подчинится Израиль и все народы земли. (Лопухин А.П.)
+4:25: **знаю, что придет Мессия**. Kак самаряне тогда представляли себе Мессию на этот вопрос нельзя сказать что-либо достоверное. Можно, впрочем, с вероятностью предполагать, что самаряне не могли не усвоить себе некоторой части иудейских представлений о Мессии. Они называли Его «Тагеб», т. е. восстановитель, и говорили, что Он восстановит скинию со всеми ее сосудами и разъяснит сокровенное значение закона Моисеева. Тагеб выступит, однако, не только как Учитель, но и как Царь, Kоторому подчинится Израиль и все народы земли. (Лопухин А.П.)
 
 4:25: **знаю, что придет Мессия**. Откуда у самарян было ожидание пришествия Христова, когда они принимали только Моисея?
 Из самих Писаний Моисея.
@@ -1749,7 +1749,7 @@ OT verses: In Jer 2:13, Yahweh decries the disobedient Jews for rejecting Him, t
 
 4:34: **Моя пища – творить волю Пославшего Меня**. Он описывает здесь должность апостольского служения и ясно показывает, какое настроение обязаны иметь апостолы. По всей справедливости, им необходимо быть сосредоточенными на одних только учительских заботах и избегать плотских наслаждений настолько, чтобы даже и самое удовлетворение необходимых потребностей совершалось только для одного избежания смерти. (Свт. Кирилл Александрийский)
 
-4:34: **совершить**. Teleioso: to complete: i.e. to accomplish, to consummate. Со-вершить: вместе прийти к вершине ("со": общее участие; "вершить": приводить к вершине). (Strong) Чтобы пояснить разницу: в чём разница между "сотворить" и "совершить"? Сотворять — это процесс, а совершение — это финал, результат, доведение до совершенства/завершённости.
+4:34: **совершить**. Gk. teleioso: to complete: i.e. to accomplish, to consummate. Со-вершить: вместе прийти к вершине ("со": общее участие; "вершить": приводить к вершине). (Strong) Чтобы пояснить разницу: в чём разница между "сотворить" и "совершить"? Сотворять — это процесс, а совершение — это финал, результат, доведение до совершенства/завершённости.
 
 4:34: **совершить дело Его**. Нужно заметить, что Христос рассматривает здесь Свою миссию как довершение того великого дела (έργον), которое давно уже начал совершать в человечестве Отец Небесный. Это Сам Отец подготовил самарянку и ее соплеменников к вере во Христа, это Он пробудил в душах этих полуязычников стремление узнать истину, и задачей Христа было только развить те зародыши, которые были вложены в сердца людей Богом. (Лопухин А.П.)
 
