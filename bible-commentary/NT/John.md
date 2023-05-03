@@ -3067,11 +3067,23 @@ John records the miracle, but quickly moves on to spiritual realities: the disco
 
 6:32: **Иисус же сказал им**. Подивись ещё и вот чему. Иисус, имея в обычае не обращать никакого внимания на вопрошавших Его ради искушения, в настоящем случае, однако же, дает этот ответ с благопромыслительной целью, хотя и знал опять, что они не получат пользы, но в осуждение им говорит. (Свт. Кирилл Александрийский)
 
-6:32: **true bread from heaven**. The manna God gave was temporary and perished and was only a meager shadow of what God offered them in the true bread, Jesus Christ, who gives spiritual and eternal life to mankind ("world"). (MacArthur)
+6:32: **не Моисей .. а Отец Мой**. Спаситель сильно изобличает неразумных: ведь Моисей служил посредником в передаче Божественных велений народу и обратно, но не был самоличным совершителем ни одного из чудес, а только слугой и исполнителем. Да научаемся же отсюда, точно и основательно, оказывать благоговение к святым отцам нашим и воздавать: усвоять каждому подобающее ему. Надлежало отстранить Моисея от Божественной власти, каковую приписывали ему иудеи, и представить его служителем при том чудотворении,​ а не подателем манны. (Свт. Кирилл Александрийский)
 
 6:32: **My Father gives you true bread from heaven**. The true bread would be something that nourishes people eternally and spiritually and thus is infinitely superior to the manna given to Israel. (ESV)
 
+6:32: **Отец Мой**. Выражение «Отец Мой» вместо выражения «Бог» употреблено, очевидно, с той целью, чтобы показать, что истинный, действительно небесный хлеб подается Богом только через Сына Божия. (Лопухин А.П.)
+
+6:32: **true bread from heaven**. The manna God gave was temporary and perished and was only a meager shadow of what God offered them in the true bread, Jesus Christ, who gives spiritual and eternal life to mankind ("world"). (MacArthur)
+
+6:32: **истинный хлеб**. Тот хлеб был прообразовательный, прообразующий Меня, Который есть Сама Истина. Дальше Он высказывает и более общее различие прообразовательного хлеба и истинного. (Евфимий Зигабен)
+
+6:33: **сходит с небес и дает жизнь миру**. Даёт жизнь всему человеческому роду («​миру​»),​ а не только иудейскому народу,​ как было с манной. (Лопухин А.П.)
+
 6:34: **give us this bread always**. People, in their spiritual blindness, again failed to understand that Jesus was that "bread". This obtuseness prompted Jesus to speak very plainly that He was referring to Himself. (MacArthur)
+
+6:34: **подавай нам всегда такой хлеб**. До сих пор представляя хлеб этот чувственным, они, вследствие жадности, просили Иисуса Христа, чтобы Он дал им не раз, а всегда. (Евфимий Зигабен)
+
+6:34: **подавай нам всегда такой хлеб**. Речь эту найдешь весьма сходствующей со словами самарянской женщины: «Господи, дай мне эту воду, да не жажду, ни прихожу сюда черпать» (Ин. 4:15). (Свт. Кирилл Александрийский)
 
 6:35: **I am the bread of life**. The first of seven "I am" sayings recorded in this Gospel.
 Metaphorical "I am" statements:
@@ -3088,6 +3100,8 @@ Absolute "I am" statements:
 * 18:5: "They answered him, “Jesus of Nazareth.” Jesus said to them, “I am he.”"
 Refers to God as "I am": Ex 3:14
 (ESV)
+
+6:35: **Я есмь хлеб жизни**. Намеревается уже приступить к учению о таинстве и сначала беседует о Своем Божестве. Здесь сказано не о теле ломимом — потому что о теле говорит под конец: "хлеб же, который Я дам, есть Плоть Моя" (ст. 51). (Свт. Иоанн Златоуст)
 
 6:37: **All that the Father gives me will come to me**. Links with v. 44: "No one can come to Me unless the Father .. draws him".
 
@@ -3108,6 +3122,8 @@ Refers to God as "I am": Ex 3:14
 2. Jesus' rebuke of the crowd for their reaction.
 3. Jesus' reiteration of His message to the crowd.
 (MacArthur)
+
+6:41: **Возроптали на Него Иудеи**. Они услышали, что больше не получат уже пищи, и поэтому опять начали не верить и в оправдание своего неверия представляют то, что Его слово слишком высоко. (Свт. Иоанн Златоуст)
 
 6:41: **The Jews**. In this Gospel, the term "Jews" is often associated with hostility towards Christ. It is used ironically to indicate the incongruity of their rising hostility toward their Messiah. (MacArthur)
 
