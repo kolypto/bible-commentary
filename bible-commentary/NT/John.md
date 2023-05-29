@@ -3457,11 +3457,15 @@ The theme of being united with "the Son of Man" is represented in the Lord's Sup
 2. The true disciples' reaction of belief.
 (MacArthur)
 
+6:60: **Многие из учеников Его**. Раньше только «иудеи» (противники Христа) соблазнялись учением Христа о Себе как о хлебе, сшедшем с небес, теперь же и многие из «учеников» или последователей Христа пришли в недоумение, когда услышали, что кто не будет есть Плоти Его и пить Kрови Его, тот не получит вечной жизни. (Лопухин А.П.)
+
 6:60: **Многие из учеников Его**. Говорившие это были ученики, но не из двенадцати, а из семидесяти. Некоторые говорят, что это были ученики Иисуса Христа, не из числа двенадцати и даже не из семидесяти, так как и многие другие следовали часто за Ним.  (Евфимий Зигабен)
 
 6:60: **this is a hard saying**. After this sermon, only a small nucleus of disciples remained. (MacArthur)
 
 6:60: **кто может это слушать?**. Благоразумный ученик выслушивает все слова своего учителя, а когда представится случай, осторожно спрашивает о том, что превышает его понимание. (Евфимий Зигабен)
+
+6:60: **кто может это слушать?**. Так судит о слове Божием плотское мудрование из бедственного настроения своего. (Свт. Игнатий (Брянчанинов))
 
 6:61: **knowing in Himself**. Jesus knew the hearts of men (Jn 2:23-25: "He Himself knew what was in man"): He supernaturally know that many did not believe in Him as Messiah and Son of God. These false disciples were simply attracted to the physical phenomena and failed to understand the true significance of Jesus' teachings. (MacArthur)
 
