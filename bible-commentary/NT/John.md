@@ -3622,16 +3622,65 @@ The theme of being united with "the Son of Man" is represented in the Lord's Sup
 
 ## 7
 
-7:37: **Living water**. The word “**living**” is a verb; literally, a *water that lives*.
-
-
 🔴 Optina STOP
 🔴 MacArthur STOP
+
+7:3: **brothers**. Gk. "adelphoi". Gk. "ἀδελφός" comes from "alpha" (from) + "delphus" (womb): i.e. coming from the same womb.
+
+7:3: **brothers**. The most natural sense of "adelphoi" are natural brothers: i.e. naturally born sons of Many. (ESV)
+
+7:3: **that your disciples also may see the works**. They wanted Jesus to manifest himself to his contemporaries for secular reasons (ESV)
+
+7:5: **not even his brothers believed in him**. So real and genuine was Jesus' humanity, and so well hidden was his deity before he began his earthly ministry, that even those who had lived in the same house with him for nearly 30 years did not know who he was. They lived and ate and slept in the same rooms as the eternal Son of God and did not know it. (ESV)
+
+7:6: **My time**. Gk. "kairos": time that is suitable, right, opportune. (ESV)
+
+7:7: **The world cannot hate you**. Because they themselves belonged to the world. (ESV)
+
+7:8: **I am not going up to this feast**. The Greek present tense can legitimately have the sense of "I am not now going". (ESV)
+
+7:12: **he is leading the people astray**. Later Jewish literature likewise calls Jesus a deceiver. (ESV)
+
+7:17: **If anyone’s will is to do God’s will**. Whether people follow Jesus depends on whether they are willing to obey him. Those who are morally willing to follow Jesus will be intellectually convinced that he is the way, the truth, and the life. (ESV)
+
+7:23: **If on the Sabbath a man receives circumcision**. Jesus' argument is "from the lesser to the greater": the Jews were to circumcise their males on the eighth day even if that day fell on the Sabbath (the "lesser" issue); if "perfecting" one part of the human body on the Sabbath was legitimate, how much more the healing of an entire person (the "greater" issue). (ESV)
+
+7:27: **no one will know where he comes from**. Some rabbis taught that the Messiah would be wholly unknown until he set out to procure salvation for Israel. (ESV)
+
+7:30: **because his hour had not yet come**. Shows Jesus' strong awareness of God's providential direction of the circumstances of his life; his enemies could not capture or harm him until "the hour" of his arrest, crucifixion, and death, as ordained by God. God the Father would not allow these things to happen until the earthly ministry of Jesus (God the Son) was complete. (ESV)
+
+7:31: **When the Christ appears, will he do more signs**. Since the Messiah would be a prophet like Moses (Deut. 18:15, 18) and Moses performed many miraculous signs at the exodus (Exodus 7-11), the Messiah was expected to perform miracles as well. After witnessing Jesus' miracles, it is natural for people to wonder if he was the Messiah. (ESV)
+
+7:32: **chief priests and Pharisees sent officers to arrest him**. The Sanhedrin deployed officers (or temple police) to arrest Jesus. The temple police were drawn from the Levites and were charged with maintaining order in the temple precincts. The order to arrest Jesus implies that they planned to allege criminal activity on his part. (ESV)
+
+7:35: **the Dispersion among the Greeks**. The Dispersion, Gk. "diaspora", refers to all the Jewish people scattered throughout the Roman Empire, and even beyond the bounds of the empire, but not living in Palestine itself. (ESV)
+
+7:37: **the last day of the feast, the great day**. Previously, it was the middle of the feast in v. 14. (ESV)
+
+7:37: **If anyone thirsts, let him come to me and drink**. Thirsts for God. To "come" to Jesus means to believe in Him: enter into a trusting relationship, with wholehearted personal involvement and participation. (ESV)
+
+7:37: **Living water**. The word “living” is a verb; literally, "a water that lives".
+
+7:38: **‘Out of his heart will flow rivers of dliving water’**. Jesus probably summarizes the teaching and the implication of several passages that picture the inward work of God in a believer as a river of water flowing out to bring blessing to others: Prov. 4:23: "Keep your heart with all vigilance, for from it flow the springs of life."; Isa. 58:11: "And the LORD will guide you continually and satisfy your desire in scorched places and make your bones strong; and you shall be like a watered garden, like a spring of water, whose waters do not fail." (ESV)
+
+7:39: **the Spirit had not been given**. There was no work of the Holy Spirit in the world prior to Jesus' resurrection. Some OT verses even speak of the Spirit of God at work within believers prior to the coming of Christ (see Num. 27:18; Deut. 34:9; Ezek. 2:2; 3:24; Dan. 4:8-9, 18; 5:11; Mic. 3:8; cf. Luke 1:15, 41, 67). This verse must therefore mean that "the Spirit had not been given" in the full and powerful sense that was promised for the new covenant age (see Ezek. 36:26, 27; 37:14; Joel 2:28-29; cf. John 20:22; Acts 2:1-13). (ESV)
+
+7:40: **the Prophet**. The Prophet is the figure referenced in Deut. 18:15-18. This "Prophet" and the Messiah were held to be different persons by some in first-century Judaism. Jesus is both. (ESV)
+
+7:42: **the Christ comes from .. Bethlehem**. Is clearly predicted as the Messiah's birthplace in Mic. 5:2: "But you, O Bethlehem Ephrathah, .. from you shall come forth for me one who is to be ruler in Israel, whose coming forth is from of old, from ancient days.". The irony is apparent, for they did not realize that Bethlehem was in fact Jesus' birthplace. (ESV)
+
+7:45: **The officers then came to the chief priests**. The officers sent in v.32 return with nothing.
+
+7:46: **No one ever spoke like this man!**. No other man in history has been fully God as well and thus able to speak with the infinite knowledge and authority of God himself. (ESV)
+
+7:52: **see that ano prophet arises from Galilee**. Prophets occasionally did arise from Galilee, such as Jonah (2 Kings 14:25), and possibly Elijah (1 Kings 17:1) and Nahum (Nah. 1:1). The Pharisees may simply have been reflecting current bias against Galileans, or John may be reporting their willingness even to distort the facts in order to make their arguments against Jesus. (ESV)
+
 🔴 ESV STOP
+
 
 ## 8
 
-8:1: St. Augustine (354-430) knew the passage, and claimed that some men had removed the passage due to a concern that it would be used by their wives as a pretense to commit adultery: "Certain persons of little faith, or rather enemies of the true faith, fearing, I suppose, lest their wives should be given impunity in sinning, removed from their manuscripts the Lord's act of forgiveness toward the adulteress, as if he who had said, Sin no more, had granted permission to sin." (__[Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Jesus_and_the_woman_taken_in_adultery&amp;sa=D&amp;ust=1582399365475000)__)
+8:1: St. Augustine (354-430) knew the passage, and claimed that some men had removed the passage due to a concern that it would be used by their wives as a pretense to commit adultery: "Certain persons of little faith, or rather enemies of the true faith, fearing, I suppose, lest their wives should be given impunity in sinning, removed from their manuscripts the Lord's act of forgiveness toward the adulteress, as if he who had said, Sin no more, had granted permission to sin." ([Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Jesus_and_the_woman_taken_in_adultery))
 
 8:9: Jesus shamed the woman’s accusers into inaction, but they did not become merciful. (MacArthur)
 
