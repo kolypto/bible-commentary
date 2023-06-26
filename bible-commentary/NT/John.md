@@ -3623,21 +3623,57 @@ The theme of being united with "the Son of Man" is represented in the Lord's Sup
 ## 7
 
 🔴 Optina STOP
-🔴 MacArthur STOP
+
+7:xx: Chapters 7 and 8 show how the smoldering dislike of Jesus erupts into a blazing inferno. It all ends with Jesus saying "you are of your Father the devil", and the Jews' picking up stones to throw at Him. The culmination of this hatred occurs in 11:45-57 where the Jewish authorities plot to kill Jesus, which leads to His crucifixion. (MacArthur)
+
+7:1: **after this**. The previous chapter occurred around Passover (6:4: "the Passover"), this chapter occurs 7 months later. (MacArthur)
+
+7:1: **went about in Galillee**. Jesus spent two days with the multitude (6:22), but He spent sevent months teaching His twelve disciples who believed in Him. This phrase subtly highlights the great importance of discipleship, for Jesus concentrated great lengths of time upon training His future spiritual leaders. (MacArthur)
+
+7:2: **Feast of Booths**. Chapters 7 and 8 occur at the Feast of Tabernacles in Jerusalem. The two major themes of the feast are water and light, and they come to prominence in these chapters. (MacArthur)
+
+7:2: **Feast of Booths**. The feast is associated with the ingathering of the harvest of grapes and olives. It occurred for 7 days, and according to Josephus, this feast was the most popular of the three (Passover, Pentecost, Tabernacles).  People living in rural areas built makeshift structures of light branches and leaves to live in for the week,  while town dwellers put up similar structures on their flat roofs or in their courtyards. The feast was known for water-drawing and lamp-lighting rites to which Jesus makes reference. (MacArthur)
+
+7:2: **Feast of Booths**. Tabernacles in the Bible:
+Ex 23:16: "You shall keep the Feast of Harvest, of the firstfruits of your labor"
+Lev 23:33-36: "On the fifteenth day of this seventh month and for seven days is the Feast of Booths to the LORD. 35 On the first day shall be a holy convocation; you shall not do any ordinary work. 36 For seven days you shall present food offerings to the LORD. On the eighth day you shall hold a holy convocation and present a food offering to the LORD. It is a solemn assembly; you shall not do any ordinary work."
+Lev 23:40: "And you shall take on the first day the fruit of splendid trees, branches of palm trees and boughs of leafy trees and willows of the brook, and you shall rejoice before the LORD your God seven days."
+Lev 23:42-43: "You shall dwell in booths for seven days. All native Israelites shall dwell in booths, 43 that your generations may know that I made the people of Israel dwell in booths when I brought them out of the land of Egypt: I am the LORD your God."
+Dt 16:15: "For seven days you shall keep the feast to the LORD your God at the place that the LORD will choose, because the LORD your God will bless you in all your produce and in all the work of your hands, so that you will be altogether joyful."
 
 7:3: **brothers**. Gk. "adelphoi". Gk. "ἀδελφός" comes from "alpha" (from) + "delphus" (womb): i.e. coming from the same womb.
 
 7:3: **brothers**. The most natural sense of "adelphoi" are natural brothers: i.e. naturally born sons of Many. (ESV)
 
+7:3: **brothers**. "James, Joses, Simon and Judas" (Mt 13:55). James authored the NT epistle that bears his name and became the leader of the Jerusalem church: "James, a servant of God and of the Lord Jesus Christ" (Jas 1:1).
+Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Christ and brother of James"
+(MacArthur)
+
 7:3: **that your disciples also may see the works**. They wanted Jesus to manifest himself to his contemporaries for secular reasons (ESV)
+
+7:4: **to be known openly**. Perhaps, they made the request to determine the genuineness of miracles: the Jerusalem's acceptance of Him was to be the acid test for them as to whether His own family would believe in Him as Messiah and follow Him as a leader. (MacArthur)
 
 7:5: **not even his brothers believed in him**. So real and genuine was Jesus' humanity, and so well hidden was his deity before he began his earthly ministry, that even those who had lived in the same house with him for nearly 30 years did not know who he was. They lived and ate and slept in the same rooms as the eternal Son of God and did not know it. (ESV)
 
+7:5: **not even his brothers believed in him**. They did not become His followers until after the resurrection: "were devoting themselves to prayer, together with the women and Mary the mother of Jesus, and his brothers" (Acts 1:13), "Then he appeared to James, then to all the apostles." (1 Cor 15:7) (MacArthur)
+
 7:6: **My time**. Gk. "kairos": time that is suitable, right, opportune. (ESV)
+
+7:6: **My time has not yet come**. This recalls the response to Jesus' mother at the wedding in Cana: "My hour has not yet come." (Jn 2:4).
+
+7:6: **My time has not yet come**. Reveals Jesus' complete dependence on and commitment to the Father's sovereign timetable for His life. Furthermore, Jesus never committed Himself to being motivated by unbelief. (MacArthur)
+
+7:6: **your time is always here**. Because Jesus' brothers did not believe in Him, they were of the world and, therefore, know nothing of God or His purposes and schedule. As a result, any time would do for them. (MacArthur)
 
 7:7: **The world cannot hate you**. Because they themselves belonged to the world. (ESV)
 
 7:8: **I am not going up to this feast**. The Greek present tense can legitimately have the sense of "I am not now going". (ESV)
+
+7:10: **He also went up**. Up to Jerusalem. Jesus left Galilee for the last time before the Cross. (MacArthur)
+
+7:10: **in secret**. The complete opposite of what His brothers had demanded of Him. (MacArthur)
+
+🔴 MacArthur STOP
 
 7:12: **he is leading the people astray**. Later Jewish literature likewise calls Jesus a deceiver. (ESV)
 
