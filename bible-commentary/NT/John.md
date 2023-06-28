@@ -3673,19 +3673,61 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:10: **in secret**. The complete opposite of what His brothers had demanded of Him. (MacArthur)
 
-🔴 MacArthur STOP
+7:11: **the Jews were looking for Him**. "The Jews" designates the hostile Jewish authorities in Judea. The search for Jesus was certainly hostile in intent. (MacArthur)
 
 7:12: **he is leading the people astray**. Later Jewish literature likewise calls Jesus a deceiver. (ESV)
 
-7:17: **If anyone’s will is to do God’s will**. Whether people follow Jesus depends on whether they are willing to obey him. Those who are morally willing to follow Jesus will be intellectually convinced that he is the way, the truth, and the life. (ESV)
+7:12: **he is leading the people astray**. The Jewish Talmud reveals that the latter view of deception became the predominant opinion of many Jews (Babylonian Talmud, Sanhedrin 43a: "Our rabbis taught Jesus the Nazarene had five disciples, and these are they: Matthai, Naqqai, Netzer, Buni, and Todah. The master said: Jesus the Nazarene practiced magic and deceived and led Israel astray". "On the eve of Passover, Jesus the Nazarene was hanged and a herald went forth before him forty days heralding, "Jesus the Nazarene is going forth to be stoned because he practiced sorcery and instigated and seduced Israel to idolatry. Whoever knows anything in defense may come and state it." But since they did not find anything in his defense they hanged him on the eve of Passover.") (MacArthur)
+
+7:14: **Jesus .. began teaching**. Even though the hostility was increasing, it did not prevent His teaching ministry. Instead, Jesus relentlessly set forth His claims regarding His identity and mission. (MacArthur)
+
+7:14: **Jesus .. began teaching**. Jesus taught like the rabbis of His day: prominent rabbis would enter the temple and expound on the Old Testament to crowds who sat around them. (MacArthur)
+
+7:14..: Five reasons as to why Jesus' claims regarding Himself are true:
+1. His supernatural knowledge originated from the Father Himself (vv. 15-16: has learning, but never studied)
+2. His teaching and knowledge could be confirmed by testing (v. 17: he will know whether the teaching is from God)
+3. His actions demonstrated His selflessness (v. 18: the one who seeks God's glory and not his own)
+4. His impact on the world was startling (vv. 19-20: the Jews seek to kill Him)
+5. His deeds demonstrated His identity as the Son of God (vv. 21–24: "I did one work, and you all marvel at it").
+(MacArthur)
+
+7:15: **The Jews marveled**. Jesus' knowledge of Scripture was supernatural, especially for someone who had never studied. His profound mastery of Scripture was qualitatively different than any other teacher. (MacArthur)
+
+7:16: **My teaching is not mine**. The qualitative difference of Jesus' teaching was found in its source: the Father gave it to Him.  It originated from God the Father Himself, in contrast to rabbis who received it from man (Gal. 1:12: "For I did not receive it from any man, nor was I taught it, but I received it through a revelation of Jesus Christ."). While rabbis merely relied on the authority of others (a long chain of human tradition), Jesus’ authority centered in Himself. (MacArthur)
+
+7:17: **If anyone’s will is to do God’s will, he will know**. Whether people follow Jesus depends on whether they are willing to obey him. Those who are morally willing to follow Jesus will be intellectually convinced that he is the way, the truth, and the life. (ESV)
+
+7:17: **If anyone’s will is to do God’s will, he will know**.  Those who are fundamentally committed to doing God’s will will be guided by Him in the affirmation of His truth. God’s truth is self-authenticating through the teaching ministry of the Holy Spirit. (MacArthur)
+
+7:18: **in him there is no falsehood**. While other "messiahs" acted for their own selfish interests, thereby revealing their falseness, Jesus Christ as God's Son came solely to glorify the Father and accomplish the Father's will. (MacArthur)
+
+7:21: **I did one work**. The reason for persecution is the healing of the paralytic on Sabbath (ch. 5). (MacArthur)
+
+7:22: **not .. from Moses, but from the fathers**. Circumcision was included as part of the Mosaic covenant at Sinai, but instituted before Moses: during the time of the patriarchs. The rite was antecedent to the Mosaic Law and the Sabbath law and took precedence over it (Gal 3:15-17: "even with a man-made covenant, no one annuls it or adds to it once it has been ratified. .. The law came 430 after [the circumcision and] does not annul [it]"). (MacArthur)
 
 7:23: **If on the Sabbath a man receives circumcision**. Jesus' argument is "from the lesser to the greater": the Jews were to circumcise their males on the eighth day even if that day fell on the Sabbath (the "lesser" issue); if "perfecting" one part of the human body on the Sabbath was legitimate, how much more the healing of an entire person (the "greater" issue). (ESV)
 
+7:23: **If on the Sabbath a man receives circumcision**. If a child was born on the Sabbath, then the eighth day would fall again on Sabbath, and the Jews would circumcise the child. Jesus' point is that Jews "broke" their own Sabbath law with the circumcision, and now their hypocricy is evident: if ceremonial cleansing of one part of the body is permitted on the Sabbath, how much more should the actual healing of the entire body be permitted on the Sabbath. (MacArthur)
+
+7:24: **judge by right judgment**. Jesus demands the exercise of moral and theological discernment — rather than harsh, censorious judgment and self-legalism promotes. (MacArthur)
+
+7:26: **speaking openly**. If He was a fraud, why the religious leaders fail to arrest Him? This question indicates that both the crowds and the rulers were in great confusion and uncertainty as to who Jesus was and what to do with Him. (MacArthur)
+
 7:27: **no one will know where he comes from**. Some rabbis taught that the Messiah would be wholly unknown until he set out to procure salvation for Israel. (ESV)
+
+7:27: **no one will know where he comes from**.  Only information regarding Messiah’s birthplace was revealed in Scripture (Mic. 5:2: "But you, O Bethlehem Ephrathah, .. from you shall come forth for me one who is to be ruler in Israel"). Beyond that, a tradition had developed in Jewish circles that Messiah would appear suddenly to the people, based on a misinterpretation of Isaiah 53:8 ("he was cut off out of the land of the living") and Malachi 3:1 ("the Lord whom you seek will suddenly come to his temple"). In light of this, the meaning of this phrase most likely is that the identity of the Messiah would be wholly unknown until He suddenly appeared in Israel and accomplished Israel’s redemption. In contrast, Jesus had lived His life in Nazareth and was known (at least superficially) to the people. (MacArthur)
 
 7:30: **because his hour had not yet come**. Shows Jesus' strong awareness of God's providential direction of the circumstances of his life; his enemies could not capture or harm him until "the hour" of his arrest, crucifixion, and death, as ordained by God. God the Father would not allow these things to happen until the earthly ministry of Jesus (God the Son) was complete. (ESV)
 
+7:30: **because his hour had not yet come**. The reason why they could not seize Him was that God's sovereign timetable and plan for Jesus would not allow it. (MacArthur)
+
 7:31: **When the Christ appears, will he do more signs**. Since the Messiah would be a prophet like Moses (Deut. 18:15, 18) and Moses performed many miraculous signs at the exodus (Exodus 7-11), the Messiah was expected to perform miracles as well. After witnessing Jesus' miracles, it is natural for people to wonder if he was the Messiah. (ESV)
+
+7:31: **many of the people believed in Him**. A small remnant of genuine believers existed among the crowds. (MacArthur)
+
+7:31: **will he do more signs**. The question anticipates a negative answer. (MacArthur)
+
+🔴 MacArthur STOP
 
 7:32: **chief priests and Pharisees sent officers to arrest him**. The Sanhedrin deployed officers (or temple police) to arrest Jesus. The temple police were drawn from the Levites and were charged with maintaining order in the temple precincts. The order to arrest Jesus implies that they planned to allege criminal activity on his part. (ESV)
 
