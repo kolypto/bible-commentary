@@ -3727,34 +3727,64 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:31: **will he do more signs**. The question anticipates a negative answer. (MacArthur)
 
-🔴 MacArthur STOP
+7:32: **chief priests and Pharisees**. Most of the chief priests were Sadducees, who were political and religious opponents of the Pharisees. John repeatedly links these two groups in his Gospel to emphasize that their cooperation stemmed from their mutual hatred of Jesus.  Both were alarmed at the faith of those indicated in verse 31 and, in order to avoid any veneration of Jesus as Messiah, attempted unsuccessfully to arrest Him (v. 30) (MacArthur)
 
 7:32: **chief priests and Pharisees sent officers to arrest him**. The Sanhedrin deployed officers (or temple police) to arrest Jesus. The temple police were drawn from the Levites and were charged with maintaining order in the temple precincts. The order to arrest Jesus implies that they planned to allege criminal activity on his part. (ESV)
 
+7:32: **officers**. Temple guards: the Levites in charge of maintaining order in the temple environs. (MacArthur)
+
+7:34: **Where I am you cannot come**. Jesus refers to His return to His heavenly origin with His Father after His Crucifixion and Resurrection. (MacArthur)
+
 7:35: **the Dispersion among the Greeks**. The Dispersion, Gk. "diaspora", refers to all the Jewish people scattered throughout the Roman Empire, and even beyond the bounds of the empire, but not living in Palestine itself. (ESV)
+
+7:35: **Does he intend to .. teach the Greeks?**.  John may have been citing this phrase with ironic force since the gospel eventually went to the Gentiles because of Jewish blindness and rejection of their Messiah. (MacArthur)
 
 7:37: **the last day of the feast, the great day**. Previously, it was the middle of the feast in v. 14. (ESV)
 
+7:37: **on the last day**. This suggests that this occasion occurred on a different day than the controversy in verses 11–36. (MacArthur)
+
+7:37: **if anyone thirsts**.  A tradition grew up in the few centuries before Jesus that on the seven days of the Feast of Tabernacles, a golden container filled with water from the pool of Siloam was carried in procession by the high priest back to the temple. As the procession came to the Water Gate on the south side of the inner temple court, three trumpet blasts were made to mark the joy of the occasion and the people recited Isaiah 12:3, “With joy you will draw water from the wells of salvation.” At the temple, while onlookers watched, the priests would march around the altar with the water container while the temple choir sang the Hallel (Pss. 113–118). The water was offered in sacrifice to God at the time of the morning sacrifice. The use of the water symbolized the blessing of adequate rainfall for crops.
+The water-pouring rite was also associated within Jewish tradition as a foreshadowing of the eschatological rivers of living water foreseen in Ezekiel 47:1–9 and Zechariah 13:1. The significance of Jesus’ invitation centers in the fact that He was the fulfillment of all the Feast of Tabernacles anticipated, i.e., He was the One who provided the living water that gives eternal life to man.
+(MacArthur)
+
 7:37: **If anyone thirsts, let him come to me and drink**. Thirsts for God. To "come" to Jesus means to believe in Him: enter into a trusting relationship, with wholehearted personal involvement and participation. (ESV)
+
+7:37: **thirsts .. come .. drink**.  A recognition of need leads to an approach to the source of provision, followed by receiving what is needed. The thirsty, needy soul feels the craving to come to the Savior and drink, i.e., receive the salvation that He offers. (MacArthur)
 
 7:37: **Living water**. The word “living” is a verb; literally, "a water that lives".
 
 7:38: **‘Out of his heart will flow rivers of dliving water’**. Jesus probably summarizes the teaching and the implication of several passages that picture the inward work of God in a believer as a river of water flowing out to bring blessing to others: Prov. 4:23: "Keep your heart with all vigilance, for from it flow the springs of life."; Isa. 58:11: "And the LORD will guide you continually and satisfy your desire in scorched places and make your bones strong; and you shall be like a watered garden, like a spring of water, whose waters do not fail." (ESV)
 
+7:39: **this he said about the Spirit**. The Holy Spirit is the source of spiritual and eternal life. (MacArthur)
+
 7:39: **the Spirit had not been given**. There was no work of the Holy Spirit in the world prior to Jesus' resurrection. Some OT verses even speak of the Spirit of God at work within believers prior to the coming of Christ (see Num. 27:18; Deut. 34:9; Ezek. 2:2; 3:24; Dan. 4:8-9, 18; 5:11; Mic. 3:8; cf. Luke 1:15, 41, 67). This verse must therefore mean that "the Spirit had not been given" in the full and powerful sense that was promised for the new covenant age (see Ezek. 36:26, 27; 37:14; Joel 2:28-29; cf. John 20:22; Acts 2:1-13). (ESV)
 
 7:40: **the Prophet**. The Prophet is the figure referenced in Deut. 18:15-18. This "Prophet" and the Messiah were held to be different persons by some in first-century Judaism. Jesus is both. (ESV)
+
+7:41: **Is the Christ to come from Galilee?**. They did not even bother to investigate His true birthplace, showing their lack of interest in messianic credentials. Jesus was not born in Galilee. (MacArthur)
 
 7:42: **the Christ comes from .. Bethlehem**. Is clearly predicted as the Messiah's birthplace in Mic. 5:2: "But you, O Bethlehem Ephrathah, .. from you shall come forth for me one who is to be ruler in Israel, whose coming forth is from of old, from ancient days.". The irony is apparent, for they did not realize that Bethlehem was in fact Jesus' birthplace. (ESV)
 
 7:45: **The officers then came to the chief priests**. The officers sent in v.32 return with nothing.
 
+7:45: **The officers**. The officers failed in their attempt to arrest Jesus when they were confronted with His person and powerful teaching. Since they were religiously trained, Jesus’ words struck at their very heart. (MacArthur)
+
 7:46: **No one ever spoke like this man!**. No other man in history has been fully God as well and thus able to speak with the infinite knowledge and authority of God himself. (ESV)
 
-7:52: **see that ano prophet arises from Galilee**. Prophets occasionally did arise from Galilee, such as Jonah (2 Kings 14:25), and possibly Elijah (1 Kings 17:1) and Nahum (Nah. 1:1). The Pharisees may simply have been reflecting current bias against Galileans, or John may be reporting their willingness even to distort the facts in order to make their arguments against Jesus. (ESV)
+7:47: **Have you also been deceived?**. The Pharisees mocked the officers, not on professional (as police officers), but religious grounds (as Levites). In essence, they accused them of being seduced by a deceiver (i.e., Jesus) in contrast to the Pharisees themselves who arrogantly and self-righteously felt that in their wisdom and knowledge no one could ever deceive them. (MacArthur)
+
+7:49: **this crowd that does not know the law**. The rabbis viewed the common people as a "crowd", ignorant and impious, especially because they did not follow the Pharisees' oral traditions. (MacArthur)
+
+7:49: **accursed**. Because they did not belong to the elite group or follow their beliefs regarding the law. (MacArthur)
+
+7:50: **Nicodemus**. Nicodemus does not defend Jesus directly, but does raise a point in Jesus' favor. (MacArthur)
+
+7:52: **see that no prophet arises from Galilee**. Prophets occasionally did arise from Galilee, such as Jonah (2 Kings 14:25), and possibly Elijah (1 Kings 17:1) and Nahum (Nah. 1:1). The Pharisees may simply have been reflecting current bias against Galileans, or John may be reporting their willingness even to distort the facts in order to make their arguments against Jesus. (ESV)
+
+7:52: **see that no prophet arises from Galilee**. They also did not carefully search out the facts as to where Jesus was actually born. (MacArthur)
 
 🔴 ESV STOP
-
+🔴 MacArthur STOP
 
 ## 8
 
