@@ -3772,6 +3772,18 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:13: **Иудеев**. Иудеями называет здесь божественный Евангелист исключительно начальников иудейских, считая недостойным, как мне кажется, применять к ним наименования старейшин или священников или другое какое-либо из таковых, к чему побуждала его ревность о благочестии и скорбь о них. (Свт. Кирилл Александрийский)
 
+7:14: **вошёл**. Точнее, «возшел»; храм действительно находился на некоторой высоте по отношению к городским зданиям. (Лопухин А.П.)
+
+7:14: **вошёл**. Хорошо также блаженный Евангелист говорит не просто «вошел», но «восшел в храм». Это потому, что вхождение в Божественное училище и пребывание во святых местах поистине есть нечто высокое и весьма возвышающееся над низменною земною худостию. (Свт. Кирилл Александрийский)
+
+7:14: **в половине уже праздника вошел Иисус в храм**. Иисус пришёл на праздник как простой богомолец (ст. 10), побыл там некоторое время, а теперь входит в храм и уже выступает как учитель.
+
+7:14: **в половине уже праздника вошел Иисус в храм**. Почему Он пришел в половине праздника? Для того чтобы ослабить их гнев и чтобы они с большим прилежанием и вниманием слушали речи Его, когда праздник не заграждал их слуха. Ибо в начале праздника им естественно было развлечься праздничною обстановкою.
+Когда Он явился внезапно, то все вообще слушали Его, и те, кои называли Его добрым, и те, кои называли Его обольстителем; одни, чтобы получить какую-нибудь пользу и подивиться; другие, чтобы привязаться к Нему и схватить Его как обманщика.
+(Блж. Феофилакт Болгарский)
+
+7:14: **в половине уже праздника вошел Иисус в храм**. Он предстал пред ними, после того как утишил их ярость, чтобы они внимательно могли выслушать Его слова, когда гнев не заграждал уже их слуха. (Свт. Иоанн Златоуст)
+
 7:14: **Jesus .. began teaching**. Even though the hostility was increasing, it did not prevent His teaching ministry. Instead, Jesus relentlessly set forth His claims regarding His identity and mission. (MacArthur)
 
 7:14: **Jesus .. began teaching**. Jesus taught like the rabbis of His day: prominent rabbis would enter the temple and expound on the Old Testament to crowds who sat around them. (MacArthur)
@@ -3786,11 +3798,22 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:15: **The Jews marveled**. Jesus' knowledge of Scripture was supernatural, especially for someone who had never studied. His profound mastery of Scripture was qualitatively different than any other teacher. (MacArthur)
 
+7:15: **И дивились Иудеи**. Они не учению дивились — а недоумевали, изумлялись, что обыкновенно бывает с завидующими.
+Например, если у кого бедный сосед вдруг начал ходить в дорогой одежде, что он подумает? "Украл он эту одежду".
+Так и иудеи. Как, говорят, знает Писания? - без сомнения, силою веельзевула. Но так как они не хотели признать в Нём божественного, Он Сам отвечает им и научает, что учение Его от Отца и Бога. Моего, говорит, нет ничего. Сам от Себя, вопреки Богу, Я ничего не говорю, но что принадлежит Отцу, о том Я и говорю.
+(Блж. Феофилакт Болгарский)
+
+7:15: **как Он знает Писания, не учившись?**. Между тем это недоумение должно было привести к сознанию, что в Нем не было ничего человеческого. Но так как этого они не хотели исповедать, но ограничивались только удивлением, то послушай, что говорит Сам Христос. (Свт. Иоанн Златоуст)
+
 7:16: **My teaching is not mine**. The qualitative difference of Jesus' teaching was found in its source: the Father gave it to Him.  It originated from God the Father Himself, in contrast to rabbis who received it from man (Gal. 1:12: "For I did not receive it from any man, nor was I taught it, but I received it through a revelation of Jesus Christ."). While rabbis merely relied on the authority of others (a long chain of human tradition), Jesus’ authority centered in Himself. (MacArthur)
+
+7:16: **Мое учение — не Мое**. Опять отвечает на их тайную мысль, обращая их к Отцу и желая тем заградить им уста. (Свт. Иоанн Златоуст)
 
 7:17: **If anyone’s will is to do God’s will, he will know**. Whether people follow Jesus depends on whether they are willing to obey him. Those who are morally willing to follow Jesus will be intellectually convinced that he is the way, the truth, and the life. (ESV)
 
 7:17: **If anyone’s will is to do God’s will, he will know**.  Those who are fundamentally committed to doing God’s will will be guided by Him in the affirmation of His truth. God’s truth is self-authenticating through the teaching ministry of the Holy Spirit. (MacArthur)
+
+7:17: **кто хочет творить волю Его**. Значит: если кто любит жизнь добродетельную и хочет быть внимательным к пророчествам, чтобы видеть, сообразно ли с ними Я говорю или нет, тот уразумеет силу Моих слов. (Свт. Иоанн Златоуст)
 
 7:18: **in him there is no falsehood**. While other "messiahs" acted for their own selfish interests, thereby revealing their falseness, Jesus Christ as God's Son came solely to glorify the Father and accomplish the Father's will. (MacArthur)
 
