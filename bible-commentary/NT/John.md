@@ -3861,13 +3861,36 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:21: **I did one work**. The reason for persecution is the healing of the paralytic on Sabbath (ch. 5). (MacArthur)
 
+7:21: **одно дело сделал Я**. Единым делом называет исцеление в субботу 38-летнего расслабленного (гл. 5). (Евфимий Зигабен)
+
+7:21: **вы дивитесь**. Смущаетесь, тревожитесь. (Свт. Иоанн Златоуст)
+
+7:22: **Моисей дал вам обрезание**. Для обрезания самим Моисеем суббота была нарушаема, и в день субботний немало не возбраняется человеку обрезываться. Если это так, то для чего вы на Меня негодуете и гневаетесь за то, что Я в субботу исцелил всего человека? (Блаж. Феофилакт Болгарский)
+
 7:22: **not .. from Moses, but from the fathers**. Circumcision was included as part of the Mosaic covenant at Sinai, but instituted before Moses: during the time of the patriarchs. The rite was antecedent to the Mosaic Law and the Sabbath law and took precedence over it (Gal 3:15-17: "even with a man-made covenant, no one annuls it or adds to it once it has been ratified. .. The law came 430 after [the circumcision and] does not annul [it]"). (MacArthur)
+
+7:22: **хотя оно не от Моисея, но от отцов**. Лев 12:3: "в восьмой же день обрежется у него крайняя плоть его"; но ещё Быт 17:12: "Восьми дней от рождения да будет обрезан у вас в роды ваши всякий младенец мужеского пола"
+
+7:23: **на Меня ли негодуете**. Между тем как вы не негодовали на Моисея, который прежде Меня повелел совершать обрезание в субботу? (Евфимий Зигабен)
+
+7:23: **на Меня ли негодуете**. Обвиняемый в нарушении одного только узаконения, Он обличает их в преступлении очень многих, едва не говоря известное евангельское изречение: «И что смотришь на сучек в глазе брата твоего, а в своем глазе бревна не замечаешь?» (Мф. 7:3). Дурно, следовательно, судить других, «ибо в чем кто судит другого, себя самого осуждает», по написанному (Рим. 2:1). Поэтому-то и Сам Спаситель говорил: «Не судите, и не будете судимы, – не осуждайте, и не будете осуждены» (Лк. 6:37).
+(Свт. Кирилл Александрийский)
 
 7:23: **If on the Sabbath a man receives circumcision**. Jesus' argument is "from the lesser to the greater": the Jews were to circumcise their males on the eighth day even if that day fell on the Sabbath (the "lesser" issue); if "perfecting" one part of the human body on the Sabbath was legitimate, how much more the healing of an entire person (the "greater" issue). (ESV)
 
 7:23: **If on the Sabbath a man receives circumcision**. If a child was born on the Sabbath, then the eighth day would fall again on Sabbath, and the Jews would circumcise the child. Jesus' point is that Jews "broke" their own Sabbath law with the circumcision, and now their hypocricy is evident: if ceremonial cleansing of one part of the body is permitted on the Sabbath, how much more should the actual healing of the entire body be permitted on the Sabbath. (MacArthur)
 
+7:23: **в субботу принимает человек обрезание**. А между тем, сами они нарушают субботу постоянно – именно когда в субботний день им приходится обрезывать младенца, которого по закону следовало обрезать непременно на 8-й день по рождении (Лопухин А.П.)
+
+7:23: **Я всего человека исцелил в субботу**. Моисей допустил заповедь вопреки закону, которая высшая, чем закон. А Я совершил дело, которое выше и превосходнее даже обрезания. Иисус предоставил им этот вопрос на суд: не важнее ли обрезания всецелого здравия человека? (Свт. Иоанн Златоуст)
+
+7:23: **Я всего человека исцелил в субботу**. Они через нарушение закона достигали только введения младенца во внешнее общение с Богом, делали его членом теократического общества, а Христос при Вифезде даровал расслабленному полное – и внешнее, и внутреннее – спасение (выражение «всего человека» заключает в себе мысль об особенной важности чуда исцеления по сравнению с актом обрезания младенца, который не «весь» освящался этим актом). Давая же расслабленному такое благо, Христос, можно сказать, не нарушил, а исполнил высшую божественную заповедь о любви к ближнему, которая составляла центральный пункт учения закона и пророков. (Лопухин А.П.)
+
 7:24: **judge by right judgment**. Jesus demands the exercise of moral and theological discernment — rather than harsh, censorious judgment and self-legalism promotes. (MacArthur)
+
+7:24: **суди́те судом праведным**. Произносите суд, основываясь не на достоинствах лица, а на существе дел: это значит судить справедливо. (Свт. Иоанн Златоуст)
+
+7:24: **суди́те судом праведным**. Моисея, нарушающего субботу обрезанием, вы освобождаете от порицания; а Меня, нарушившего субботу чрез благодеяние человеку, вы осуждаете. Освобождать Моисея от порицания, из уважения к его достоинству, и осуждать Меня, который по виду бесславен, - это явное лицеприятие. (Блаж. Феофилакт Болгарский)
 
 7:26: **speaking openly**. If He was a fraud, why the religious leaders fail to arrest Him? This question indicates that both the crowds and the rulers were in great confusion and uncertainty as to who Jesus was and what to do with Him. (MacArthur)
 
