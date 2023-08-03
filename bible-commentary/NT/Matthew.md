@@ -3466,6 +3466,12 @@ If the disciples shook the dust of a Jewish town from their feet, it would show 
 
 13:23: The seed is the same in every case, so the emphasis is on the different kinds of **soil**, which represents a human heart which can be receptive to the **word**.
 
+13:29: **нет, - чтобы, выбирая плевелы, вы не выдергали вместе с ними пшеницы**. Сейчас, пока ростки маленькие, не видно никакой разницы. Но в конце разница будет очевидна: тогда и повыдергаете.
+Разбойник на кресте: он всю жизнь прожил, и был очевидно плевелом. Но перед смертью оказалось — пшеница.
+А алкоголик ваш знакомый, который очевидно плевело — не окажется ли в конце пшеницей?
+Поэтому Бог и запрещает удалять злых людей сегодня: мы не знаем, чем их жизнь кончится. А откроется всё в конце.
+(Константин Корепанов)
+
 13:44: **Treasure**. The parable of the man finding great treasure means that this person had been accumulating wealth all his life, and now when he has found salvation, the way to salvation which is so valuable, he is willing to give up everything that he once considered valuable for this treasure to be his. That is in exchange.
 
 13:45: **Pearls**. The merchant looking for fine pearls also finds one whose value far exceeds the value of the pearls that he already has. The assumption is that he has been accumulating pearls his whole life, and he thought them to be valuable, and no he willingly gives them up because he recognizes that the true value is nothing compared to the value of this particular one.
