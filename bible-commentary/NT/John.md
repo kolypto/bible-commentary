@@ -3940,11 +3940,21 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:29: **Я знаю Его**. Думаю, что Сын ведает Отца не тем же самым образом, как и мы познаем. Ведь природа тварей в богосозерцании доходит до одного только умопредставления, не переступая подобающих ей границ и даже невольно отказываясь постигнуть сокровенность неизреченной в словах Божественной Природы. А явившийся от Бога Отца Единородный созерцает в Себе Самом всего Родителя и, живописуя в собственной природе существо Родителя, ведает Его так, как невозможно высказать, ибо неизреченна Божественная Природа. (Свт. Кирилл Александрийский)
 
+7:30: **И искали схватить Его**. Иерусалимляне оскорбились этими словами Христа и хотели схватить Его, чтобы предать в руки властей как богохульника, приписывавшего Себе происхождение от Бога. Но никто, однако, не сделал этого, так как час страданий Христовых еще не наступил. (Лопухин А.П.)
+
 7:30: **И искали схватить Его**. Кто искал? Не народ, который не домогался начальства и не мог быть увлечен завистию, а священники. (Свт. Иоанн Златоуст)
+
+7:30: **И искали схватить Его**. В ст. 31 "искали схватить его". Кто? Иерусалимляне (ст. 25). Далее в ст. 31 речь идёт о народе: паломниках из других городов. А в ст. 32 уже фарисеи "послали служителей" схватить его. Значит здесь речь идёт о народе, а не о священниках.
 
 7:30: **because his hour had not yet come**. Shows Jesus' strong awareness of God's providential direction of the circumstances of his life; his enemies could not capture or harm him until "the hour" of his arrest, crucifixion, and death, as ordained by God. God the Father would not allow these things to happen until the earthly ministry of Jesus (God the Son) was complete. (ESV)
 
 7:30: **because his hour had not yet come**. The reason why they could not seize Him was that God's sovereign timetable and plan for Jesus would not allow it. (MacArthur)
+
+7:30: **потому что еще не пришел час Его**. Вот и отсюда наконец разве не ясным становится для каждого, что Христос отнюдь не пострадал бы, если бы не имел желания пострадать? Ведь не по насилию иудейскому, но добровольно Он восшел на крест за нас и ради нас. Он, как мы уже прежде сказали, не против воли претерпел за нас Крест, – Он Сам Себя как святую жертву принес Богу и Отцу, купив кровию Своею спасение всех. (Свт. Кирилл Александрийский)
+
+7:31: **Многие же из народа**. В противоположность иерусалимлянам (ст. 25), многие из толпы богомольцев, пришедших издалека, уверовали во Христа как в Мессию. (Лопухин А.П.)
+
+7:31: **Многие .. уверовали**. Впрочем, если и слышишь, что многие уверовали, то вера их не была вера истинная, но такая, какая свойственна простому народу, легко переменяющему свои мысли. (Блж. Феофилакт Болгарский)
 
 7:31: **When the Christ appears, will he do more signs**. Since the Messiah would be a prophet like Moses (Deut. 18:15, 18) and Moses performed many miraculous signs at the exodus (Exodus 7-11), the Messiah was expected to perform miracles as well. After witnessing Jesus' miracles, it is natural for people to wonder if he was the Messiah. (ESV)
 
@@ -3954,9 +3964,17 @@ Judas wrote the epistle that also bears his name: "Jude, a servant of Jesus Chri
 
 7:31: **Христос неужели сотворит больше знамений**. Так как начальники всячески старались доказать, что Он не Христос, то народ сказал: положим, что Он не Христос; но разве Христос будет лучше Его? Люди простые и грубые, – я всегда это говорю, – привлекаются не учением или проповедию, а чудесами. (Свт. Иоанн Златоуст)
 
+7:31: **когда придет Христос, неужели сотворит больше знамений**. Хотя они и уверовали, но вера их не была здравая. Сказав: Христос же егда приидет, – они показали, что не твердо веровали в то, что Он Христос, а с сомнением, как простой и легкомысленный народ.
+Или же они говорили предположительно: положим, что потом придет другой Христос, как говорят начальники народные; но когда придет Тот Христос, о Котором они говорят, то неужели Он будет сильнее? Нет.
+(Евфимий Зигабен)
+
+7:32: **Услышали фарисеи**. Фарисеи же, конечно, со вниманием прислушивались к словам народа о Христе, и постарались вместе с первосвященниками положить конец народному волнению, послав служителей cинедриона захватить Христа. (Лопухин А.П.)
+
 7:32: **chief priests and Pharisees**. Most of the chief priests were Sadducees, who were political and religious opponents of the Pharisees. John repeatedly links these two groups in his Gospel to emphasize that their cooperation stemmed from their mutual hatred of Jesus.  Both were alarmed at the faith of those indicated in verse 31 and, in order to avoid any veneration of Jesus as Messiah, attempted unsuccessfully to arrest Him (v. 30) (MacArthur)
 
 7:32: **chief priests and Pharisees sent officers to arrest him**. The Sanhedrin deployed officers (or temple police) to arrest Jesus. The temple police were drawn from the Levites and were charged with maintaining order in the temple precincts. The order to arrest Jesus implies that they planned to allege criminal activity on his part. (ESV)
+
+7:32: **послали фарисеи и первосвященники**. Фарисеи вместе с первосвященниками входили в лице своих представителей в состав cинедриона. (Лопухин А.П.)
 
 7:32: **officers**. Temple guards: the Levites in charge of maintaining order in the temple environs. (MacArthur)
 
