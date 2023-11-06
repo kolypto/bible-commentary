@@ -4082,6 +4082,8 @@ The water-pouring rite was also associated within Jewish tradition as a foreshad
 
 7:40: **the Prophet**. The Prophet is the figure referenced in Deut. 18:15-18. This "Prophet" and the Messiah were held to be different persons by some in first-century Judaism. Jesus is both. (ESV)
 
+7:40: **разве из Галилеи Христос придет?**. Они говорили это не в тем, чтобы узнать истину — но чтобы только опровергнуть мнение о Христе. А Нафанаил говорил это потому, что любил истину. Итак, поелику они имели одну только цель – опровергнуть то, что Он есть Христос, то Он ничего и не открыл им. (Свт. Иоанн Златоуст)
+
 7:41: **Is the Christ to come from Galilee?**. They did not even bother to investigate His true birthplace, showing their lack of interest in messianic credentials. Jesus was not born in Galilee. (MacArthur)
 
 7:42: **the Christ comes from .. Bethlehem**. Is clearly predicted as the Messiah's birthplace in Mic. 5:2: "But you, O Bethlehem Ephrathah, .. from you shall come forth for me one who is to be ruler in Israel, whose coming forth is from of old, from ancient days.". The irony is apparent, for they did not realize that Bethlehem was in fact Jesus' birthplace. (ESV)
