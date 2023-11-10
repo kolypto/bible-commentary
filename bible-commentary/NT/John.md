@@ -4173,24 +4173,59 @@ The water-pouring rite was also associated within Jewish tradition as a foreshad
 
 ## 8
 
-8:xx: Следует заметить, что дальнейших слов (до 8:12) в более точных списках или вовсе нет, или же они заключены между тире. Поэтому они, кажется, неправильно приписаны и прибавлены, доказательством чего служит то, что Златоуст совершенно не упоминает о них. Нам следует, однако, попытаться изъяснить и эти слова, так как не лишено пользы и то, что содержится в этом отделе, как, например, глава о женщине, взятой в прелюбодеянии. Евфимий Зигабен, 1050-1120. (Евфимий Зигабен)
+8:1: **на гору Елеонскую**. Христос удалился, по Своему обычаю (ср. Лк.21:37), на гору Елеонскую в дом кого-либо из Своих друзей, чтобы там переночевать. Утром же на другой день Он снова явился в храм и, сидя, учил там народ. (Лопухин А.П.)
 
-8:1: St. Augustine (354-430) knew the passage, and claimed that some men had removed the passage due to a concern that it would be used by their wives as a pretense to commit adultery: "Certain persons of little faith, or rather enemies of the true faith, fearing, I suppose, lest their wives should be given impunity in sinning, removed from their manuscripts the Lord's act of forgiveness toward the adulteress, as if he who had said, Sin no more, had granted permission to sin." ([Wikipedia](https://www.google.com/url?q=https://en.wikipedia.org/wiki/Jesus_and_the_woman_taken_in_adultery))
+8:2: **весь народ шел к Нему**. К Нему шли те, которые говорили "Сей есть воистину пророк", и тех которые говорили "Сей есть Христос". А иудеи, негодуя на это, смотри, как лукавят. (Евфимий Зигабен)
+
+### The Woman Caught in Adultery
+
+8:3..: Следует заметить, что дальнейших слов (до 8:12) в более точных списках или вовсе нет, или же они заключены между тире. Поэтому они, кажется, неправильно приписаны и прибавлены, доказательством чего служит то, что Златоуст совершенно не упоминает о них. Нам следует, однако, попытаться изъяснить и эти слова, так как не лишено пользы и то, что содержится в этом отделе, как, например, глава о женщине, взятой в прелюбодеянии. Евфимий Зигабен, 1050-1120. (Евфимий Зигабен)
+
+8:3..:  Significant early versions exclude it. No Greek church father comments on the passage until the twelfth century. The vocabulary and style of the section also are different from the rest of the Gospel, and the section interrupts the sequence of verse 52 with 8:12ff. Many, however, do think that it has all the earmarks of historical veracity, perhaps being a piece of oral tradition that circulated in parts of the Western church, so that a few comments are in order. (MacArthur)
+
+8:3..: St. Augustine (354-430) knew the passage, and claimed that some men had removed the passage due to a concern that it would be used by their wives as a pretense to commit adultery: "Certain persons of little faith, or rather enemies of the true faith, fearing, I suppose, lest their wives should be given impunity in sinning, removed from their manuscripts the Lord's act of forgiveness toward the adulteress, as if he who had said, Sin no more, had granted permission to sin." ([Wikipedia](https://en.wikipedia.org/wiki/Jesus_and_the_woman_taken_in_adultery))
+
+8:6: **testing Him .. to accuse Him**. If Jesus rejected the Law of Moses (Lev. 20:10; Deut. 22:22), His credibility would be gone. If He held to Mosaic law, His reputation for compassion and forgiveness would have been questioned. (MacArthur)
+
+8:7: **he who is without sin**. This directly refers to Dt 13:9: "Your hand shall be first against him to put him to death, and afterward the hand of all the people"; 17:7: "The hand of the witnesses shall be first against him to put him to death, and afterward the hand of all the people", where the witnesses of a crime are to start the execution. Only those who were not guilty of the same sin could participate. (MacArthur) // However, the passages in Dt refer to someone who worshipped other gods, not adulterers.
+
+8:8: **once more he bent down and wrote on the ground**. This seems to have been a delaying device, giving them time to think. (MacArthur)
 
 8:9: Jesus shamed the woman’s accusers into inaction, but they did not become merciful. (MacArthur)
 
-8:33: Israel’s history was one of repeated conquest and oppression — by Egypt, Assyria, the Medes and Persians, the Greeks, and, finally at that very time, by Rome. Apparently, pride would not allow those Pharisees to even admin it existed. (MacArthur)
-
-?:?: Compared to the synoptic gospels, it may seem that John is trying to make himself a more distinguished disciple than he actually were: he constantly promotes himself a step further than Peter. The episodes that support this point of view: John is at Jesus’ chest and passes Peter’s question (), John lets Peter into the yard (), John outruns Peter (). But John is not inserting himself into a story. He was one of the three apostles that formed Jesus’ inner cirle: Peter, James, and John (Among many other examples: Mk 5:37: Jesus allowed no one else in; Mk 14:33: Jesus took the three to Gethsemane; Mt 17:1 Jesus takes the three to His transfiguration). When Paul visited the apostles in Jerusalem, the three were pillars (Gal 2:9). So, John is only elaborating the facts that, for some reason, were not mentioned in synoptic gospels — of which he, beyond doubt, was informed.
-
+8:11: **go and sin no more**. Better translated, “Leave your life of sin”. (MacArthur)
 
 🔴 Optina STOP
 🔴 ESV STOP
 🔴 MacArthur STOP
 
+### I Am the Light of the World
+
+> Так как они постоянно укоряли Христа Галилеею, а принимали Его за одного из пророков, то Он показывает им, что Он не из числа пророков. Я, говорит, Свет миру, свет в собственном смысле, свет не пророческий, то есть неполный и слабый, но свет истинный, не ограничивающийся пределами Галилеи или Палестины, но Свет миру и Владыка всех людей; Я − Тот, о Ком пророк сказал: Я положил Тебя светом язычников (Ис. 42, 6). Сим изречением можешь пользоваться и против Нестория. Ибо не сказал Господь: во Мне свет миру, но: Я свет миру. Кто видим был, как Человек, Тот же Сам был и Сын Божий, и свет миру, а не так, как пустословил Несторий, будто Сын Божий обитал в простом человеке. Нет! Сын Марии и Божий, как сказано, был едино. − «Кто, − говорит, - последует за Мною, тот не будет ходить во тьме», то есть не останется в заблуждении, но освободится от заблуждения и тьмы. Сим вместе одобряет Никодима и служителей, как прямо действующих и потому во свете находящихся, и фарисеям намекает, что они находятся в заблуждении и тьме и втайне строят ковы. (Блж. Феофилакт Болгарский)
+
+### The Truth Will Set You Free
+
+
+
+8:33: Israel’s history was one of repeated conquest and oppression — by Egypt, Assyria, the Medes and Persians, the Greeks, and, finally at that very time, by Rome. Apparently, pride would not allow those Pharisees to even admin it existed. (MacArthur)
+
+### You Are of Your Father the Devil
+
+### Before Abraham Was, I Am
+
+?:?: Compared to the synoptic gospels, it may seem that John is trying to make himself a more distinguished disciple than he actually were: he constantly promotes himself a step further than Peter. The episodes that support this point of view: John is at Jesus’ chest and passes Peter’s question (), John lets Peter into the yard (), John outruns Peter (). But John is not inserting himself into a story. He was one of the three apostles that formed Jesus’ inner cirle: Peter, James, and John (Among many other examples: Mk 5:37: Jesus allowed no one else in; Mk 14:33: Jesus took the three to Gethsemane; Mt 17:1 Jesus takes the three to His transfiguration). When Paul visited the apostles in Jerusalem, the three were pillars (Gal 2:9). So, John is only elaborating the facts that, for some reason, were not mentioned in synoptic gospels — of which he, beyond doubt, was informed.
+
 
 ## 9
+
+### Jesus Heals a Man Born Blind
+
 ## 10
+
+### I Am the Good Shepherd
+### I and the Father Are One
+
+
 ## 11
 ## 12
 
