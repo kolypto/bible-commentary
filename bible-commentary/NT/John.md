@@ -4225,20 +4225,45 @@ The water-pouring rite was also associated within Jewish tradition as a foreshad
 
 ### I Am the Light of the World
 
+8:12: **I am the light of the world**. This is the second "I AM" statement (see Jn 6:35: "I am the bread of life; whoever comes to me shall not hunger, and whoever believes in me shall never thirst.").
+Jesus' metaphor of "light" is steeped in OT allusions: the pillar of fire giving light to the Israelites (Ex 13:21-22), the light of the seven lamps in the tabernacle (Ex 25:37), "the Lord is my light and my salvation; whom shall I fear?" (Ps 27:1); "Your word is a lamp to my feet" (Ps 119:105); "the commandment is a lamp and the teaching a light" (Prov 6:23).
+The OT indicates that the coming age of Messiah would be a time when the Lord would be a light for His people and for the whole earth: "the people who walked in the darkness have seen a great light" (Is 9:2); "the Lord will be your everlasting light" (Isa 60:19-22); "I will give you as a covenant for the people, a light for the nations" (Isa 42:6); "I will make you as a light for the nations, that my salvation may reach to the end of the earth" (Isa 49:6).
+(MacArthur)
+
 8:12: **I am the light of the world**. Jesus fulfills OT promises of the coming of the "light" of salvation and the "light" of God (Is 9:2: "The people who walk in darkness will see a great light. For those who live in a land of deep darkness, a light will shine.
 I will take you by the hand and guard you, and I will give you to my people, Israel, as a symbol of my covenant with them. And you will be a light to guide the nations"). (ESV)
 
-8:12: **Я — свет миру; кто последует за Мною, тот не будет ходить во тьме, но будет иметь свет жизни**. Вижу здесь обещание: каждый из вас, если захочет, не будет ходить во тьме: Я не отрину никого из вас, кто пожелает последовать за Мною — и у него обязательно будет свет жизни.
-
 8:12: **Я — свет миру**. Так как они постоянно укоряли Христа Галилеею, а принимали Его за одного из пророков, то Он показывает им, что Он не из числа пророков. "Я", говорит, "Свет миру": не "во Мне свет миру", но: "Я свет миру": свет в собственном смысле, свет не пророческий, то есть неполный и слабый — но свет истинный, не ограничивающийся пределами Галилеи или Палестины, но Свет миру и Владыка всех людей; Я − Тот, о Ком пророк сказал: Я положил Тебя светом язычников (Ис 42:6). (Блж. Феофилакт Болгарский)
 
+8:12: **whoever follows Me**. The word “follows” conveys the idea of someone who gives himself completely to the person followed. No halfhearted followers exist in Jesus’ mind. (MacArthur)
+
+8:12: **whoever follows Me**. A veiled reference exists here to the Jews, following the pillar of cloud and fire that led them during the Exodus (Ex 13:21). (MacArthur)
+
+8:12: **Я — свет миру; кто последует за Мною, тот не будет ходить во тьме, но будет иметь свет жизни**. Вижу здесь обещание: каждый из вас, если захочет, не будет ходить во тьме: Я не отрину никого из вас, кто пожелает последовать за Мною — и у него обязательно будет свет жизни.
+
 8:13: **witness about yourself; your testimony is not true**. The Pharisees' challenge continues the dispute of 5:31-47, where Jesus said that "someome else is testifying about me": John (with the words), the Father (with the deeds), the Scriptures (with the prophecies). (ESV)
+
+8:13: **witness about yourself; your testimony is not true**.  The Jews mockingly brought up Jesus’ own words from 5:31. However, Jesus was not alone in His witness that pointed to Him as Messiah, for many had already testified concerning this truth. (MacArthur)
+
+8:14..: Three reasons why Jesus' witness was true:
+1. Jesus knew His origin and destiny while the Jews were ignorant even of basic spiritual truths, making their judgment limited and superficial;
+2. the intimate union of the Son with the Father guaranteed the truth of the Son’s witness;
+3. the Father and Son witnessed harmoniously together regarding the identity of the Son.
+(MacArthur)
 
 8:15: **You judge according to the flesh**. That is, according to the natural understanding and human standards of this world. (ESV)
 
 8:15: **I judge no one**. He means that during his earthly ministry he did not come as judge of the world but as its Savior. However, His coming does itself provide a basis for division and thus judgment (3:19: "but people loved the darkness more than light"). In yet another sense, where "judge" means "rightly evaluate," Jesus does judge events and people throughout his earthly ministry. (ESV)
 
 🔴 8:20]
+
+8:21: **you will die in your sin**. Jesus reveals the consequence of the rejection of Him as Messiah: spiritual death. Four ways that ensure someone will die in their sins:
+1. Being self-righteous (vv. 21-22)
+2. Being earthbound (vv. 23-24: "you are from below, you are of this world")
+3. Being unbelieving (vv. 24: "unless you believe, you will die")
+4. Being willfully ignorant (vv. 25-29: "I have been telling you")
+ The Jews who rejected Jesus displayed all four of these characteristics.
+(MacArthur)
 
 ### The Truth Will Set You Free
 
