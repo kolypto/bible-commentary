@@ -4303,9 +4303,9 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
 
 8:18: **и свидетельствует о Мне Отец**. Ведь Он, говорит, сочудотворит со Мною, как видите, и содействует. (Свт. Кирилл Александрийский)
 
-🔴 8:20]
-
 8:19: **вы не знаете ни Меня, ни Отца Моего**. Так как они, зная, говорили как незнающие и как бы искушали Его, то Он и не удостаивает их ответа. (Свт. Иоанн Златоуст)
+
+8:21: **I am going away, and you will seek me**. Jesus repeats His message of 7:33-34 ("I will be with you a little longer, and then I am going to him who sent me. You will seek me and you will not find me. Where I am you cannot come"), but with more ominous overtones regarding the consequences of rejecting Him. (MacArthur)
 
 8:21: **you will die in your sin**. Jesus reveals the consequence of the rejection of Him as Messiah: spiritual death. Four ways that ensure someone will die in their sins:
 1. Being self-righteous (vv. 21-22)
@@ -4315,6 +4315,16 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
  The Jews who rejected Jesus displayed all four of these characteristics.
 (MacArthur)
 
+8:21: **Where I am going**. Refers to heaven, in the presence of the Father. (ESV)
+
+8:22: **Will he kill himself**. Jewish tradition condemned suicide as a particularly heinous sin that resulted in permanent banishment to the worst part of Hades. The Jews spoke either in confusion, or perhaps in mockery of Christ. (MacArthur)
+
+8:23: **You are from below**. "From below" means belonging to this natural world; from above means from heaven, from God the Father, and also following his will and speaking his truth. (ESV)
+
+8:24: **I am he**. May mean "I am the Messiah". May also hint at "I AM". (ESV)
+
+
+🔴 8:19-30]
 ### The Truth Will Set You Free
 
 8:31:
