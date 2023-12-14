@@ -4472,16 +4472,19 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
 
 8:30: **Kогда Он говорил это, многие уверовали в Него**. Когда Иисус Христос переходил к уничиженным речам, тогда веровали; но веровали не так, как должно, а веровали только Его уничиженным речам, не принимая возвышенных. Зная это, Иисус Христос старается исправить их. (Евфимий Зигабен)
 
-🔴 8:19-30]
 ### The Truth Will Set You Free
 
 8:31: **если пребудете в слове Моем**. Не как те, которые "отошли от Него и уже не ходили с Ним" (Ин 6:66) — но если пребудете в слове Моём, т.е. в Моём учении, то тогда воистину ученики Мои будете, а теперь вы ещё не ученики. (Евфимий Зигабен)
 
 8:31: **если пребудете в слове Моем, то вы истинно Мои ученики**. "Многие уверовали в Него". И как-нибудь заявили об этом. К этой группе иудеев Господь обращается с увещанием стать на самом деле Его учениками. Недостаточно, если они будут выражать только согласие с Его учением, нужно всю свою жизнь и мышление направить по указанному Христом пути. Нужно, чтобы они познали истину, возвещаемую Христом, во всем ее объеме, тогда они действительно будут свободны. (Лопухин А.П.)
 
+8:31: **If you abide in my word**. To abide in Jesus' word means to continue believing what Jesus has said and walking in obedience to him. (ESV)
+
 8:31: **если пребудете в слове Моем, то вы истинно Мои ученики**. Проникая взором в сердца людей, Иисус видит, что вера новых верующих еще не тверда, легко может поколебаться при встрече с бедами жизни. Достойный ученик, говорит, верен учению учителя в самые тяжкие минуты жизни. Он пребывает в слове мыслями, чувствами, желаниями; он делами доказывает, что слово пребывает в сердце его. Иначе вера его была бы ростком, не имеющим надежного корня. (Свт. Филарет Черниговский (Гумилевский))
 
 8:31: **если пребудете в слове Моем, то вы истинно Мои ученики**. Требует от уверовавших твердости, постоянства и готовности держаться однажды избранного ими блага. В этом состояла вера в Него. Колебание же без пользя (Иак 1:8: «муж двоедушный непостоянен во всех путях своих»). (Свт. Кирилл Александрийский)
+
+8:32: **and you will know the truth, and the truth will set you free**. This verse is frequently quoted out of context, but the connection with v. 31 shows that Jesus is only talking about one way to know the truth, and that is by continuing to believe and obey his word. (ESV)
 
 8:32: **позна́ете истину, и истина сделает вас свободными**. Христос говорит здесь о свободе от гибельного влияния, которое оказывали на иудеев раввины-фарисеи. Такая свобода могла быть приобретена только через твердое и самостоятельное усвоение и через опытное исследование возвещенной Христом истины. (Лопухин А.П.)
 
@@ -4515,16 +4518,25 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
 
 8:33: **не были рабами никому никогда**. Но почему Христос не обличил их? Ведь они много раз бывали в рабстве: и у египтян, и у вавилонян, и у многих других. Потому, что Он говорил не для состязания с ними, но для их спасения и пользы: вот о чем Он заботился. Он мог бы, конечно, сказать о четырехстах лет рабства; мог бы сказать о семидесяти; мог бы сказать, что они никогда не переставали быть рабами. Но Он старался доказать не то, что они были рабами людей, но что они – рабы греха. А это рабство и есть самое тяжкое; от него может избавить один только Бог, потому что никто другой не может отпускать грехов, что они и сами признавали. Далее Иисус говорит: "всякий, делающий грех, есть раб греха" (ст. 34), показывая, что Он говорит от этой свободе. (Свт. Иоанн Златоуст)
 
+8:34: **everyone who practices sin is a slave to sin**. A slave to sin: unable to escape from sinful patterns of conduct without the help of Jesus to set a person free. (ESV)
+
+8:37: **my word finds no place in you**. It was not the persuasiveness or power of Jesus' words that determined how people responded to him, but the spiritual condition of their own hearts (see v. 43: "you cannot bear to hear My word"). (ESV)
+
 ### You Are of Your Father the Devil
 
 8:39:
+
+8:39: **If you were Abraham’s children, you would be doing the works Abraham did**. This implies that Abraham's true children are only those who believe in Jesus (Rom 2:29: "a true Jew is one whose heart is right with God"). What Abraham did most prominently was believe God. Similarly, the Jews who are speaking here should believe in Jesus, for he comes from God and is speaking the very words of God. (ESV)
 
 ### Before Abraham Was, I Am
 
 8:48:
 
-?:?: Compared to the synoptic gospels, it may seem that John is trying to make himself a more distinguished disciple than he actually were: he constantly promotes himself a step further than Peter. The episodes that support this point of view: John is at Jesus’ chest and passes Peter’s question (), John lets Peter into the yard (), John outruns Peter (). But John is not inserting himself into a story. He was one of the three apostles that formed Jesus’ inner cirle: Peter, James, and John (Among many other examples: Mk 5:37: Jesus allowed no one else in; Mk 14:33: Jesus took the three to Gethsemane; Mt 17:1 Jesus takes the three to His transfiguration). When Paul visited the apostles in Jerusalem, the three were pillars (Gal 2:9). So, John is only elaborating the facts that, for some reason, were not mentioned in synoptic gospels — of which he, beyond doubt, was informed.
+8:58: **before Abraham was, I am**. f there had been any uncertainty about Jesus' identity in other passages where he said, "I am", there was no confusion here. Jesus doesn't say "I was", i.e. more than 2000 years old; Jesus says "I am", thus claiming a kind of transcendence over time that could only be true of God.
+Jesus is thus claiming not only to be eternal but also to be the God who appeared to Moses at the burning bush. His Jewish opponents understood his meaning immediately and they "picked up stones" to stone him to death for blasphemy.
+(ESV)
 
+8:59: **they picked up stones**. Stoning was the prescribed punishment for blasphemy (Lev 24:16). However, this punishment was supposed to be the result of righteous judgment, not mob violence. (ESV)
 
 🔴 Optina STOP
 🔴 ESV STOP
@@ -4544,6 +4556,8 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
 ## 12
 
 12:6: “**because he was a thief**.”  He didn’t become one here, he always was one.  He was stealing from the thing the whole time, all three years.  He was a thief, and he had the bag, and watch this, and the Greek says: “He pilfered what was put in it.”  Can you imagine that kind of a guy?  Here’s a poor band of people going around doing good, and he was stealing out of their resources, all the while.  He had absolutely no love for them, no affection for them.  The fact that he didn’t know any of them and was from the south, played into the hands of his secrecy very well, they knew nothing about him.  And all the while he was stealing out of the bag. (MacArthur)
+
+?:?: Compared to the synoptic gospels, it may seem that John is trying to make himself a more distinguished disciple than he actually were: he constantly promotes himself a step further than Peter. The episodes that support this point of view: John is at Jesus’ chest and passes Peter’s question (), John lets Peter into the yard (), John outruns Peter (). But John is not inserting himself into a story. He was one of the three apostles that formed Jesus’ inner cirle: Peter, James, and John (Among many other examples: Mk 5:37: Jesus allowed no one else in; Mk 14:33: Jesus took the three to Gethsemane; Mt 17:1 Jesus takes the three to His transfiguration). When Paul visited the apostles in Jerusalem, the three were pillars (Gal 2:9). So, John is only elaborating the facts that, for some reason, were not mentioned in synoptic gospels — of which he, beyond doubt, was informed.
 
 ## 13
 
