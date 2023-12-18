@@ -4484,7 +4484,11 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
 
 8:31: **если пребудете в слове Моем, то вы истинно Мои ученики**. Требует от уверовавших твердости, постоянства и готовности держаться однажды избранного ими блага. В этом состояла вера в Него. Колебание же без пользы (Иак 1:8: «муж двоедушный непостоянен во всех путях своих»). (Свт. Кирилл Александрийский)
 
+8:31: ⭐ **Jews believed .. if you abide .. you are my disciples**. Two steps toward true discipleship: belief in Jesus Christ as Messiah and Son of God, and abiding in His word. Perseverance in obedience to Scripture is the fruit or evidence of genuine faith (Mt 19:20: "Go therefore and make disciples of all nations, baptizing them .., teaching them to observe all that I have commanded you"). A genuine believer holds fast, obeys, and practices Jesus' teaching: *abides* in it habitually. (MacArthur)
+
 8:32: **and you will know the truth, and the truth will set you free**. This verse is frequently quoted out of context, but the connection with v. 31 shows that Jesus is only talking about one way to know the truth, and that is by continuing to believe and obey his word. (ESV)
+
+8:32: **truth**. Not only the facts surrounding Jesus as the Messiah, but also to the teaching that He brought. A genuinely saved and obedient follower of the Lord Jesus will know divine truth, which comes not by mere intellectual assent, but by saving commmitment. (MacArthur)
 
 8:32: **позна́ете истину, и истина сделает вас свободными**. Христос говорит здесь о свободе от гибельного влияния, которое оказывали на иудеев раввины-фарисеи. Такая свобода могла быть приобретена только через твердое и самостоятельное усвоение и через опытное исследование возвещенной Христом истины. (Лопухин А.П.)
 
@@ -4518,25 +4522,48 @@ I will take you by the hand and guard you, and I will give you to my people, Isr
 
 8:33: **не были рабами никому никогда**. Но почему Христос не обличил их? Ведь они много раз бывали в рабстве: и у египтян, и у вавилонян, и у многих других. Потому, что Он говорил не для состязания с ними, но для их спасения и пользы: вот о чем Он заботился. Он мог бы, конечно, сказать о четырехстах лет рабства; мог бы сказать о семидесяти; мог бы сказать, что они никогда не переставали быть рабами. Но Он старался доказать не то, что они были рабами людей, но что они – рабы греха. А это рабство и есть самое тяжкое; от него может избавить один только Бог, потому что никто другой не может отпускать грехов, что они и сами признавали. Далее Иисус говорит: "всякий, делающий грех, есть раб греха" (ст. 34), показывая, что Он говорит от этой свободе. (Свт. Иоанн Златоуст)
 
+8:34: **everyone who practices sin**. Practices habitually. (MacArthur)
+
 8:34: **everyone who practices sin is a slave to sin**. A slave to sin: unable to escape from sinful patterns of conduct without the help of Jesus to set a person free. (ESV)
 
 8:37: **my word finds no place in you**. It was not the persuasiveness or power of Jesus' words that determined how people responded to him, but the spiritual condition of their own hearts (see v. 43: "you cannot bear to hear My word"). (ESV)
 
 ### You Are of Your Father the Devil
 
-8:39:
-
 8:39: **If you were Abraham’s children, you would be doing the works Abraham did**. This implies that Abraham's true children are only those who believe in Jesus (Rom 2:29: "a true Jew is one whose heart is right with God"). What Abraham did most prominently was believe God. Similarly, the Jews who are speaking here should believe in Jesus, for he comes from God and is speaking the very words of God. (ESV)
+
+8:39: **If you were Abraham’s children, you would be doing the works Abraham did**. Just as children inherit genetic traits from their parents, so also those who are truly Abraham's offspring will act like Abraham, who lived a life of faith and obedience. (MacArthur)
+
+8:41: **We were not born of fornication**.  The Jews may well have been referring to the controversy surrounding Jesus’ birth. The Jews knew the story about Mary’s betrothal and that Joseph was not Jesus’ real father. (MacArthur)
+
+8:42: **If God were your Father, you would love me**. The  unbelief of the Jews toward Jesus demonstrated that God was not their Father spiritually. Since God is love, those who love His Son also demonstrate the same nature. (MacArthur)
+
+8:42: **If God were your Father, you would love me**. "My sheep hear my voice", said Jesus: people whose heart is inclined to God will spiritually recognize Him. Possibly this is what happened to the officers: "No one ever spoke to this man!", they said in Jn 7:46, because their hearts reacted to Him. They are His sheep, at least potentially.
+So that's a theme: people who love God recognize Him supernaturally.
+
+8:44: **You are of your father the devil, and your will is to do your father’s desires**. Sonship is predicated on conduct. Since the Jews exhibited the patterns of satan in their hostility and failure to believe, their paternity was the exact opposite of their claims. (MacArthur)
+
+8:44: **He was a murderer from the beginning**. Referring to the fall when satan tempted Adam and Eve and successfully killed their spiritual life. (MacArthur)
+
+8:46: **Which one of you convicts me of sin?**. Only a perfectly holy One who has the closest and most intimate communion with the Father could speak such words. (MacArthur)
+
+8:46: **If I tell the truth, why do you not believe me?**. Jesus is conscious of the purity of His whole life. If it is so, they why won't you listen?
 
 ### Before Abraham Was, I Am
 
-8:48:
+8:48: **you are a Samaritan**. Since the Jews couldn't attack Jesus' personal life and conduct, they tried an *ad hominem* attack (directed against a person rather than the position they are maintaining). (MacArthur)
+
+8:48: **you are a Samaritan**. Probably because the Samaritans, like Jesus, questioned the Jews' exclusive right to be called Abraham's children. (MacArthur)
+
+8:51: **if anyone keeps my word, he will never see death**. Physical death cannot extinguish such life. (MacArthur)
 
 8:58: **before Abraham was, I am**. f there had been any uncertainty about Jesus' identity in other passages where he said, "I am", there was no confusion here. Jesus doesn't say "I was", i.e. more than 2000 years old; Jesus says "I am", thus claiming a kind of transcendence over time that could only be true of God.
 Jesus is thus claiming not only to be eternal but also to be the God who appeared to Moses at the burning bush. His Jewish opponents understood his meaning immediately and they "picked up stones" to stone him to death for blasphemy.
 (ESV)
 
 8:59: **they picked up stones**. Stoning was the prescribed punishment for blasphemy (Lev 24:16). However, this punishment was supposed to be the result of righteous judgment, not mob violence. (ESV)
+
+8:59: **Jesus hid himself**. Jesus repeatedly escaped arrest because His hour had not yet come. This verse most likely indicates escape by miraculous means. (MacArthur)
 
 🔴 Optina STOP
 🔴 ESV STOP
