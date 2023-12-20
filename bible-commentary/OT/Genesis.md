@@ -10770,6 +10770,8 @@ The murder they planned is cold and premeditated. It's not momentary rage upon s
 37:35: **утешить его**. Когда братья увидели горе отца... они стали жить с чувством вины. Представляете, каково это, долгие годы жить с чувством вины, которое никак не исправить, и о котором даже не рассказать?
 Потому когда стало ясно, что Иосиф жив, они испытали настоящее освобождение. (МЦЦ)
 
+##### Вопросы:
+
 
 
 
@@ -10866,6 +10868,8 @@ The story turns around: Judah has to acquit the woman and accept his own failure
 38:29: **Perez**.  Later, in ch. 49, kingship will be associated with Judah’s descendants, and biblical history reveals that from Perez comes the Davidic dynasty (see Ruth 4:18–22). (ESV)
 
 38:29: **Фарес**. "Фарес" разорвал оболочку последа, за что получил имя «разделение». Поэтому и фарисеи, которые якобы в силу своей праведности отделяли себя от народа, назывались «отделённые». (Блж. Иероним Стридонский)
+
+##### Вопросы:
 
 
 
@@ -10968,6 +10972,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 39:23: **Господь давал успех**. Он среди самых скорбей не имел никакого чувства горести; а благопромыслительная премудрость Божия изменила все неприятное (в приятное). Как перл, хотя бы брошен был в тину, показывает свою красоту, так и добродетель, куда бы ты ее ни свергнул, проявляет свою силу – и в рабстве, и в темнице, и в бедствии, и в счастии. (Свт. Иоанн Златоуст)
 
+##### Вопросы:
+
 
 
 
@@ -11024,6 +11030,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 40:20: **Pharaoh’s birthday** may refer to his actual birthday or to the anniversary of his accession, when amnesties were more often granted. (ESV)
 
 40:23: **не вспомнил .. об Иосифе**. Талмудисты в этом обстоятельстве видели божественное наказание Иосифу за его грех человеконадеяния, вместо надежды на одного Бога, и ссылались при этом на Пс. 39:5 ("Блажен муж, ему же есть имя Господне упование его"). Но подлинный высший прагматизм истории Иосифа, бесспорно, лучше понимает святой Иоанн Златоуст, говоря: «Иосифу нужно было (2 года) ожидать благоприятного времени, чтобы выйти из темницы со славой. (Лопухин А.П.)
+
+##### Вопросы:
 
 
 
@@ -11132,6 +11140,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 41:54: **Во всей земле Египетской был хлеб.** Иосиф наперед устроил так, что, когда должен был наступить сильный голод, египтяне не чувствовали нужды. (Свт. Иоанн Златоуст)
 
 41:56: **стал продавать**. Он предпочел продавать хлeб, а не раздавать его даром тем, кто нуждался, потому что, раздарив его небольшому числу, он лишил бы хлeба весьма многих. Он держался той щедрости, которая обогащает всех. Если бы он раздал даром, то поля могли бы оставаться необрабатываемыми, так как пользующийся чужим (обычно) не радит о своем. (Свт. Амвросий Медиоланский)
+
+##### Вопросы:
 
 
 
@@ -11256,6 +11266,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 42:38: **He is the only one left**. That's a bad thing to tell to your children who have been envious their whole life.
 
+##### Вопросы:
+
 
 
 
@@ -11319,6 +11331,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 43:34: **И пили**. Отсюда — попутно — узнаем, что евреи патриархального периода не гнушались общением пищи с чужеземцами, как начали гнушаться в период подзаконный. (Лопухин А.П.)
 
+##### Вопросы:
+
 
 
 
@@ -11364,6 +11378,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 44:33: **Let your servant remain instead of the boy**. The selfless attitude of Judah stands in sharp contrast to what he previously displayed when arguing that Joseph should be sold into slavery. (ESV)
 
 44:44: **Итак, пусть я раб твой**. Эти слова тронули Иосифа и достаточно уже показали ему и почтение братьев его к отцу и любовь к брату. (Свт. Иоанн Златоуст)
+
+##### Вопросы:
 
 
 
@@ -11448,6 +11464,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 45:27: **the spirit of Jacob revived. And Israel**. His spirit was so revived, that he is called Israel again.
 
+##### Вопросы:
+
 
 
 
@@ -11503,7 +11521,7 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 46:15: **thirty three**. The numbers do no add up, and there are difficulties whether *Dinah* and *Ohad* should be removed (since Ohad does not appear in the parallel lists of Num. 26:12-13 and 1 Chron 4:24, and Dinah is the only daughter mentioned). These observations indicate that the 33 mentioned is not intended as a total of the list just given. (ESV)
 
-45:21: **Sons of Benjamin**. Some of the people mentioned here as sons are actually his grandsons (see Num 26:38-40: Ard and Naaman), who could have only been after their migration to Egypt, not before. This means that this genealogy is not supposed to add up to 70 or be chronologically correct: the author just used the opportunity to list all their names. 
+46:21: **Sons of Benjamin**. Some of the people mentioned here as sons are actually his grandsons (see Num 26:38-40: Ard and Naaman), who could have only been after their migration to Egypt, not before. This means that this genealogy is not supposed to add up to 70 or be chronologically correct: the author just used the opportunity to list all their names.
 
 
 
@@ -11542,6 +11560,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 46:34: **Мерзость для Египтян всякий пастух овец**. В Египте, кроме немногих мест, закалывать овец не позволялось, как свидетельствуют Геродот, Страбон, Плутарх, и Диодор. (Свт. Филарет (Дроздов))
 
+
+##### Вопросы:
 
 
 
@@ -11652,6 +11672,8 @@ Again, Joseph displays the same character that the new Jacob had: he worked for 
 
 47:31: **постели**. В 48 главе говорится, что Иаков прикован был к смертному одру (Лопухин А.П.)
 
+##### Вопросы:
+
 
 
 
@@ -11742,6 +11764,8 @@ See 1 Chr 5:1: "Reuben .. his birthright was given to the sons of Joseph the son
 48:22: **мечом моим**. Сихемскую резню устроил не он. Более того, из той земли они немедленно ушли. Она теперь не может принадлежать ни ему, ни его сыновьям. И Сихемская резня была не с Эморреями. Значит, речь идёт о каком-то другом участке.
 
 48:22: **участок**.  По–еврейски שחם шехем. Семьдесят толковников думали, что это Сихем. В самом деле, речь идет о земле, принадлежавшей Иакову недалеко от Сихема. (Свт. Филарет (Дроздов))
+
+##### Вопросы:
 
 
 
@@ -11976,6 +12000,9 @@ Dan is the first child mentioned born of a concubine.
 
 49:33: **и положил ноги свои на постель, и скончался**. Посмотри и на кончину праведника, как она была чудесна. Сделав распоряжение относительно своих детей, он положил ноги свои на одр, как бы с удовольствием встречал свою смерть. (Свт. Иоанн Златоуст)
 
+##### Вопросы:
+
+
 ## 50
 
 50:2: **embalm**. To delay the normal process of putrefaction and so enable Jacob’s corpse to be transported to Hebron. (ESV)
@@ -12057,3 +12084,5 @@ Dan is the first child mentioned born of a concubine.
 50:26: **умер Иосиф**. С его смертью, евреи лишились могущественной опоры, что впоследствии привело к горькой жизни в рабстве. (Лопухин А.П.)
 
 50:26: **ста десяти лет**. Семнадцати лет он прибыл в Египет; тридцати лет явился к фараону и истолковал сны; в продолжение восьмидесяти лет держал власть над всем Египтом. Видишь, как награды превышают труды и как многообразны воздаяния? Для этого понимания и указаны его лета. (Свт. Иоанн Златоуст)
+
+##### Вопросы:

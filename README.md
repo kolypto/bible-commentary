@@ -1,5 +1,24 @@
 # Bible Commentary
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Building locally
 
 ```console
@@ -10,6 +29,25 @@ $ bundle exec jekyll serve -H 0.0.0.0 -lw
 
 $ chrome http://localhost:4000
 ```
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ## Docker
 Alternatively, use Docker:
