@@ -6,6 +6,7 @@ Commentary:
 * ESV Study Bible
 * John MacArthur Commentary
 * Оптина Пустынь
+* Всё это до 8й главый включительно, потом стоп. Нужно продолжать.
 
 
 ## John
