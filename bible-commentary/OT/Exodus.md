@@ -2,10 +2,135 @@
 layout: bible-commentary
 ---
 
+Commentary:
+* ESV Study Bible
+* John MacArthur Commentary
+* Оптина Пустынь
+
+<!--  print(' '.join([f'<a href="#{i}">{i}</a>' for i in range(1, 50+1)])) -->
+<a href="#1">1</a> <a href="#2">2</a> <a href="#3">3</a> <a href="#4">4</a> <a href="#5">5</a> <a href="#6">6</a> <a href="#7">7</a> <a href="#8">8</a> <a href="#9">9</a> <a href="#10">10</a> <a href="#11">11</a> <a href="#12">12</a> <a href="#13">13</a> <a href="#14">14</a> <a href="#15">15</a> <a href="#16">16</a> <a href="#17">17</a> <a href="#18">18</a> <a href="#19">19</a> <a href="#20">20</a> <a href="#21">21</a> <a href="#22">22</a> <a href="#23">23</a> <a href="#24">24</a> <a href="#25">25</a> <a href="#26">26</a> <a href="#27">27</a> <a href="#28">28</a> <a href="#29">29</a> <a href="#30">30</a> <a href="#31">31</a> <a href="#32">32</a> <a href="#33">33</a> <a href="#34">34</a> <a href="#35">35</a> <a href="#36">36</a> <a href="#37">37</a> <a href="#38">38</a> <a href="#39">39</a> <a href="#40">40</a>
 
 ## Exodus
 
+Author:
+Moses followed God’s instructions and “wrote all the words of the LORD” (24:4), which included at the least the record of the battle with Amalek (17:14), the Ten Commandments (34:4, 27–29), and the Book of the Covenant (20:22–23:33). Moses is the one who "wrote this law” (Deut. 31:9).
+(MacArthur)
+
+Date:
+Scripture dates Solomon’s fourth year of reign, i.e., when he began to build the temple (c. 966/65 B.C.), as being 480 years after the Exodus (1 Kin. 6:1), thus establishing the early date of 1445 B.C. for the Exodus.
+Scripture also dates the entry of Jacob and his extended family into Egypt (c. 1875 B.C.) as being 430 years before the Exodus (12:40), thus placing Joseph in the Twelfth Dynasty, the Middle Kingdom period, and placing Moses into the Eighteenth Dynasty, or New Kingdom period.
+This period was not politically or economically weak and obscure period of Egyptian history. Thutmose III, for example, the pharaoh of the oppression, has been called the “Napoleon of Ancient Egypt,” the sovereign who expanded the boundaries of Egyptian influence far beyond their natural borders. At the time of Exodus, Egypt was strong, not weak.
+Moses, born in 1525 B.C. (80 years old in 1445 B.C.), became “learned in all the wisdom of the Egyptians” (Acts 7:22) while growing up in the courts of Pharaohs Thutmose I and II and Queen Hatshepsut for his first 40 years (Acts 7:23). He was in self-imposed, Midianite exile during the reign of Thutmose III for another 40 years (Acts 7:30), and returned at God’s direction to be Israel’s leader early in the reign of Amenhotep II, the pharaoh of the Exodus. God used both the educational system of Egypt and his exile in Midian to prepare Moses to represent his people before a powerful pharaoh and to guide his people through the wilderness of the Sinai peninsula during his final 40 years (Acts 7:36).
+(MacArthur)
+
+Theme:
+The overarching theme of Exodus is the fulfillment of God's promises to the patriarchs that he would make their descendants a great nation. This is carried out despite the opposition of the greatest superpower in the ancient world of the time, Egypt, and despite the unbelief and disobedience of the people themselves. Exodus shows that the success of the exodus must be ascribed first to the power and character of God, who remembers his promises, punishes sin, and forgives the penitent.  (ESV)
+
+Theme:
+The purpose of the book may be expressed like this: To trace the rapid growth of Jacob’s descendants from Egypt to the establishment of the theocratic nation in their Promised Land.
+(MacArthur)
+
+Structure:
+The first half of the book records events that fulfill the promise to Abraham that his descendants would sojourn in a land that was not their own, be afflicted for 400 years, and then come out by the Lord's hand with numerous possessions (Gen. 15:13-14).
+The second half of the book narrates the events surrounding the covenant being revealed, confirmed, broken, and renewed.
+(ESV)
+
+Archaeology:
+Doubts have often been cast on the historical reliability of the exodus account. It is true that no remains of the Israelites have been found in the area of Goshen in the eastern Nile delta or in the wilderness of Sinai. But in neither area would such remains be expected to survive. The mud-built huts of the Israelites have long been destroyed by repeated flooding.
+Nevertheless there is plenty of data that seems to corroborate the biblical account: (1) It is most unlikely that a nation should invent a story of its origins as slaves in a neighboring country. (2) The second millennium b.c. was an era when there were many foreigners in Egypt, some of whom were employed making bricks for building projects.
+(ESV)
+
+Archaeology:
+The absence of any Egyptian record of the devastation of Egypt by the ten plagues and the major defeat of Pharaoh’s elite army at the Red Sea should not give rise to speculation on whether the account is historically authentic. Egyptian historiography did not permit records of their  pharaohs’ embarrassments and ignominious defeats to be published.
+
+
+## 1
+
+### Israel Increases Greatly in Egypt
+
+1:1: **Вот имена сынов Израилевых**. Перечислением имен сынов Израилевых, вошедших в Египет, и упоминанием о смерти Иосифа Моисей отсылает читателя к последним главам кн. Бытия. (Лопухин А.П.)
+
+1:1: **Вот имена сынов Израилевых**. Имена перечисляются не по порядку рождения, а по матерям: сыновья Лии (Рувим, Симеон, Левий, Иуда, Иссахар и Завулон), следом младший между братьями Вениамин, сын Рахили, наконец сыновья Иакова от служанок Лии и Рахили: Дан, Неффалим, Гад и Асир. Иосиф не поминается, но замечается только что он уже был в Египте и там предуготовил им переселение в страну. Манассия и Ефрем родились уже в Египте и не упоминаются в списке перешедших в Египет. (Еп. Виссарион (Нечаев))
+
+1:5: **seventy persons**. Acts 7:14 reports 70 persons: five with the addition of five relatives of Joseph included in the LXX, but not the Hebrew text. (MacArthur)
+
+1:5: **семьдесят [пять]**. В общее число переселившихся (Быт. 46:27: "Всех душ дома Иаковлева, перешедших в Египет, семьдесят"; Втор. 10:22: "в семидесяти душах пришли отцы твои в Египет"), большее в греко-славянском по сравнению с еврейским на пять ввиду того, что LXX переводчиков прибавляют троих внуков и двух правнуков Иосифа (Быт. 46:20). (Лопухин А.П.)
+
+1:5: **семьдесят [пять]**. Можно сделать вывод, что Стефан читал именно Септуагинту, на греческом языке. Или же Лука, автор Деяний, который писал на греческом, в греческой же Септуагинте читал это число. Или же Дух Святой, руководивший евангелистом, пожелал подчеркнуть именно это число.
+
+1:6: **И умер Иосиф**. Смерть Иосифа и всего старого поколения отмечается, как начало нового, ниже описываемого периода в жизни семьи Иакова. (Лопухин А.П.)
+
+1:6: **Иосиф**. Имя «Иосиф» означает прибавление. Такое толкование этого имени подтверждается еврейским народом, который вышел из Египетской земли, увеличившись в числе. (Магн Аврелий Кассиодор)
+
+1:7: **were fruitful and increased greatly**. The vocabulary parallels that of God's command to mankind at creation (Gen. 1:28). (ESV)
+
+1:7: **сыны Израилевы расплодились, и размножились, .. и наполнилась ими земля та**. Сим показывается, что действительно исполнилось обетование, данное Богом Аврааму. (Прп. Ефрем Сирин)
+
+1:7: **сыны Израилевы расплодились, и размножились, .. и наполнилась ими земля та**. Выражение что напоминает? => Заповедь Божию к Адаму. Здесь есть некоторый намёк не на райское состояние, то на изначальный план Божий касательно человечества в раю.
+
+1:7: **the land was filled with them.**.  The growth of the nation was phenomenal. It grew from seventy men to 603,000 males, twenty years of age and older, thus allowing for a total population of about two million (Num. 1:46) departing from Egypt. The seed of Abraham was no longer an extended family, but a nation. The promise that his descendants would be fruitful and multiply (Gen. 35:11, 12) had, indeed, been fulfilled in Egypt. (MacArthur)
+
+1:7: **наполнилась ими земля та**. Ко времени исхода патриархальная семья превратилась, по меньшей мере, в 2 000 000 человек. Из них 600 000 пеших мужчин, т. е. имеющих 20 лет и выше от роду, остальные 1.4млн — жёны и дети. (Лопухин А.П.)
+
+1:7: **наполнилась ими земля та**. Еврейское выражение "ва-ишрецу" значит "стала кишеть" ими, подобно быстро размножающимся мелким животным. (Лопухин А.П.)
+
+1:7: **наполнилась ими земля та**. Это дело Божие, и прямое исполнение обещания. Но объясняется и чисто естественными причинами: ро свидетельству Плиния, Сенеки, Аристотеля, Страбона и других, египетские женщины рождали часто и помногу — по три, по четыре и по пяти детей. Мысль о влиянии египетской природы на размножение евреев высказана, между прочим, в греко-славянском переводе, употребляющем вместо подлинного выражения: «наполнилась ими земля», другое: «умножи же их земля». (Лопухин А.П.)
+
+🛑 STOP
+
+### Pharaoh Oppresses Israel
+
+1:13: **Египтяне с жестокостью принуждали сынов Израилевых к работам**. Тайна бедствий, насылаемых на нас от Бога: ими Бог очищает нашу душу и привлекает нас к Себе. Во время бедствий мы опытно узнаем, что иго Господне – благо и бремя Его легко есть (Мф. 11:30). (Прав. Иоанн Кронштадтский)
+
+1:14: **тяжкой работы над глиною и кирпичами**. Сокровенный смысл: когда мы удалились от Бога и прибегаем к земному, отпадая от могущего удерживать нас в добре и в союзе с Богом, когда мы удаляемся от земли святой и от боголюбезной жизни, едва ли переходя во власть диавола, мы уподобляемся перешедшим из Ханаана в Египет и находившимся под властью фараона и египтян. Когда же мы подчинились ужасному и беззаконному владыке, то есть сатане, то были изнуряемы работами над глиною и кирпичами, то есть земными и на земле производимыми гнуснейшими занятиями, не без труда совершаемыми. (Свт. Кирилл Александрийский)
+
+1:16: **если будет сын, то умерщвляйте его**. Сие же сделал царь не без причины. И сатана, зная, что исполнялось уже четыреста лет, предвозвещенных Аврааму, хотел при умерщвлении младенцев умертвить и спасителя Евреев. И сам Фараон, видя, что народ еврейский умножился, и как бы источен им весь Египет, позавидовал множеству Евреев. Особенно же, когда враги их, желая уверить о себе, что знают они будущее, поелику приходило к концу число лет, определенное для пребывания Евреев в Египте, предвозвещали скорое их избавление; тогда Фараон повелел младенцев убивать, а родителей обременять напрасным трудом, при построении житниц (ст. 11: "города для запасов"), в которых не было нужды. Ибо, если житниц, построенных Иосифом, достаточно было, чтобы на семь лет голода запасти в них хлеба для Египтян и Хананеев и Аммореев; то, конечно, достаточно их было, чтобы вместить в них хлеб для одного Египта. (Прп. Ефрем Сирин)
+
+##### Вопросы:
+
+1: **сынов Израилевых .. вошли в Египет с Иаковом**. Почему у Иакова два имени: Иаков, и Израиль? => Напоминание об эпизоде Быт 32:28 и Быт 35:10, а смысл напоминания — что Господь исполняет обетования.
+1: **сынов Израилевых**. Вспомним. От кого эти сыновья? => ?
+4: **Гад и Асир**. Почему-то не упомянуты Манассия и Ефрем. => ?
+7: **сыны Израилевы расплодились**. Сильно ли расплодились сыны Израиля? За какой срок? => Очень. За 430 лет стали не просто племенем — а народом, и "наполнили землю". В Чис 1:46 сказано что только мужчин было 603 000, значит всего людей могло быть около 2 миллионов. (7:MacArthur)
+7: **сыны Израилевы расплодились**. Бог обещал что Израиль станет народом. Исполнил ли Бог обещание? => Очень даже: рост Израиля был просто феноменальным.
+7: **сыны Израилевы расплодились, и размножились, .. и наполнилась ими земля та**. Выражение что напоминает? => Заповедь Божию к Адаму. Здесь есть некоторый намёк не на райское состояние, то на изначальный план Божий касательно человечества в раю.
+
+## 2
+
+### The Birth of Moses
+### Moses Flees to Midian
+### God Hears Israel’s Groaning
+
+##### Вопросы:
+
+## 3
+
+### The Burning Bush
+
+##### Вопросы:
+
+## 4
+
+4:21: The hardening of Pharaoh's heart.
+I [Yahweh] will harden Pharaoh's heart: 4:21; 7:3; 14:4
+Yahweh hardened the heart of Pharaoh: 9:12; 10:1,20,27; 11:10; 14:8
+Pharaoh's heart was hardened: 7:13,14,22; 8:19; 9:7; 9:35; 14:5
+Pharaoh hardened his heart: 8:15,32; 9:34
+(ESV)
+
+## 5
+## 6
+## 7
+## 8
+## 9
+## 10
+## 11
+## 12
+
 12:7: This command does not make any logical sense; it is only by faith that one can do it: take the word of God seriously, even when it does not make sense to us. Therefore, the blood on the doorpost is a mark of a family that has faith.
+
+## 13
+## 14
 
 14:21: Why did Moses have to **stretch his hand**? It wasn’t the hand that split the sea; it was God, wasn’t He? So why asking Moses to stretch his hand?
 Just imagine this situation: there are thousands of Israelites, panicking; there is the  Egyptian army is pursuing them; and there is this seaside where the Israelites are trapped, having been led by Moses. All of them looking at him. And then **he stretches his hand**, and the sea splits in two at this gesture.
@@ -14,6 +139,13 @@ This is probably because God was building Moses a reputation. The whole nation s
 14:21: Notice that the sea did not split at once; **the winds** were blowing **all night**. So, there likely have been a period of time when Moses had to stand, holding his staff in an outstretched hand, yet seeing no result. It was by faith that he has come to that sea, it was by faith that he held his staff in front of the whole nation, and it was by faith that he kept standing before the winds have started doing their job.
 
 14:30: An old rabbinic saying tells of the drowning of the Egyptians in the Red Sea. As the story goes, when the Egyptians were destroyed, the angels began to rejoice; but God lifted up His hand and said, "The work of my hands are sunk in the sea, and you would sing?". (MacArthur)
+
+## 15
+## 16
+## 17
+## 18
+## 19
+## 20
 
 20:3: (<u>В десяти заповедях нет императива</u>) Скажите, чем отличаются ветхозаветные заповеди например от заповедей блаженств из Евангелия? Обычно первое отличие, которое вспоминают - это то, что в заповедях блаженств нет императива (нет повелений). Заранее извиняюсь, может быть я сейчас разрушу чей-то хрупкий религиозный мир, но в десяти заповедях тоже нет императива. [То есть, они ничего не командуют]. Совсем. Неожиданно?
 Если мы с вами откроем греческий текст Ветхого Завета, мы с удивлением увидим, что в тексте 10 заповедей нет ни одной императивной формулировки. Все заповеди написаны просто в изъявительном наклонении будущего времени. Например, «ты не будешь убивать», «ты не будешь блудить», «ты не будешь воровать». В еврейском тексте виден тот же смысл: просто "не + убить", "не + блудить", "не + воровать".
@@ -41,23 +173,18 @@ This is probably because God was building Moses a reputation. The whole nation s
 20:14: The sixth commandment (“thou shall not kill”) protects the sanctity of life, and the seventh (“**you shall not commit adultery**”) protects the sanctity of marriage. (MacArthur)
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+## 21
+## 22
+## 23
+## 24
+## 25
+## 26
+## 27
+## 28
+## 29
+## 30
+## 31
+## 32
 
 ### The Golden Calf
 
@@ -142,3 +269,13 @@ This is probably because God was building Moses a reputation. The whole nation s
 32:33: **в день посещения Моего Я посещу их за грех их.**. Виновные будут наказаны, не теперь, а впоследствии. (Лопухин А.П.)
 
 32:33: **Ангел Мой пойдет пред тобою**. Лично Моисею, а не народу, обещается руководительство Божие, и это — одно из свидетельств гнева Всевышнего против согрешившего Израиля. (Лопухин А.П.)
+
+
+## 33
+## 34
+## 35
+## 36
+## 37
+## 38
+## 39
+## 40
