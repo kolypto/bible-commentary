@@ -11,6 +11,7 @@ TODO:
 * Переработать вопросы к первым главам (1-13)
 * Не готовы вопросы к последней 50й главе
 * <https://azbyka.ru/otechnik/Oleg_Stenyaev/besedy-na-knigu-bytija/>
+* <https://bible.by/otc/1/1/>
 
 
 

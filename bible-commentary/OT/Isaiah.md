@@ -2,6 +2,11 @@
 layout: bible-commentary
 ---
 
+TODO:
+
+* <https://bible.by/otc/23/1/>
+* <https://bible.by/mcdonald/23/1/>
+* <https://bible.by/mcdonald/23/1/>
 
 ## Isaiah
 
