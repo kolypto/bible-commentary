@@ -2298,12 +2298,27 @@ Also in NT: in response to the request for a manna-like sign shortly after he ha
 ## 18
 
 ### Jethro’s Advice
+
+18:1: **Jethro .. heard of all**. The intelligence-gathering ability of ancient peoples should not be underestimated. Quickly and thoroughly, the news of significant events in other lands passed from one place to another, very often via the merchant caravans which traversed the Fertile Crescent, or through ambassadors and other official contacts between nations. (MacArthur)
+
+18:1: **Jethro .. a priest**. He  was surely no worshiper of Midian’s gods. Since Midianites were generally regarded as idolaters (Num 25:17-18; 31:2-3,16: ""), Jethro must be viewed as remarkably different from his contemporaries, a difference highlighted by Aaron and the elders worshiping and fellowshiping together with him (v. 12). (MacArthur)
+
 18:1: **И услышал Иофор .. что сделал Бог для Моисея и для Израиля**. Здесь два интереснейших контраста.
 Иофор услышал — и пришёл узнать, восхититься, поклониться. Амаликитяне услышали — и пришли воевать, отвратить. Так Иисуса просили уйти из краёв Гадаринских — а не остаться. Так первосвященники решили Его убить.
 Иофор в далёкой стране "узнал, что сделал Бог для Израиля" — и пришёл поклониться. Израиль видел всё это собственными глазами — и ... роптал. Как те девять прокажённых, что не поблагодарили.
 
+18:1: **тесть Моисеев**. В этой главе более 7-ми раз подчёркивается, что Иофор — тесть, и только один раз — что священник. 
+Текст бы читался совсем иначе, если бы было наоборот: "к тебе приближается священник Мадиамский, и поклонился Моисей священнику Мадиамскому, и весь израиль сел есть хлеба со священником Мадиамским".
+Иофор — и тесть, и священник, но пришёл он в качестве тестя, не в качестве священника.
+Здесь может быть такая тема: Моисей когда-то у него пас овец, а тот был священником. Теперь всё перевернулось: Иофор в первую очередь не священник — а просто тесть Моисея. Моисей теперь здесь фигура номер один.
+
 18:2: **жену Моисееву, пред тем возвращенную**. После встречи с Богом на Синае, Моисей собрал жену, детей, и пошёл в Египет (Исх 4:19-26), но ночью "на ночлеге .. встретил его Господь и хотел умертвить его". Помните почему? (Скорее всего потому, что Моисей не совершил обрезание над сыном своим: возможно, уступив жене). После этого она, очевидно, вернулась в Мадиам — а Моисей пришёл в Египет один.
 
+18:5: **in the wilderness where he was encamped at the mountain of God**. Since the provision of water from a rock takes place at Horeb (see 17:6: "I will stand before you on the rock at Mount Sinai. Strike the rock...") while Israel is camped at Rephidim (17:1, 8), the reference to Moses being encamped at the mountain of God seems to indicate that the events of this chapter occur at the same place. It is from here that Israel will make the short trip to the base of Mount Sinai (19:2: "After breaking camp at Rephidim, they came to the wilderness of Sinai and set up camp there at the base of Mount Sinai."). (ESV)
+
+18:5: **в пустыню, где он расположился станом у горы Божией**. Описанное в данной главе событие относится к более позднему, чем пребывание евреев в Рефидиме, времени, и рассказ о нем должен быть помещен, по мнению экзегетов, в X гл. кн. Чис между 10 и 11 ст. Ведь евреи в данный момент находятся в Рефидиме, где была вода и битва (17:1,8), а к Синаю Израиль двинется только в следующей главе (19:2), а избрание тысяченачальников совершилось после Синайского законодательства (Втор 1:6-19: "Господь, Бог наш, говорил нам в Хориве .. изберите себе по коленам вашим мужей мудрых, разумных и испытанных, и я поставлю их начальниками вашими.").
+
+18:9: **And Jethro rejoiced**. After simply hearing about what the Lord had done on Israel's behalf, Jethro's words and actions represent a more faithful response than came from many of those who had experienced the events in Egypt (not to mention Egypt itself, as well as Amalek). (ESV)
 
 
 ## 19
