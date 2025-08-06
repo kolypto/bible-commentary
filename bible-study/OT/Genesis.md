@@ -11,6 +11,7 @@ TODO:
 * Не готовы вопросы к последней 50й главе
 * <https://azbyka.ru/otechnik/Oleg_Stenyaev/besedy-na-knigu-bytija/>
 * <https://bible.by/otc/1/1/>
+* <https://azbyka.ru/biblia/?Gen.1&r>
 * Видео: Десницкий, Стеняев, Солодков (к первым главам)
 * Вопросы в конце главы
 
