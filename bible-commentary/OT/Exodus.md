@@ -2705,7 +2705,13 @@ Also in NT: in response to the request for a manna-like sign shortly after he ha
 
 #### 7. You shall not commit adultery.
 
-20:13: The sixth commandment (“thou shall not kill”) protects the sanctity of life, and the seventh (“**you shall not commit adultery**”) protects the sanctity of marriage. (MacArthur)
+20:14: **You shall not commit adultery**. The sixth commandment (“thou shall not kill”) protects the sanctity of life, and the seventh (“you shall not commit adultery”) protects the sanctity of marriage. (MacArthur)
+
+20:14: **Не прелюбодействуй**. Разве тот, кто любит ближнего своего, совершит прелюбодеяние с его женой? Конечно, никогда! Итак, если ты любишь ближнего, то не совершишь прелюбодеяния. Равным образом тот, кто любит ближнего, не украдет принадлежащего ему и не будет лжесвидетельствовать против него. Точно так же и прочие предписания Закона соблюдаются без всякого усилия, если есть любовь к ближнему. (Ориген)
+
+20:14: **Не прелюбодействуй**. Как следует избегать внутреннего прелюбодейства?
+Чтобы не впасть в тонкое, внутреннее прелюбодейство, следует избегать всего, что может возбудить в сердце скверные желания: сладострастных песен, танцев, сквернословия, легкомысленных игр и шуток, пьянства, бесстыдных зрелищ, чтения книг, в которых описывается нечистая любовь. Следует, по Евангелию, вовсе не смотреть на то, что соблазняет (Мф 5:29: "вырви его и брось от себя). Это значит, что надо вырвать его не рукой, а волей. Кто не смотрит на то, что соблазняет, тот уже вырвал у себя соблазняющий глаз.
+(Свт. Филарет (Дроздов))
 
 #### 8. You shall not steal.
 #### 9. You shall not bear false witness.
