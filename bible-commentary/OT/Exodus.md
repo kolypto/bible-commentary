@@ -3051,10 +3051,57 @@ Also in NT: in response to the request for a manna-like sign shortly after he ha
 ## 25
 
 ### Contributions for the Sanctuary
+
+25:1: **чтобы они сделали Мне приношения**. Скиния устраивается на добровольные приношения потому что она, жилище Всевышнего (ст. 8; 29:45), Бога всего народа, является общенародным достоянием. Обращение к доброхотным жертвователям было так успешно, что после пришлось прекратить прием приношений (36:5, 6). (Лопухин А.П.)
+
+25:2: **every man whose heart moves him you shall receive the contribution for me**. The people responded with such joy and enthusiasm that they finally had to be restrained from bringing any more gifts (35:21–29; 36:3–7). A similar response occurred centuries later, when King David requested gifts to build the temple (1 Chr. 29:1–9). (MacArthur)
+
+25:5: **и кожи бараньи красные, и кожи синие, и дерева ситтим**. Кожи бараньи красные – сафьян. Кожи «тахаш», – от какого животного, дельфина, тюленя или морской породы, они добывались, неизвестно. Несомненно одно, что, предназначенные служить верхним покрывалом скинии (Исх 26:14), они отличались прочностью и непромокаемостью. Дерево «ситтим», аравийская акация, отличалось твердостью и легкостью, и потому было самым подходящим для устройства переносной скинии. (Лопухин А.П.)
+
+25:5: **acacia wood**. A hard, durable, close-grained, and aromatic desert wood avoided by wood-eating insects. It was considered good for cabinet-making, and could also be found in sufficient quantities in the Sinai peninsula. (MacArthur)
+
+25:8: **I may dwell in their midst**. The focus on the tabernacle is grounded in the fact that it is the means through which the Lord chose to dwell in the midst of his people (ESV)
+
+25:8: **I may dwell**. The place of God's presence with His people. (MacArthur)
+
+25:9: **Exactly as I show you concerning the pattern of the tabernacle**. Tabernacle is seen as a tented palace for Israel's divine king. He is enthroned on the ark of the covenant in the innermost Holy of Holies (the Most Holy Place). His royalty is symbolized by the purple of the curtains and his divinity by the blue. The closer items are to the Holy of Holies, the more valuable are the metals (bronze→silver→gold) of which they are made. (ESV)
+
+25:9: **the tabernacle**. The other symbolic dimension is Eden. The tabernacle, like the garden of Eden, is where God dwells, and various details of the tabernacle suggest it is a mini-Eden. These parallels include the east-facing entrance guarded by cherubim, the gold, the tree of life (lampstand), and the tree of knowledge (the law). Thus God's dwelling in the tabernacle was a step toward the restoration of paradise. (ESV)
+
 ### The Ark of the Covenant
+
+25:13: **чтобы посредством их носить ковчег; в кольцах ковчега**. Шесты назначены для того, чтобы носить ковчег завета, не прикасаясь к нему руками (Чис 4:15). Они всегда должны быть вдеты в кольца, за исключением того случая, когда нужно было закрыть ковчег покрывалами пред перенесением его на другое место (Чис 4:5,6: "подойдут, чтобы нести; но не должны они касаться святилища, чтобы не умереть."). (Лопухин А.П.)
+
+25:17: **mercy seat**. The lid or cover of the ark was the “mercy seat” or the place at which atonement took place. Between the Shekinah glory cloud above the ark and the tablets of law inside the ark was the blood-sprinkled cover. Blood from the sacrifices stood between God and the broken law of God. (MacArthur)
+
+25:20: **херувимы**. Как видно из устройства херувимов храма Соломонова (2 Пар 3:13), сделанных по образцу херувимов скинии, эти последние имели прямое положение: «стояли на ногах своих». О коленопреклоненном положении херувимов не может быть речи. (Лопухин А.П.)
+
+25:17: **крышка**. Еврейское название крышки «капорет» (от глагола «кафар» – покрывать, делать невидимым, очищать), греческое ἱλαστήριον, славянское «очистилище» – дано ей потому, что семикратным кроплением на нее в день очищения достигалось очищение народа от грехов (Лев 16:14-16). (Лопухин А.П.)
+
+25:18: **two cherubim**. From between the two cherubim that the Lord will speak to Moses (Num 7:89: "Whenever Moses went into the Tabernacle to speak with the LORD, he heard the voice speaking to him from between the two cherubim above the Ark’s cover—the place of atonement—that rests on the Ark of the Covenant. The LORD spoke to him from there.") (ESV)
+
+25:18: **two cherubim**. Cherubim are the traditional guardians of holy places. (ESV)
+
 ### The Table for Bread
+
+25:24: **сделай вокруг него золотой венец**. Как видно из изображения стола для хлебов предложения на арке императора Тита в Риме, под венцом разумеется массивная золотая планочка 6 дюймов ширины, ограждавшая со всех сторон верхнюю поверхность стола. Так как гладкую обкладку трудно назвать венцом, то можно думать, что она была волнистообразна. (Лопухин А.П.)
+
+25:30: **bread of the Presence**. The bread of the Presence consisted of 12 flat loaves of bread, symbolizing the 12 tribes of Israel (Lev. 24:5-9). Facing the lampstand, they enjoyed the perpetual light of divine blessing. (ESV)
+
+25:30: **полагай на стол хлебы предложения пред лицем Моим постоянно**. Хлебов нужно было класть двенадцать (Лев 24:5) по числу двенадцати колен Израилевых, в два ряда (Лев 24:6), по шести в ряд, хлеб на хлеб. Хлебы каждую субботу заменялись новыми (Лев 24:8). Хлебы называются хлебами лица, потому что находились пред лицом Сущего. (Лопухин А.П.)
+
+25:30: **bread of the Presence**. This “Bread of His Presence” was not set out in order to feed Israel’s God, unlike food placed in pagan shrines and temples, but to acknowledge that the twelve tribes were sustained constantly under the watchful eye and care of their Lord. 
+The bread was eaten in the Holy Place each Sabbath by the priests on duty (Lev. 24:5–9). 
+The bread is understood to typify the Lord Jesus Christ as the bread which came from heaven (John 6:32–35).
+(MacArthur)
+
 ### The Golden Lampstand
 
+25:31: **a lampstand of pure gold**. The lampstand provides light within the tabernacle, and the priests will be instructed to keep it burning regularly. (ESV)
+
+25:31: **a lampstand of pure gold**. The lampstand provided light for the priests serving in the Holy Place. Care was taken to keep it well-supplied with oil and keep it lit. (MacArthur)
+
+25:40: **Смотри, сделай их по тому образцу, какой показан тебе на горе**. Как видно из 25:40; Деян 7:44; Евр 8:5, Моисею даны были не только словесные наставления относительно устройства скинии и ее принадлежности, но и были показаны самые образцы здания и находящихся в нем предметов. (Лопухин А.П.)
 
 ## 26
 
