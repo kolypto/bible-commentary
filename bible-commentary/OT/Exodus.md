@@ -3180,6 +3180,25 @@ The bread is understood to typify the Lord Jesus Christ as the bread which came 
 
 ### Consecration of the Priests
 
+29:7: **возьми елей помазания, и возлей ему на голову, и помажь его**. Цель помазания Аарона особо приготовленным елеем заключалась в «освящении» помазуемого. По мнению других, помазание служило знаком сообщения Аарону особых благодатных сил, необходимых ему для прохождения служения. Но Библия не дает оснований для такого понимания. (Лопухин А.П.)
+
+29:9: **наполни руки Аарона и сынов его**. Как видно из 1 Пар 29:5 и 2 Пар 29:31, «выражение наполнить руки для Всевышнего» означает: «запасаться тем, что приносится Богу». Аарон и его сыновья не сами запаслись «тем, что приносится Господу», в настоящем случае, жертвами, а через Моисея: он «наполнил им руки», т. е. через него приобрели жертвы, получили право на их совершение. (Лопухин А.П.)
+
+29:10: **тельца**. Бык — это жертва за грех. Её задача — очищение священников.
+
+29:19: **ram**. Ordination. This sacrifice differs in at least two respects from the burnt offering: some of the blood is placed on Aaron and his sons before it is thrown against the altar (v. 20) as well as then being sprinkled on their clothes along with anointing oil in order to consecrate both the priests and their garments (v. 21). Second, rather than burning the whole ram on the altar, certain parts are offered to the Lord together with bread (vv. 22-25) and the breast is eaten by the priests (vv. 26-28). (ESV)
+
+29:20: **на край правого уха .. на большой палец правой руки .. и на большой палец правой ноги**. Через ухо, руку и ногу помазуются члены, которыми священники совершают свое служение. Ухо помазуется для того, чтобы оно лучше слышало закон и свидетельство Божие; рука – для того, чтобы она точно исполняла заповеди Божии и священнические обязанности; нога – для того, чтобы она беспорочно ходила в святилище.  (Лопухин А.П.)
+
+29:20: **на край правого**. Именно правого: потому что «всякое доброе деяние благородно и право, не имеет ничего как бы левого или порочного, ибо посвященным Богу надлежит быть правыми в освящении и до конца в терпении, и весьма неразумно возвращаться назад, как бы не решаясь довести до конца добро» (Кирилл Александрийский)
+
+29:20: **put it on .. right ear .. thumbs of their right hands and on the great toes of their right feet**. Since Aaron and his sons were dressed in their priestly garments, the blood is placed on the ears, thumbs, and great toes, the exposed parts representing the whole. The specification of the right member of each of these body parts is probably connected to the way that the right hand is considered the place of honor (see Gen. 48:17-19). As in Ex. 24:6-8, putting the blood on the priests and on the altar serves to link them closely to God. It may also be seen to purify them from sin. (ESV)
+
+29:20: **put it on .. right ear .. thumbs of their right hands and on the great toes of their right feet**. Symbolically sanctified the ear to hear the Word of God, the hand to do the work of God, and the foot to walk in the way of God. (MacArthur)
+
+29:31: **и пусть съедят Аарон и сыны его мясо овна**. Как и всякая мирная жертва, жертва посвящения закончилась трапезой (ср. Лев 7:15 и д.). И если трапеза выражала мысль об общении, то в настоящем случае она указывала на то, что Аарон и его сыновья принимаются в особенный священнический союз с Богом, в благах и благословениях которого никто не мог иметь части, кроме очищенных священников. Поэтому никто посторонний и не мог вкушать ее. (Лопухин А.П.)
+
+29:40: **пшеничной муки, смешанной с четвертью гина битого елея**. Предметами бескровной жертвы служили главные дарованные Творцом (Пс 103:14, 15) средства для сохранения человеческой жизни и для земного довольства, а потому в ней находила полное, наиболее наглядное выражение основная идея жертвы — мысль о самопожертвовании. (Лопухин А.П.)
 
 ## 30
 
