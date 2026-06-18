@@ -3480,8 +3480,22 @@ The bread is understood to typify the Lord Jesus Christ as the bread which came 
 # 35
 
 ## Sabbath Regulations
+
+35:2: **you shall have a Sabbath of solemn rest, holy to the Lord**. Israel is to embody faithfulness to the Lord by keeping the Sabbath holy while they are building his sanctuary. (ESV)
+
+35:2: **день седьмой должен быть у вас святым, суббота покоя Господу**. Повторение закона о субботнем покое пред началом работ по устройству скинии имело целью предупредить народ, чтобы он из излишнего усердия при постройке святилища не забывал и не нарушал одного из важнейших постановлений. (Лопухин А.П.)
+
+35:3: **не зажигайте огня во всех жилищах ваших в день субботы**. Новое разъяснение закона о субботе запрещает «зажигать огонь в день субботний», т. е. приготавливать пищу. (Лопухин А.П.)
+
 ## Contributions for the Tabernacle
+
+35:17: **колья двора и веревки их**. Лишним в данном случае является указание, что столбы внешнего двора укреплялись при помощи веревок. (Лопухин А.П.)
+
+35:21: **everyone whose heart stirred him, and everyone whose spirit moved him**. The willingness of heart shows their penitence for making the golden calf. (ESV)
+
 ## Construction of the Tabernacle
+
+35:31: **и исполнил его Духом Божиим, мудростью, разумением**. Веселеил — первый человек в Библии, о котором прямо сказано, что он исполнен Духа Божьего. Автор показывает, что Божий Дух действует не только через религиозных лидеров, но и через создателей, художников, инженеров и учителей.
 
 # 36
 
