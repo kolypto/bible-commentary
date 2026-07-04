@@ -17,6 +17,8 @@ Commentary:
 
 ⚠️ Глава пропущена
 
+1:1: **воззвал Господь к Моисею и сказал ему из скинии**. По построении скинии Господь, исполняя обетование Свое Моисею открывать ему Свою волю и являть Свое присутствие над ковчегом завета и крышкою его. (Лопухин А.П.)
+
 # 2
 ## Laws for Grain Offerings
 
@@ -35,7 +37,13 @@ Commentary:
 # 5
 ## Laws for Guilt Offerings
 
-⚠️ Глава пропущена
+⚠️ Глава частично пропущена
+
+5:xx: **слышал голос проклятия и был свидетелем**. Указываются 3 случая греховного действия; 1) отказ свидетельствовать истину в известных криминальных делах — утайка или сокрытие чужого преступления; 2) осквернение трупною нечистотою или иною (ст. 2–3) и 3) необдуманная, безрассудная клятва (ст. 4–5). Во всех этих случаях, если греховное или оскверняющее действие в момент совершения его не сознавалось, как таковое, и опознано было в своем качестве лишь после (в случаях заведомо известных, вызываемых необходимостью осквернений, требовались не жертвы, а очищения — омовения, Лев XI–XV гл.), приносилась жертва за грех, по надлежащем исповедании содеянного греха со стороны виновного. (Лопухин А.П.)
+
+5:1: **oath .. witness**. A witness who did not come forward to testify was sinning when he had actually seen a violation or had firsthand knowledge. (MacArthur)
+
+5:5: **he shall confess**. Confession must accompany the sacrifice as the outward expression of a repentant heart which openly acknowledged agreement with God concerning sin. Sacrifice without repentance was hypocrisy. (MacArthur)
 
 # 6
 ## The Priests and the Offerings
