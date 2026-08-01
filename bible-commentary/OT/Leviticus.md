@@ -109,6 +109,24 @@ Commentary:
 
 10:6: **Do not let the hair of your heads hang loose, and do not tear your clothes, lest you die**. The ordained priests, who are holy, ought not to mourn even for the death of their rebellious family members. However, see Lev 21:1-4: "Priests .. shall not make himself unclean for the dead among his people, 2 except for his closest relatives, his mother, his father, his son". However, the High Priest can't even touch his relatives' corpses. (ESV)
 
+10:8: **И сказал Господь Аарону, говоря:**. Обращение Бога непосредственно к Аарону традиция почитает выражением благоволения Богом ему за его самообладание (ст. 3).  (Лопухин А.П.)
+
+10:8: **And the Lord spoke to Aaron, saying**. This is the only time in Leviticus that God speaks directly to Aaron alone. (ESV)
+
+10:9: **вина и крепких напитков не пей ты и сыны твои с тобою, когда входите в скинию собрания**. Запрещение, даваемое теперь Аарону, может наводить на мысль, что грех Надава и Авиуда мог состоять именно в нетрезвости при первом служении. (Лопухин А.П.)
+
+10:9: **not drink wine or intoxicating drink**. Taken in its context, this prohibition suggests that intoxication led Nadab and Abihu to perform their blasphemous act. (MacArthur)
+
+10:10: **чтобы вы могли отличать священное от несвященного и нечистое от чистого**. Цель или мотив запрещения: чтобы служащие не теряли ясности рассудка и способности строго различать между священным и мирским, ритуально чистым и нечистым, законным и незаконным, научая примером своим народ законному.  (Лопухин А.П.)
+
+10:11: **that you may teach the children of Israel**. It was essential that alcohol not hinder the clarity of their minds, since the priests were to teach God’s law to all of Israel. They were the expositors of the Scripture, alongside the prophets who generally received the Word directly from the Lord. (MacArthur)
+
+10:16: **И козла жертвы за грех искал Моисей — и вот он сожжен**. Вопреки постановлению Лев 6:26–30 о жертве греха, остатки мяса козла за грех старейшин были сожжены, хотя кровь этой жертвы не была внесена в святилище. (Лопухин А.П.)
+
+10:16: **the goat of the sin offering, and behold, it was burned up!**.  The sin offering had not been eaten as prescribed in 6:26 but, rather, it was wholly burned. Moses challenged not Aaron, whose heart was too torn in the death of his sons, but the two surviving sons in the priesthood to explain their breach of ritual duty. Aaron, who heard the charge, and by whose direction the violation had occurred, gave the explanation. (MacArthur)
+
+10:19: **И услышал Моисей и одобрил**. Оправдание Аарона, проникнутое глубоким смирением и тайною скорбью о сыновьях, удовлетворяет Моисея. (Лопухин А.П.)
+
 # 11
 ## Clean and Unclean Animals
 
