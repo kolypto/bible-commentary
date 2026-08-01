@@ -82,6 +82,32 @@ Commentary:
 # 10
 ## The Death of Nadab and Abihu
 
+10:1: **unauthorized fire**. The two sons capriciously took censers of their own, put incense in them, and offered unauthorized fire to the Lord. The offense lies in their doing it their own way instead of in a way authorized by the Lord, and as a result they were instantly killed. (This probably also involved entering--or trying to enter--the Most Holy Place after drinking alcohol. C.f. LEv 16:2: "The Lord spoke to Moses after the death of the two sons of Aaron: .. Tell Aaron .. not to come into the Holy Place"). The point of the story is that God will not allow his holiness to be violated. (ESV)
+
+10:1: **unauthorized fire**. Though the exact infraction is not detailed, in some way they violated the prescription for offering incense, probably because they were drunk (see vv. 8, 9). They were supposed to take fire from the brazen altar. Considering the descent of the miraculous fire they had just seen, their deed betrayed carelessness, irreverence, lack of consideration for God. (MacArthur)
+
+10:1: **принесли пред Господа огонь чуждый, которого Он не велел им**. Характер их греха не указан. По традиции, это было самопревозношение их пред Аароном и произвольное, несвоевременное каждение, быть может, притом в нетрезвом виде (ср. ст. 9), и огонь для него принесен извне ограды скинии. Во всяком случае проступок их выражал неуважение их к святыне, мог поселить такое же и в народе, а потому он и примерно наказывается — в ограждение святыни святилища и к возвышению достоинства самого священства (Лопухин А.П.)
+
+10:1: **принесли пред Господа огонь чуждый, которого Он не велел им**. Надав и Авиуд были наказаны не за одну вину, но за многие, как показывает Писание: во-первых, внесли они чуждый огнь, когда был уже огнь, который в это время сошел и попалил жертвы; во-вторых, они пренебрегли Моисея и Аарона, и, не получив от них дозволения, воскурили фимиам; в-третьих, произвели беспорядок в чине своего служения, воскурив фимиам не в надлежащее время; в-четвертых, вошли во внутреннюю скинию, в то место, куда однажды в год входил отец их Аарон. 
+А словами: "огонь чуждый", изображается следующее: чуждым огнем именуется воля Адама и Евы, возжелавших быть богами. Когда же Господь повелевает, чтобы огнь всесожжения не угасал до утра; тогда означается сим, что огнь закона не угаснет на алтаре, до утра явления Еммануилова. (Прп. Ефрем Сирин)
+
+10:2: **fire went out**. The same divine fire that accepted the sacrifices (9:24) consumed the errant priests. That was not unlike the later deaths of Uzzah (2 Sam. 6:6-7) or Ananias and Sapphira (Acts 5:5-10). (MacArthur)
+
+10:2: **вышел огонь от Господа и сжег их, и умерли они пред лицем Господним**. Почему так строго наказал Господь Надава и Авиуда? Потому что они проявили сознательное и дерзкое непослушание Моисею и Аарону, посланникам Божиим, значит: Самому Богу. Они в дело Божие внесли свою злую волю, установить хотели чуждый центр своим огнем кадильным. (Сщмч. Онуфрий (Гагалюк))
+
+10:3: **regarded as holy .. be glorified**. The priests had received repeated and solemn warnings as to the necessity of reverence before God. (MacArthur)
+
+10:3: **Аарон молчал**. Пораженный горем, отец злосчастных священников Аарон не предается обычным на Востоке бурным проявлениям печали траура, а в сознании тяжести греха и заслуженности наказания молит, доказывая тем свое понимание высоты и ответственности своего служения священного. (Лопухин А.П.)
+
+10:4: **И позвал Моисей Мисаила и Елцафана, сынов Узиила, дяди Ааронова, и сказал им: пойдите, вынесите братьев ваших из святилища за стан**. Выносят умерших не отец и братья, облеченные в священные одежды и не могшие касаться мертвых, а близкие родственники, двоюродные братья Моисея и Аарона. 
+Лев 21:10: "первосвященник .. который освящен, чтобы облачаться в священные одежды, не должен обнажать головы своей и раздирать одежд своих; и ни к какому умершему не должен он приступать: даже прикосновением к умершему отцу своему и матери своей он не должен осквернять себя. И от святилища он не должен отходить и бесчестить святилище Бога своего, ибо освящение елеем помазания Бога его на нем. Я Господь."
+(Лопухин А.П.)
+
+10:4: **out of the camp**. As this was done with the ashes of sacrificed animals (6:11), so it was done with the remains of these two priests who received God’s wrath. (MacArthur)
+
+10:3: **Aaron held his peace**. In spite of losing his two sons, he did not complain, but submitted to the righteous judgment of God. (MacArthur)
+
+10:6: **Do not let the hair of your heads hang loose, and do not tear your clothes, lest you die**. The ordained priests, who are holy, ought not to mourn even for the death of their rebellious family members. However, see Lev 21:1-4: "Priests .. shall not make himself unclean for the dead among his people, 2 except for his closest relatives, his mother, his father, his son". However, the High Priest can't even touch his relatives' corpses. (ESV)
 
 # 11
 ## Clean and Unclean Animals
