@@ -247,6 +247,31 @@ Commentary:
 # 17
 ## The Place of Sacrifice
 
+17:3: **если кто из дома Израилева заколет .. и не приведет ко входу скинии собрания**. Устанавливается правило, чтобы всякое животное из числа употребляемых в жертву, даже и для обычного житейского употребления, закалалось при скинии. Основание — в предупреждении жертвоприношений другим богам и в возбуждении уважения к жизни даже животных. Несоблюдение закона приравнивается к убийству.  
+Несомненно, впрочем, что закон рассчитан лишь на близость всей общины к святилищу, как было в пустыне. По вступлении же Израиля в Ханаан ему было разрешено закалать животных на всяком месте «во всех жилищах» (Втор XII:15) своих, рассеянных по всему Ханаану.
+(Лопухин А.П.)
+
+17:4: **does not bring it to the entrance of the tent of meeting**. Instructions are intended to prevent ongoing idolatry (ESV)
+
+17:4: **bloodguilt shall be imputed to that man**. When a slaughtered anumal is not brought to the sanctuary, the act is tantamount to human murder (though not identical to it). The immediate purpose for the prohibition is to prevent the people's idolatry in worshiping the goat demons. (ESV)
+
+17:5: **это для того, чтобы .. приводили их пред Господа ко входу скинии собрания, к священнику, и заколали их Господу в жертвы мирные**. Вынесенная из Египта склонность к идолопоклонству побуждала многих, под предлогом заклания животных в пищу, приносить жертву на поле тем козлообразным существам народной веры. 
+По блаж. Феодориту, «Бог знал нечестие некоторых, знал, что иные приносят жертвы демонам. Посему постановил, чтобы всякий желающий закалать тельца или овцу, или козу, приводил закалаемое к дверям скинии и там проливал кровь, мясо же вкушал дома».
+(Лопухин А.П.)
+
+17:7: **чтоб они впредь не приносили жертв своих идолам, за которыми блудно ходят они.**. В еврейском тексте, буквально: "чтобы впредь не приносили они жертв своим козлам (демонам в образе козлов), с которыми они блудят."
+
+17:10: **будет есть какую‐нибудь кровь**. В крови седалище жизни, а человек имеет естественное отвращение вкушать самую жизнь, душу животного. (Лопухин А.П.)
+
+17:11: **потому что душа тела в крови**. С человеком было не так [как с животными], но сначала тело творится из праха земного, а потом ему дается жизненная сила, которая и составляет сущность души. Поэтому и о бессловесных животных сказал Моисей, что кровь его душа его есть. А в человеке есть бестелесная и бессмертная сущность, имеющая великое преимущество перед телом, и именно такое, какое прилично иметь бестелесному перед телом. (Свт. Иоанн Златоуст)
+
+17:11: **I have given it for you on the altar to make atonement for your souls**. Because the Lord has set aside the blood for the unique role of atonement (v. 11), the Israelites and all sojourners are prohibited from partaking of it. (ESV)
+
+17:13: **pour out its blood and jcover it with earth**. It was customary with heathen hunters, when they killed any game, to pour out the blood as an offering to the god of the hunt. The Israelites, to the contrary, were enjoined by this directive and banned from all such superstitious acts of idolatry. (MacArthur)
+
+17:15: **eats what dies of itself or what is torn by beasts**. A person who eats from these animals is unclean, probably because the animals that have died in these ways have not had their blood drained properly.  (ESV)
+
+17:15: **мертвечину или растерзанное зверем**. В постановлении апост. собора (Деян XV:23–25) также одинаково запрещается кровь (ἀἶμα) и удавленина (πνικτόν) — последняя потому, что из животного в таком случае не удалена кровь. (Лопухин А.П.)
 
 # 18
 ## Unlawful Sexual Relations
