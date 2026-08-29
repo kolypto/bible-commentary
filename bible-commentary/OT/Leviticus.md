@@ -276,7 +276,19 @@ Commentary:
 # 18
 ## Unlawful Sexual Relations
 
-⚠️ Глава пропущена
+18:3: **по делам земли Ханаанской, в которую Я веду вас, не поступайте**. Ввиду известного сладострастия жителей Востока и того исторического факта, что целые государства и отдельные нации Востока погибли вследствие расшатанности нравственных устоев, Иегова, Святый Израиля, с особенною торжественностью изрекает постановления, регулирующие семейную жизнь. (Лопухин А.П.)
+
+18:4 **I am the LORD your God**. This phrase, used over fifty times, asserts the uniqueness of the one true and living God, who calls His people to holiness as He is holy, and calls them to reject all other gods. (MacArthur)
+
+18:5: **Соблюдайте постановления Мои и законы Мои, которые исполняя, человек будет жив. Я Господь**. Закон в награду исполняющим его обещал не Царствие Небесное, но утешения в этой жизни, говоря: «Кто сотворит это, будет жить в них». (Прп. Иоанн Кассиан)
+
+18:6-18: No mention is made of the daughter, probably because that needs no comment. (ESV)
+
+18:11 **your sister**. Here, he is forbidden to marry a stepsister. (MacArthur)
+
+18:21: **Molech**. It may be that they are being given to the cult of Molech to train to be temple prostitutes, and that is why this passage is listed in a section dealing with sexual prohibitions. (ESV)
+
+18:21: **Molech**. Since this chapter deals otherwise with sexual deviation, there is likely an unmentioned sexual perversion connected with this pagan ritual. Jews giving false gods homage gave foreigners occasion to blaspheme the true God. (MacArthur)
 
 # 19
 ## The Lord Is Holy
