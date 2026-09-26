@@ -348,6 +348,13 @@ Commentary:
 
 # 20
 ## Punishment for Child Sacrifice
+20:8: **I am the Lord who sanctifies you**. This is the first time in Leviticus that the Lord is said to be the agent of sanctifying the people. The Lord sanctifies the Israelites by making them his holy people, set apart to be his own, giving them a holy status; now he calls on them to consecrate themselves and be holy (i.e., dedicate themselves to holiness in practice); (ESV)
+
+20:9: **Кто будет злословить отца своего или мать свою**. Злословие отца или матери наказывается смертью, как преступление, подрывающее богоучрежденные устои общежития. (Лопухин А.П.)
+
+20:16: **то убей женщину и скотину**. Повелевая побивать камнями скот, закон хочет истребить и самую память гнусного дела, совершенного в народе, чтобы скот видом своим не приводил на мысль то, что сделала дерзость свободы. (Прп. Ефрем Сирин)
+
+## Punishments for Sexual Immorality
 ## You Shall Be Holy
 
 # 21
