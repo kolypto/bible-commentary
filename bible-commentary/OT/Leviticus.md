@@ -436,16 +436,43 @@ Commentary:
 
 24:15: **и сынам Израилевым скажи: .. хулитель имени Господня должен умереть**. По поводу случая с сыном египтянина и израильтянки дается общий закон о хуле. (Лопухин А.П.)
 
-24:20: **eye for an eye**. The law of retribution ("lex talionis"). It is a form of ironic justice in which the punishment for the crime is found in the crime itself. It is unlikely that fracture for fracture, eye for eye, tooth for tooth actually implies mutilation as the punishment for the offender; rather, the value of the injured member will be the imposed fine. Since this is a rule for judges to follow, it should not be invoked in ordinary daily relationships. (ESV)
-
 ## An Eye for an Eye
+
+24:20: **eye for an eye**. The law of retribution ("lex talionis"). It is a form of ironic justice in which the punishment for the crime is found in the crime itself. It is unlikely that fracture for fracture, eye for eye, tooth for tooth actually implies mutilation as the punishment for the offender; rather, the value of the injured member will be the imposed fine. Since this is a rule for judges to follow, it should not be invoked in ordinary daily relationships. (ESV)
 
 # 25
 ## The Sabbath Year
+25:5-6: **не убирайте того, что выросло само по себе ... всё, что произведёт земля, можно есть**. Стихи противоречат друг другу? 
+Разница в слове "убирать" (ст. 5) и "будет пищей" (ст. 6): это два разных действия. Убирать — это в амбар. Пропитание — это сразу кушать.
+В 5-м стихе Господь запрещает собирать даже самосев: то, что выросло само, не "убирай" в свои амбары — то есть как личную собственность. Нельзя огораживать поле, собирать самосев и складировать на будущее.
+В 6-м стихе Господь говорит, что всё это можно и нужно кушать, чтобы не пропало.
+
+25:5: **не сжинай, и гроздов с необрезанных лоз твоих не снимай**. Для выполнения этого замечательного закона требовался народ глубокой религиозной веры, целый 7-й год земля оставалась без обработки, а потому и без урожая в 8-й год, только в 9-й год начинался правильный севооборот. Требовалось от народа и немалое самоотвержение в пользу ближних — в предоставлении им пользования плодами и особенно в прощении долгов. Предупреждает законодатель (Втор 15:9–10) и движения скупости, корыстолюбия, своекорыстия в сердце еврея, воспрещая отказывать ближнему в займе пред годом субботним. (Лопухин А.П.)
+
+25:5: **не сжинай**. Втор 15:1 расширяет эту заповедь: каждые 7 лет прощаются долги (Втор 15:1), давай взаймы охотно всё в чём он бы ни нуждался (Втор 15:8) и не затаи подлую мысль "7й год близко, не дам ему в долг" (Втор 15:9)
+
 ## The Year of Jubilee
+25:9: **Jubilee**. This literally means “ram’s horn,” which was blown on the tenth day of the seventh month to start the fiftieth year of universal redemption. (MacArthur)
+
+25:10: **proclaim liberty**. The Year of Jubilee involved a year of release from indebtedness (vv. 23–38) and bondage of all sorts (vv. 39–55). All prisoners and captives were set free, slaves released, and debtors absolved. All property reverted to original owners. This plan curbed inflation and moderated acquisitions. It also gave new opportunity to people who had fallen on hard times. (MacArthur)
+
+25:13: **В юбилейный год возвратитесь каждый во владение свое**. Восстановление того порядка вещей, который установлен при разделе земли обетованной израильтянам, т. е. равномерного распределения недвижимой собственности и личной свободы каждого члена теократического общества. (Лопухин А.П.)
+
+25:14: **if you make a sale**. The Jubilee year had an effect on the value of land, which was to be considered in all transactions. (MacArthur)
+
+25:14: **не обижайте друг друга**. Всякая продажа и купля земли ставится под нравственную точку зрения — требований любви и справедливости в отношении к ближнему. (Лопухин А.П.)
+
+25:15: **по расчислению лет после юбилея**. В предотвращение полного отчуждения земельных участков от обедневших владельцев их продажа земли в Израиле дозволяется лишь как продажа известного числа жатв (ст. 16), именно остающихся до следующего юбилейного года. (Лопухин А.П.)
+
+25:23: **Землю не должно продавать навсегда, ибо Моя земля: вы пришельцы и поселенцы у Меня**. В основание указанного порядка неотчуждаемости земельной собственности в Израиле полагается теократический принцип об едином собственнике земли Иегове, в отношении к Которому все евреи являются лишь временными собственниками — пришельцами, и поселенцами, и произвольного распоряжения землею им не предоставлено. (Лопухин А.П.)
+
 ## Redemption of Property
+25:29: **жилой дом в городе, огражденном стеною**. Селения и дома в них тесно связаны с землею. Покупка дома в городе ни мало не изменяла первоначального разделения земли (под городами, огражденными стеною, традиция разумеет, бывшие такими при И. Навине); притом имущественные интересы в городе вообще выходили за пределы колен, наконец, в городах жило немало иностранцев, делать которых участниками привилегий юбилейного года не было оснований. (Лопухин А.П.)
+
 ## Kindness for Poor Brothers
 ## Redeeming a Poor Man
+
+25:42: **For they are My servants**. The spirit of OT slavery is revealed in these words. God, in effect, ordered that slaves be treated like family, i.e., better than employees, because they are His slaves which He redeemed out of the slave markets of Egypt. God owned not only the land (v. 23), but also the people. (MacArthur)
 
 # 26
 ## Blessings for Obedience
